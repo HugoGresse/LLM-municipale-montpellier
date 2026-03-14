@@ -1,0 +1,50 @@
+URL: https://montpellier-municipales.fr/politique-confidentialite
+
+TITLE: app.footer.privacyPolicy - Montpellier Municipales 2026
+
+CONTENT:
+
+Politique de confidentialitÃ©
+Engagement de confidentialitÃ©
+Le site
+montpellier-municipales.fr
+s'engage Ã  respecter la vie privÃ©e de ses utilisateurs. Notre dÃ©marche est fondÃ©e sur la transparence et la minimisation des donnÃ©es.
+En tant que projet citoyen et bÃ©nÃ©vole, nous n'avons aucun intÃ©rÃªt commercial Ã  collecter vos donnÃ©es.
+Absence de collecte de donnÃ©es personnelles
+Nous ne collectons
+aucune donnÃ©e personnelle
+sur ce site.
+Pas de formulaire d'inscription :
+Vous n'avez pas besoin de crÃ©er un compte pour accÃ©der au contenu.
+Pas de newsletter :
+Nous ne conservons pas d'adresses e-mail.
+Pas de commentaires :
+Le site ne permet pas de poster des commentaires directement, Ã©vitant ainsi la collecte d'identifiants ou d'adresses IP.
+Cookies et traceurs
+Ce site n'utilise
+aucun cookie
+et
+aucun traceur
+(tracker).
+Pas de cookies publicitaires.
+Pas de cookies de rÃ©seaux sociaux.
+Pas d'outils de mesure d'audience
+(type Google Analytics, Matomo, etc.) qui dÃ©posent des cookies sur votre appareil.
+Vous pouvez naviguer sur l'ensemble du site sans Ãªtre pistÃ©.
+HÃ©bergement et journaux serveur
+Le site est hÃ©bergÃ© par
+Cloudflare Pages
+.
+Comme tout hÃ©bergeur, Cloudflare peut collecter techniquement des journaux de connexion (logs) standards (adresse IP, date de connexion, pages visitÃ©es) Ã  des fins de sÃ©curitÃ© et de maintenance du service (dÃ©tection d'attaques DDoS, etc.). Ces donnÃ©es ne sont pas exploitÃ©es par l'Ã©quipe Ã©ditoriale du site Ã  des fins de profilage ou de marketing.
+Pour plus d'informations, vous pouvez consulter la politique de confidentialitÃ© de Cloudflare :
+https://www.cloudflare.com/privacypolicy/
+Liens vers des sites tiers
+Le site peut contenir des liens vers d'autres sites web (sources officielles, articles de presse, sites des listes candidates).
+Si vous cliquez sur ces liens, vous quittez
+montpellier-municipales.fr
+. Nous n'avons aucun contrÃ´le sur ces sites externes, qui peuvent avoir leur propre politique de confidentialitÃ© et utiliser des cookies. Nous vous invitons Ã  consulter leurs mentions lÃ©gales respectives.
+Contact
+Pour toute question concernant cette politique de confidentialitÃ©, vous pouvez nous contacter Ã  :
+ð§
+contact@montpellier-municipales.fr
+DerniÃ¨re mise Ã  jour : 2026

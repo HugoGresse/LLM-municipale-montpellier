@@ -1,0 +1,1944 @@
+URL: https://montpellier-municipales.fr/budget/montpellier-metropole/2023/
+
+TITLE: Explorateur du Budget 2023
+
+DESCRIPTION: DÃ©tails du budget 2023 de Montpellier MÃ©diterranÃ©e MÃ©tropole.
+
+CONTENT:
+
+Explorateur du Budget 2023
+Plongez dans les dÃ©tails du budget et de la dette de Montpellier MÃ©diterranÃ©e MÃ©tropole.
+AnnÃ©e :
+2023
+2018
+2019
+2020
+2021
+2022
+2023
+2024
+2025
+Budget
+Dette
+Investissements
+Subventions
+AgrÃ©gation (Vue fonctionnelle)
+Vue dÃ©taillÃ©e (Toutes lignes)
+DÃ©pense
+Â Â Â Fonctionnement
+Â Â Â Â Â Â Autres charges de gestion courante
+Â Â Â Â Â Â Â Â Â Aides Ã  la personne
+Â Â Â Â Â Â Â Â Â Â Â Â Bourses, prix et secours
+Â Â Â Â Â Â Â Â Â Â Â Â Autres (primes, dots)
+Â Â Â Â Â Â Â Â Â IndemnitÃ©s
+Â Â Â Â Â Â Â Â Â Â Â Â IndemnitÃ©s, frais de mission et de formation des Ã©lus
+Â Â Â Â Â Â Â Â Â Pertes sur crÃ©ances irrÃ©couvrables
+Â Â Â Â Â Â Â Â Â Â Â Â CrÃ©ances admises en non-valeur
+Â Â Â Â Â Â Â Â Â Â Â Â CrÃ©ances Ã©teintes
+Â Â Â Â Â Â Â Â Â Contributions obligatoires
+Â Â Â Â Â Â Â Â Â Â Â Â Contributions Ã  des fonds
+Â Â Â Â Â Â Â Â Â Â Â Â Contributions communales et intercommunales obligatoires
+Â Â Â Â Â Â Â Â Â Â Â Â Autres contributions obligatoires
+Â Â Â Â Â Â Â Â Â Subventions
+Â Â Â Â Â Â Â Â Â Â Â Â Subventions de fonctionnement aux organismes publics
+Â Â Â Â Â Â Â Â Â Â Â Â Subventions de fonctionnement aux personnes, aux associations et aux autres organismes de droit privÃ©
+Â Â Â Â Â Â Â Â Â Â Â Â Remises gracieuses
+Â Â Â Â Â Â Â Â Â Charges diverses de gestion courante
+Â Â Â Â Â Â Â Â Â Â Â Â Redevances pour concessions, brevets, licences, procÃ©dÃ©s, droits et valeurs similaires
+Â Â Â Â Â Â Â Â Â Â Â Â IntÃ©rÃªts moratoires et pÃ©nalitÃ©s sur marchÃ©s
+Â Â Â Â Â Â Â Â Â Â Â Â Amendes fiscales et pÃ©nales
+Â Â Â Â Â Â Â Â Â Â Â Â Frais de fonctionnement des groupes dâÃ©lus
+Â Â Â Â Â Â Â Â Â Â Â Â Autres charges diverses de gestion courante
+Â Â Â Â Â Â Charges financiÃ¨res
+Â Â Â Â Â Â Â Â Â Charges d'intÃ©rÃªts
+Â Â Â Â Â Â Â Â Â Pertes de change sur crÃ©ances et dettes financiÃ¨res
+Â Â Â Â Â Â Â Â Â Autres charges financiÃ¨res
+Â Â Â Â Â Â Charges spÃ©cifiques
+Â Â Â Â Â Â Â Â Â Titres annulÃ©s (sur exercices antÃ©rieurs)
+Â Â Â Â Â Â Dotations aux provisions et dÃ©prÃ©ciations
+Â Â Â Â Â Â Â Â Â Dotations aux amortissements, aux dÃ©prÃ©ciations et aux provisions - Charges de fonctionnement
+Â Â Â Â Â Â Â Â Â Dotations aux amortissements, aux dÃ©prÃ©ciations et aux provisions - Charges financiÃ¨res
+Â Â Â Â Â Â Charges Ã  caractÃ¨re gÃ©nÃ©ral
+Â Â Â Â Â Â Â Â Â Achats
+Â Â Â Â Â Â Â Â Â Â Â Â Fournitures non stockables
+Â Â Â Â Â Â Â Â Â Â Â Â Fournitures non stockÃ©es
+Â Â Â Â Â Â Â Â Â Â Â Â Fournitures d'entretien et de petit Ã©quipement
+Â Â Â Â Â Â Â Â Â Â Â Â Fournitures administratives
+Â Â Â Â Â Â Â Â Â Â Â Â Livres, disques, cassettes... (bibliothÃ¨ques et mÃ©diathÃ¨ques)
+Â Â Â Â Â Â Â Â Â Â Â Â Fournitures scolaires
+Â Â Â Â Â Â Â Â Â Â Â Â Autres matiÃ¨res et fournitures
+Â Â Â Â Â Â Â Â Â Services extÃ©rieurs
+Â Â Â Â Â Â Â Â Â Â Â Â Contrats de prestations de services
+Â Â Â Â Â Â Â Â Â Â Â Â Redevances de crÃ©dit-bail
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â CrÃ©dit-bail mobilier
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â CrÃ©dit-bail immobilier
+Â Â Â Â Â Â Â Â Â Â Â Â Locations
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Locations immobiliÃ¨res
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Locations mobiliÃ¨res
+Â Â Â Â Â Â Â Â Â Â Â Â Charges locatives et de copropriÃ©tÃ©
+Â Â Â Â Â Â Â Â Â Â Â Â Entretien et rÃ©parations
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Entretien et rÃ©parations sur biens immobiliers
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Entretien et rÃ©parations sur biens mobiliers
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Maintenance
+Â Â Â Â Â Â Â Â Â Â Â Â Primes dâassurances
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Multirisques
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Assurance obligatoire dommage-construction
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres
+Â Â Â Â Â Â Â Â Â Â Â Â Ãtudes et recherches
+Â Â Â Â Â Â Â Â Â Â Â Â Divers
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Documentation gÃ©nÃ©rale et technique
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Versements Ã  des organismes de formation
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Frais de colloques et de sÃ©minaires
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres frais divers
+Â Â Â Â Â Â Â Â Â Â Â Â RÃ©munÃ©rations dâintermÃ©diaires et honoraires
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â IndemnitÃ©s au comptable et aux rÃ©gisseurs
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Honoraires
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Frais d'actes et de contentieux
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Divers
+Â Â Â Â Â Â Â Â Â Â Â Â PublicitÃ©, publications, relations publiques
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Annonces et insertions
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â FÃªtes et cÃ©rÃ©monies
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Foires et expositions
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â RÃ©ceptions
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Catalogues et imprimÃ©s et publications
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Divers
+Â Â Â Â Â Â Â Â Â Â Â Â Transports de biens et transports collectifs
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Transports de biens
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Transports de personnes extÃ©rieures Ã  la collectivitÃ©
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Transports collectifs du personnel
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Divers
+Â Â Â Â Â Â Â Â Â Â Â Â DÃ©placements et missions
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Voyages, dÃ©placements et missions
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Frais de dÃ©mÃ©nagement
+Â Â Â Â Â Â Â Â Â Â Â Â Frais postaux et frais de tÃ©lÃ©communications
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Frais d'affranchissement
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Frais de tÃ©lÃ©communications
+Â Â Â Â Â Â Â Â Â Â Â Â Services bancaires et assimilÃ©s
+Â Â Â Â Â Â Â Â Â Â Â Â Divers
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Concours divers (cotisations)
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Frais de gardiennage
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Frais de nettoyage des locaux
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Redevances pour services rendus
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Remboursements de frais
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres
+Â Â Â Â Â Â Â Â Â ImpÃ´ts et taxes versÃ©s
+Â Â Â Â Â Â Charges de personnel et frais assimilÃ©s
+Â Â Â Â Â Â Â Â Â Autres services extÃ©rieurs
+Â Â Â Â Â Â Â Â Â Â Â Â Personnel extÃ©rieur au service
+Â Â Â Â Â Â Â Â Â ImpÃ´ts, taxes et versements assimilÃ©s
+Â Â Â Â Â Â Â Â Â Â Â Â ImpÃ´ts, taxes et versements assimilÃ©s sur rÃ©munÃ©rations (autres organismes)
+Â Â Â Â Â Â Â Â Â Charges de personnel
+Â Â Â Â Â Â Â Â Â Â Â Â RÃ©munÃ©rations du personnel
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Personnel titulaire
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Assistantes maternelles
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Personnel non titulaire
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Personnel rÃ©munÃ©rÃ© Ã  la vacation
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â RÃ©munÃ©rations des apprentis
+Â Â Â Â Â Â Â Â Â Â Â Â Charges de sÃ©curitÃ© sociale et de prÃ©voyance
+Â Â Â Â Â Â Â Â Â Â Â Â Autres charges sociales
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Allocations de chÃ´mage
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â MÃ©decine du travail, pharmacie
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres charges sociales diverses
+Â Â Â Â Â Â Â Â Â Â Â Â Autres charges de personnel
+Â Â Â Â Â Â AttÃ©nuations de produits
+Â Â Â Â Â Â Â Â Â Produits des services, du domaine et ventes diverses
+Â Â Â Â Â Â Â Â Â Â Â Â Redevances et recettes d'utilisation du domaine
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres redevances et recettes
+Â Â Â Â Â Â Â Â Â ImpÃ´ts et taxes
+Â Â Â Â Â Â Â Â Â Â Â Â Reversements et restitutions sur impÃ´ts et taxes
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Reversements et restitutions sur fiscalitÃ© locale
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â PrÃ©lÃ¨vements pour reversements de fiscalitÃ©
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Reversements, restitutions et prÃ©lÃ¨vements divers
+Â Â Â Â Â Â Virement Ã  la section d'investissement
+Â Â Â Â Â Â OpÃ©rations d'ordre de transfert entre sections
+Â Â Â Â Â Â Â Â Â Charges spÃ©cifiques
+Â Â Â Â Â Â Â Â Â Â Â Â Valeurs comptables des immobilisations cÃ©dÃ©es
+Â Â Â Â Â Â Â Â Â Â Â Â Neutralisations et diffÃ©rences sur rÃ©alisations (positives)
+Â Â Â Â Â Â Â Â Â Dotations aux amortissements, aux dÃ©prÃ©ciations et aux provisions
+Â Â Â Â Â Â Â Â Â Â Â Â Dotations aux amortissements, aux dÃ©prÃ©ciations et aux provisions - Charges de fonctionnement
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Dotations aux amortissements des immobilisations incorporelles et corporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Dotations aux amortissements des charges de fonctionnement Ã  rÃ©partir
+Â Â Â Investissement
+Â Â Â Â Â Â Dotations, fonds divers et rÃ©serves
+Â Â Â Â Â Â Â Â Â RÃ©serves
+Â Â Â Â Â Â Subventions d'investissement perÃ§ues - Reversements
+Â Â Â Â Â Â Â Â Â Subventions dâinvestissement rattachÃ©es aux actifs amortissables
+Â Â Â Â Â Â Â Â Â Â Â Â Groupements de collectivitÃ©s et collectivitÃ©s Ã  statut particulier
+Â Â Â Â Â Â Â Â Â Â Â Â Autres
+Â Â Â Â Â Â Â Â Â Subventions dâinvestissement rattachÃ©es aux actifs non amortissables
+Â Â Â Â Â Â Â Â Â Â Â Â Etat et Ã©tablissements nationaux
+Â Â Â Â Â Â Â Â Â Â Â Â RÃ©gions
+Â Â Â Â Â Â Â Â Â Â Â Â DÃ©partements
+Â Â Â Â Â Â Â Â Â Â Â Â Communes
+Â Â Â Â Â Â Â Â Â Â Â Â 1328 Autres - 020 Adm gale de la collec
+Â Â Â Â Â Â Â Â Â Fonds affectÃ©s Ã  lâÃ©quipement non amortissable
+Â Â Â Â Â Â Emprunts et dettes assimilÃ©es
+Â Â Â Â Â Â Â Â Â Emprunts obligataires
+Â Â Â Â Â Â Â Â Â Emprunts auprÃ¨s des Ã©tablissements financiers
+Â Â Â Â Â Â Â Â Â DÃ©pÃ´ts et cautionnements reÃ§us
+Â Â Â Â Â Â Â Â Â Refinancement de dette
+Â Â Â Â Â Â Â Â Â Emprunts et dettes assortis de conditions particuliÃ¨res
+Â Â Â Â Â Â Â Â Â Autres emprunts et dettes assimilÃ©es
+Â Â Â Â Â Â Â Â Â Â Â Â Autres emprunts
+Â Â Â Â Â Â Â Â Â Â Â Â Autres dettes
+Â Â Â Â Â Â DÃ©penses d'Ã©quipement propres
+Â Â Â Â Â Â Â Â Â Frais dâÃ©tudes, dâÃ©laboration, de modifications et de rÃ©visions des documents dâurbanisme
+Â Â Â Â Â Â Â Â Â Frais dâÃ©tudes, de recherche et de dÃ©veloppement et frais dâinsertion
+Â Â Â Â Â Â Â Â Â Â Â Â Frais d'Ã©tudes
+Â Â Â Â Â Â Â Â Â Â Â Â Frais de recherche et de dÃ©veloppement
+Â Â Â Â Â Â Â Â Â Concessions et droits similaires, brevets, licences, marques, procÃ©dÃ©s, droits et valeurs similaires
+Â Â Â Â Â Â Â Â Â Autres immobilisations incorporelles
+Â Â Â Â Â Â Â Â Â Terrains
+Â Â Â Â Â Â Â Â Â Agencements et amÃ©nagements de terrains
+Â Â Â Â Â Â Â Â Â Constructions
+Â Â Â Â Â Â Â Â Â Installations, matÃ©riel et outillage techniques
+Â Â Â Â Â Â Â Â Â Biens historiques et culturels
+Â Â Â Â Â Â Â Â Â Immobilisations reÃ§ues au titre dâune mise Ã  disposition
+Â Â Â Â Â Â Â Â Â Autres immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Travaux en cours
+Â Â Â Â Â Â Â Â Â Avances versÃ©es
+Â Â Â Â Â Â OpÃ©rations financiÃ¨res hors dettes
+Â Â Â Â Â Â Â Â Â Autres crÃ©ances immobilisÃ©es
+Â Â Â Â Â Â Â Â Â Â Â Â CrÃ©ances sur des particuliers, autres personnes droit privÃ© - 020 Adm gale de la collec
+Â Â Â Â Â Â Â Â Â Titres de participation
+Â Â Â Â Â Â Â Â Â 266 - Autres formes de participation - 020 - Administration gÃ©nÃ©rale de la collectivitÃ©
+Â Â Â Â Â Â Â Â Â Versements restant Ã  effectuer sur titres de participation non libÃ©rÃ©s
+Â Â Â Â Â Â Â Â Â PrÃªts
+Â Â Â Â Â Â Â Â Â DÃ©pÃ´ts et cautionnements versÃ©s
+Â Â Â Â Â Â Â Â Â Autres crÃ©ances immobilisÃ©es
+Â Â Â Â Â Â Â Â Â Â Â Â CrÃ©ances pour avances en garanties d'emprunt - 01 OpÃ© non ventil
+Â Â Â Â Â Â Â Â Â Â Â Â Communes membres du GFP - 020 Adm gale de la collec
+Â Â Â Â Â Â Subventions d'Ã©quipement versÃ©es
+Â Â Â Â Â Â Â Â Â Subventions dâÃ©quipement aux organismes publics
+Â Â Â Â Â Â Â Â Â Subventions dâÃ©quipement aux personnes de droit privÃ©
+Â Â Â Â Â Â Â Â Â Attributions de compensation d'investissement
+Â Â Â Â Â Â Â Â Â Subventions d'Ã©quipements versÃ©es par acomptes
+Â Â Â Â Â Â Solde d'exÃ©cution de la section d'investissement reportÃ©
+Â Â Â Â Â Â OpÃ©rations d'ordre de transfert entre sections
+Â Â Â Â Â Â Â Â Â Subventions d'investissement
+Â Â Â Â Â Â Â Â Â Â Â Â Subventions dâinvestissement transfÃ©rÃ©es au compte de rÃ©sultat
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Subventions dâinvestissement rattachÃ©es aux actifs amortissables (Ã  subdiviser comme le compte 131)
+Â Â Â Â Â Â Â Â Â Emprunts et dettes assimilÃ©es
+Â Â Â Â Â Â Â Â Â Â Â Â Emprunts obligataires
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Emprunts obligataires
+Â Â Â Â Â Â Â Â Â Â Â Â Emprunts auprÃ¨s des Ã©tablissements financiers
+Â Â Â Â Â Â Â Â Â Neutralisations et rÃ©gularisations d'opÃ©rations
+Â Â Â Â Â Â Â Â Â Â Â Â Plus ou moins-values sur cessions dâimmobilisations
+Â Â Â Â Â Â Â Â Â Â Â Â Neutralisation des amortissements
+Â Â Â Â Â Â Â Â Â Immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Constructions
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â BÃ¢timents publics
+Â Â Â Â Â Â Â Â Â Immobilisations en cours
+Â Â Â Â Â Â Â Â Â Â Â Â Immobilisations corporelles en cours
+Â Â Â Â Â Â Â Â Â Participations et crÃ©ances rattachÃ©es Ã  des participations
+Â Â Â Â Â Â Â Â Â Â Â Â Titres de participation
+Â Â Â Â Â Â Â Â Â Amortissements des immobilisations
+Â Â Â Â Â Â Â Â Â Â Â Â Amortissements des immobilisations incorporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Frais dâÃ©tudes, de recherche et de dÃ©veloppement et frais dâinsertion
+Â Â Â Â Â Â Â Â Â Â Â Â Amortissements des immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Installations, matÃ©riel et outillage techniques
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Comptes de rÃ©gularisation
+Â Â Â Â Â Â Â Â Â Â Â Â Charges Ã  rÃ©partir sur plusieurs exercices
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Charges liÃ©es Ã  la crise sanitaire Covid-19
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Charges Ã  Ã©taler
+Â Â Â Â Â Â OpÃ©rations patrimoniales
+Â Â Â Â Â Â Â Â Â Immobilisations incorporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Frais dâÃ©tudes, de recherche et de dÃ©veloppement et frais dâinsertion
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Frais d'Ã©tudes
+Â Â Â Â Â Â Â Â Â Â Â Â Subventions dâÃ©quipement versÃ©es
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Subventions dâÃ©quipement en nature
+Â Â Â Â Â Â Â Â Â Immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Terrains
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Terrains nus
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Terrains amÃ©nagÃ©s autres que voirie
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Terrains bÃ¢tis
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Bois et forÃªts
+Â Â Â Â Â Â Â Â Â Â Â Â Constructions
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â BÃ¢timents publics
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â BÃ¢timents privÃ©s
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres constructions
+Â Â Â Â Â Â Â Â Â Â Â Â Autres immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres
+Â Â Â Â Â Â Â Â Â Immobilisations en cours
+Â Â Â Â Â Â Â Â Â Â Â Â Immobilisations corporelles en cours
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Agencements et amÃ©nagements de terrains
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Constructions
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Installations, matÃ©riel et outillage techniques
+Â Â Â Â Â Â Â Â Â Â Â Â Part investissement P.P.P.
+Â Â Â Â Â Â Â Â Â Â Â Â Avances versÃ©es sur commandes dâimmobilisations corporelles
+Â Â Â Â Â Â Â Â Â Participations et crÃ©ances rattachÃ©es Ã  des participations
+Â Â Â Â Â Â Â Â Â Â Â Â Titres de participation
+Â Â Â Â Â Â Â Â Â Autres immobilisations financiÃ¨res
+Â Â Â Â Â Â Â Â Â Â Â Â Autres crÃ©ances immobilisÃ©es
+Â Â Â Â Â Â Â Â Â ComptabilitÃ© distincte rattachÃ©e
+Â Â Â Â Â Â Â Â Â Â Â Â Travaux effectuÃ©s dâoffice pour le compte de tiers (Ã  subdiviser par opÃ©ration)
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Travaux exÃ©cutÃ©s dâoffice
+Â Â Â Â Â Â Â Â Â Â Â Â OpÃ©rations sous mandat (Ã  subdiviser par mandat)
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â DÃ©penses (Ã  subdiviser par mandat)
+Recette
+Â Â Â Fonctionnement
+Â Â Â Â Â Â Produits des services, du domaine et ventes diverses
+Â Â Â Â Â Â Â Â Â Ventes de produits finis
+Â Â Â Â Â Â Â Â Â Redevances et recettes d'utilisation du domaine
+Â Â Â Â Â Â Â Â Â Â Â Â Concessions et redevances funÃ©raires
+Â Â Â Â Â Â Â Â Â Â Â Â Droits de permis de stationnement et de location sur la voie publique, les riviÃ¨res, ports et quais fluviaux et autres lieux publics
+Â Â Â Â Â Â Â Â Â Â Â Â Autres redevances et recettes
+Â Â Â Â Â Â Â Â Â Travaux
+Â Â Â Â Â Â Â Â Â Ãtudes
+Â Â Â Â Â Â Â Â Â Prestations de services
+Â Â Â Â Â Â Â Â Â Â Â Â Redevances et droits des services Ã  caractÃ¨re culturel
+Â Â Â Â Â Â Â Â Â Â Â Â Redevances et droits des services Ã  caractÃ¨re sportif et de loisirs
+Â Â Â Â Â Â Â Â Â Â Â Â Taxes dâanalyse et de dÃ©sinfection
+Â Â Â Â Â Â Â Â Â Â Â Â Redevances et droits des services Ã  caractÃ¨re social
+Â Â Â Â Â Â Â Â Â Â Â Â Redevances et droits des services pÃ©riscolaires et d'enseignement
+Â Â Â Â Â Â Â Â Â Â Â Â Autres redevances et droits
+Â Â Â Â Â Â Â Â Â Ventes de marchandises
+Â Â Â Â Â Â Â Â Â Autres produits
+Â Â Â Â Â Â Â Â Â Â Â Â Locations diverses (autres qu'immeubles)
+Â Â Â Â Â Â Â Â Â Â Â Â Mise Ã  disposition de personnel facturÃ©e
+Â Â Â Â Â Â Â Â Â Â Â Â Remboursements de frais
+Â Â Â Â Â Â Â Â Â Â Â Â Autres produits d'activitÃ©s annexes (abonnements et ventes d'ouvrages...)
+Â Â Â Â Â Â ImpÃ´ts et taxes
+Â Â Â Â Â Â Â Â Â FiscalitÃ© locale
+Â Â Â Â Â Â Â Â Â Â Â Â Contributions directes
+Â Â Â Â Â Â Â Â Â Â Â Â PublicitÃ© fonciÃ¨re et droit dâenregistrement
+Â Â Â Â Â Â Â Â Â Â Â Â Taxes liÃ©es Ã  lâurbanisation, aux dÃ©chets et Ã  lâenvironnement
+Â Â Â Â Â Â Â Â Â Â Â Â ImpÃ´ts et taxes liÃ©s Ã  la production et Ã  la consommation Ã©nergÃ©tiques et industrielles
+Â Â Â Â Â Â Â Â Â Â Â Â Taxes liÃ©es aux transports, aux vÃ©hicules et aux droits de stationnement
+Â Â Â Â Â Â Â Â Â Â Â Â ImpÃ´ts et taxes spÃ©cifiques liÃ©s Ã  des activitÃ©s de services
+Â Â Â Â Â Â Â Â Â Â Â Â Autres
+Â Â Â Â Â Â Â Â Â FiscalitÃ© reversÃ©e
+Â Â Â Â Â Â Â Â Â Â Â Â FiscalitÃ© reversÃ©e entre collectivitÃ©s locales
+Â Â Â Â Â Â Dotations et participations
+Â Â Â Â Â Â Â Â Â D.G.F.
+Â Â Â Â Â Â Â Â Â Â Â Â DGF des communes et des Ã©tablissements publics de coopÃ©ration intercommunale (EPCI)
+Â Â Â Â Â Â Â Â Â Â Â Â DGF des permanents syndicaux
+Â Â Â Â Â Â Â Â Â Dotation spÃ©ciale au titre des instituteurs (DSI)
+Â Â Â Â Â Â Â Â Â FCTVA
+Â Â Â Â Â Â Â Â Â Dotation gÃ©nÃ©rale de dÃ©centralisation
+Â Â Â Â Â Â Â Â Â Â Â Â DGD des communes et EPCI
+Â Â Â Â Â Â Â Â Â Participations
+Â Â Â Â Â Â Â Â Â Â Â Â Ãtat
+Â Â Â Â Â Â Â Â Â Â Â Â RÃ©gions
+Â Â Â Â Â Â Â Â Â Â Â Â DÃ©partements
+Â Â Â Â Â Â Â Â Â Â Â Â Communes
+Â Â Â Â Â Â Â Â Â Â Â Â Groupements de collectivitÃ©s, collectivitÃ©s Ã  statut particulier et Ã©tablissements publics
+Â Â Â Â Â Â Â Â Â Â Â Â Fonds europÃ©ens
+Â Â Â Â Â Â Â Â Â Â Â Â Autres organismes
+Â Â Â Â Â Â Â Â Â Compensations, attributions et autres participations
+Â Â Â Â Â Â Â Â Â Â Â Â Compensation pour perte de taxe additionnelle aux droits d'enregistrement ou la taxe de publicitÃ© fonciÃ¨re
+Â Â Â Â Â Â Â Â Â Â Â Â Attributions de pÃ©rÃ©quation et de compensation
+Â Â Â Â Â Â Â Â Â Â Â Â Dotation pour les titres sÃ©curisÃ©s
+Â Â Â Â Â Â Â Â Â Â Â Â Autres attributions et participations
+Â Â Â Â Â Â Autres produits de gestion courante
+Â Â Â Â Â Â Â Â Â Revenus des immeubles
+Â Â Â Â Â Â Â Â Â DÃ©dits et pÃ©nalitÃ©s perÃ§us
+Â Â Â Â Â Â Â Â Â LibÃ©ralitÃ©s reÃ§ues
+Â Â Â Â Â Â Â Â Â Subventions
+Â Â Â Â Â Â Â Â Â Produits divers de gestion courante
+Â Â Â Â Â Â Â Â Â Â Â Â Redevances
+Â Â Â Â Â Â Â Â Â Â Â Â Recouvrement sur crÃ©ances admises en non valeur (*)
+Â Â Â Â Â Â Â Â Â Â Â Â ExcÃ©dents reversÃ©s par les rÃ©gies Ã  caractÃ¨re industriel et commercial
+Â Â Â Â Â Â Â Â Â Â Â Â Autres produits divers de gestion courante
+Â Â Â Â Â Â Produits financiers
+Â Â Â Â Â Â Â Â Â Produits de participations
+Â Â Â Â Â Â Â Â Â Produits des autres immobilisations financiÃ¨res
+Â Â Â Â Â Â Â Â Â Â Â Â Remboursements dâintÃ©rÃªts dâemprunts transfÃ©rÃ©s
+Â Â Â Â Â Â Â Â Â Gains de change sur crÃ©ances et dettes financiÃ¨res
+Â Â Â Â Â Â Â Â Â Autres produits financiers
+Â Â Â Â Â Â Produits spÃ©cifiques
+Â Â Â Â Â Â Â Â Â Mandats annulÃ©s (sur exercices antÃ©rieurs) ou atteints par la dÃ©chÃ©ance quadriennale
+Â Â Â Â Â Â Â Â Â Produits des cessions d'immobilisations
+Â Â Â Â Â Â Reprises sur amortissements, dÃ©prÃ©ciations et provisions
+Â Â Â Â Â Â Â Â Â Reprises sur amortissements, dÃ©prÃ©ciations et provisions (Ã  inscrire dans les produits de fonctionnement
+Â Â Â Â Â Â RÃ©sultat de fonctionnement reportÃ©
+Â Â Â Â Â Â AttÃ©nuations de charges
+Â Â Â Â Â Â Â Â Â Charges de personnel
+Â Â Â Â Â Â Â Â Â Â Â Â RÃ©munÃ©rations du personnel
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Remboursements sur rÃ©munÃ©rations du personnel
+Â Â Â Â Â Â Â Â Â Â Â Â Charges de sÃ©curitÃ© sociale et de prÃ©voyance
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Remboursement sur charges de sÃ©curitÃ© sociale et de prÃ©voyance
+Â Â Â Â Â Â AttÃ©nuations de produits
+Â Â Â Â Â Â Â Â Â ImpÃ´ts et taxes
+Â Â Â Â Â Â Â Â Â Â Â Â Reversements et restitutions sur impÃ´ts et taxes
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Reversements, restitutions et prÃ©lÃ¨vements divers
+Â Â Â Â Â Â OpÃ©rations d'ordre de transfert entre sections
+Â Â Â Â Â Â Â Â Â Production immobilisÃ©e
+Â Â Â Â Â Â Â Â Â Â Â Â Immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Autres produits de gestion courante
+Â Â Â Â Â Â Â Â Â Â Â Â Produits divers de gestion courante
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres produits divers de gestion courante
+Â Â Â Â Â Â Â Â Â Produits spÃ©cifiques
+Â Â Â Â Â Â Â Â Â Â Â Â DiffÃ©rences sur rÃ©alisations (nÃ©gatives) reprises au compte de rÃ©sultat
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â DiffÃ©rences sur rÃ©alisations (nÃ©gatives) reprises au compte de rÃ©sultat
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Neutralisation des amortissements, dÃ©prÃ©ciations et provisions
+Â Â Â Â Â Â Â Â Â Â Â Â Recettes et quote-part des subventions d'investissement transfÃ©rÃ©es au compte de rÃ©sultat
+Â Â Â Â Â Â Â Â Â Reprises sur amortissements, dÃ©prÃ©ciations et provisions
+Â Â Â Â Â Â Â Â Â Â Â Â Reprises sur amortissements, dÃ©prÃ©ciations et provisions (Ã  inscrire dans les produits de fonctionnement
+Â Â Â Â Â Â Â Â Â Transferts de charges
+Â Â Â Â Â Â Â Â Â Â Â Â Transferts de charges de fonctionnement
+Â Â Â Investissement
+Â Â Â Â Â Â Dotations, fonds divers et rÃ©serves
+Â Â Â Â Â Â Â Â Â Dotations et fonds dâinvestissement
+Â Â Â Â Â Â Â Â Â Â Â Â Fonds d'investissement
+Â Â Â Â Â Â Â Â Â Â Â Â Dons et legs en capital
+Â Â Â Â Â Â Â Â Â RÃ©serves
+Â Â Â Â Â Â Subventions d'investissement
+Â Â Â Â Â Â Â Â Â Subventions dâinvestissement rattachÃ©es aux actifs amortissables
+Â Â Â Â Â Â Â Â Â Â Â Â Etat et Ã©tablissements nationaux
+Â Â Â Â Â Â Â Â Â Â Â Â RÃ©gions
+Â Â Â Â Â Â Â Â Â Â Â Â DÃ©partements
+Â Â Â Â Â Â Â Â Â Â Â Â Groupements de collectivitÃ©s et collectivitÃ©s Ã  statut particulier
+Â Â Â Â Â Â Â Â Â Â Â Â Autres Ã©tablissements publics locaux
+Â Â Â Â Â Â Â Â Â Â Â Â Fonds europÃ©ens
+Â Â Â Â Â Â Â Â Â Â Â Â Autres
+Â Â Â Â Â Â Â Â Â Subventions dâinvestissement rattachÃ©es aux actifs non amortissables
+Â Â Â Â Â Â Â Â Â Â Â Â Etat et Ã©tablissements nationaux
+Â Â Â Â Â Â Â Â Â Â Â Â RÃ©gions
+Â Â Â Â Â Â Â Â Â Â Â Â DÃ©partements
+Â Â Â Â Â Â Â Â Â Â Â Â Communes
+Â Â Â Â Â Â Â Â Â Â Â Â Groupements de collectivitÃ©s et collectivitÃ©s Ã  statut particulier
+Â Â Â Â Â Â Â Â Â Â Â Â Autres Ã©tablissements publics locaux
+Â Â Â Â Â Â Â Â Â Â Â Â Fonds europÃ©ens
+Â Â Â Â Â Â Â Â Â Â Â Â Autres
+Â Â Â Â Â Â Â Â Â Fonds affectÃ©s Ã  lâÃ©quipement amortissable
+Â Â Â Â Â Â Â Â Â Fonds affectÃ©s Ã  lâÃ©quipement non amortissable
+Â Â Â Â Â Â Emprunts et dettes assimilÃ©es
+Â Â Â Â Â Â Â Â Â Emprunts auprÃ¨s des Ã©tablissements financiers
+Â Â Â Â Â Â Â Â Â DÃ©pÃ´ts et cautionnements reÃ§us
+Â Â Â Â Â Â Â Â Â Refinancement de dette
+Â Â Â Â Â Â Â Â Â Autres emprunts et dettes assimilÃ©es
+Â Â Â Â Â Â Â Â Â Â Â Â Autres emprunts
+Â Â Â Â Â Â Â Â Â Â Â Â Autres dettes
+Â Â Â Â Â Â DÃ©penses d'Ã©quipement propres
+Â Â Â Â Â Â Â Â Â Frais dâÃ©tudes, de recherche et de dÃ©veloppement et frais dâinsertion
+Â Â Â Â Â Â Â Â Â Â Â Â Frais d'Ã©tudes
+Â Â Â Â Â Â Â Â Â Concessions et droits similaires, brevets, licences, marques, procÃ©dÃ©s, droits et valeurs similaires
+Â Â Â Â Â Â Â Â Â Constructions
+Â Â Â Â Â Â Â Â Â Installations, matÃ©riel et outillage techniques
+Â Â Â Â Â Â Â Â Â Autres immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Avances versÃ©es sur commandes dâimmobilisations corporelles
+Â Â Â Â Â Â Â Â Â Travaux en cours
+Â Â Â Â Â Â OpÃ©rations financiÃ¨res hors dettes
+Â Â Â Â Â Â Â Â Â Titres de participation
+Â Â Â Â Â Â Â Â Â Versements restant Ã  effectuer sur titres de participation non libÃ©rÃ©s
+Â Â Â Â Â Â Â Â Â PrÃªts
+Â Â Â Â Â Â Â Â Â DÃ©pÃ´ts et cautionnements versÃ©s
+Â Â Â Â Â Â Â Â Â Autres crÃ©ances immobilisÃ©es
+Â Â Â Â Â Â Â Â Â Â Â Â CrÃ©ances pour avances en garanties d'emprunt - 01 OpÃ© non ventil
+Â Â Â Â Â Â Â Â Â Â Â Â CrÃ©ances sur transfert de droits Ã  dÃ©duction de TVA - 325 Autres Ã©quip sportif ou de loisirs
+Â Â Â Â Â Â Â Â Â Â Â Â Communes membres du GFP - 020 Adm gale de la collec
+Â Â Â Â Â Â Â Â Â Â Â Â CrÃ©ances sur des particuliers, autres personnes droit privÃ© - 020 Adm gale de la collec
+Â Â Â Â Â Â Subventions d'Ã©quipement versÃ©es
+Â Â Â Â Â Â Â Â Â Subventions dâÃ©quipement aux organismes publics
+Â Â Â Â Â Â Â Â Â Subventions dâÃ©quipement aux personnes de droit privÃ©
+Â Â Â Â Â Â Solde d'exÃ©cution de la section d'investissement reportÃ©
+Â Â Â Â Â Â Virement de la section de fonctionnement
+Â Â Â Â Â Â Produits des cessions d'immobilisations
+Â Â Â Â Â Â OpÃ©rations d'ordre de transfert entre sections
+Â Â Â Â Â Â Â Â Â Neutralisations et rÃ©gularisations d'opÃ©rations
+Â Â Â Â Â Â Â Â Â Â Â Â Plus ou moins-values sur cessions dâimmobilisations
+Â Â Â Â Â Â Â Â Â Immobilisations incorporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Autres immobilisations incorporelles
+Â Â Â Â Â Â Â Â Â Immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Terrains
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Terrains nus
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Terrains amÃ©nagÃ©s autres que voirie
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Terrains bÃ¢tis
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres terrains
+Â Â Â Â Â Â Â Â Â Â Â Â Agencements et amÃ©nagements de terrains
+Â Â Â Â Â Â Â Â Â Â Â Â Constructions
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â BÃ¢timents publics
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â BÃ¢timents privÃ©s
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres constructions
+Â Â Â Â Â Â Â Â Â Â Â Â Installations, matÃ©riel et outillage techniques
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â RÃ©seaux divers
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â MatÃ©riel et outillage technique
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres installations, matÃ©riel et outillage techniques
+Â Â Â Â Â Â Â Â Â Â Â Â Autres immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â MatÃ©riel de transport
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â MatÃ©riel de bureau et mobilier
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Cheptel
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres
+Â Â Â Â Â Â Â Â Â Participations et crÃ©ances rattachÃ©es Ã  des participations
+Â Â Â Â Â Â Â Â Â Â Â Â Titres de participation
+Â Â Â Â Â Â Â Â Â Amortissements des immobilisations
+Â Â Â Â Â Â Â Â Â Â Â Â Amortissements des immobilisations incorporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Frais d'Ã©tudes, d'Ã©laboration, de modifications et de rÃ©visions des documents d'urbanisme
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Frais dâÃ©tudes, de recherche et de dÃ©veloppement et frais dâinsertion
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Subventions dâÃ©quipement versÃ©es
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Concessions et droits similaires, brevets, licences, droits et valeurs similaires
+Â Â Â Â Â Â Â Â Â Â Â Â Amortissements des immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Agencements et amÃ©nagements de terrains
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Constructions
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Installations, matÃ©riel et outillage techniques
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Comptes de rÃ©gularisation
+Â Â Â Â Â Â Â Â Â Â Â Â Charges Ã  rÃ©partir sur plusieurs exercices
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Charges liÃ©es Ã  la crise sanitaire Covid-19
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Charges Ã  Ã©taler
+Â Â Â Â Â Â OpÃ©rations patrimoniales
+Â Â Â Â Â Â Â Â Â Dotations, fonds divers et rÃ©serves
+Â Â Â Â Â Â Â Â Â Â Â Â Dotations et fonds dâinvestissement
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Dons et legs en capital
+Â Â Â Â Â Â Â Â Â Subventions d'investissement
+Â Â Â Â Â Â Â Â Â Â Â Â Subventions dâinvestissement rattachÃ©es aux actifs amortissables
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Communes
+Â Â Â Â Â Â Â Â Â Â Â Â Subventions dâinvestissement rattachÃ©es aux actifs non amortissables
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â RÃ©gions
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Communes
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres Ã©tablissements publics locaux
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres
+Â Â Â Â Â Â Â Â Â Immobilisations incorporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Frais dâÃ©tudes, de recherche et de dÃ©veloppement et frais dâinsertion
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Frais d'Ã©tudes
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Frais de recherche et de dÃ©veloppement
+Â Â Â Â Â Â Â Â Â Â Â Â Subventions dâÃ©quipement versÃ©es
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Subventions dâÃ©quipement en nature
+Â Â Â Â Â Â Â Â Â Immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Terrains
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Terrains nus
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Terrains de voirie
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Terrains amÃ©nagÃ©s autres que voirie
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Terrains bÃ¢tis
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres terrains
+Â Â Â Â Â Â Â Â Â Â Â Â Constructions
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â BÃ¢timents publics
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â BÃ¢timents privÃ©s
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Autres constructions
+Â Â Â Â Â Â Â Â Â Â Â Â Autres immobilisations corporelles
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â MatÃ©riel de transport
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â MatÃ©riel informatique
+Â Â Â Â Â Â Â Â Â Immobilisations en cours
+Â Â Â Â Â Â Â Â Â Â Â Â Immobilisations corporelles en cours
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Constructions
+Â Â Â Â Â Â Â Â Â Â Â Â Avances versÃ©es sur commandes dâimmobilisations corporelles
+Â Â Â Â Â Â Â Â Â Participations et crÃ©ances rattachÃ©es Ã  des participations
+Â Â Â Â Â Â Â Â Â Â Â Â Versements restant Ã  effectuer sur titres de participation non libÃ©rÃ©s
+Â Â Â Â Â Â Â Â Â ComptabilitÃ© distincte rattachÃ©e
+Â Â Â Â Â Â Â Â Â Â Â Â Travaux effectuÃ©s dâoffice pour le compte de tiers (Ã  subdiviser par opÃ©ration)
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Travaux exÃ©cutÃ©s dâoffice
+Â Â Â Â Â Â Â Â Â Â Â Â OpÃ©rations sous mandat (Ã  subdiviser par mandat)
+Â Â Â Â Â Â Â Â Â Â Â Â Â Â Â Recettes (Ã  subdiviser par mandat)
+Sens
+Tous
+Tous
+DÃ©penses
+Recettes
+Budget
+Tous
+Tous
+Principal
+Parking
+Assainissement
+Eau
+Transport
+SPANC
+Chapitre (Nature)
+Tous les chapitres
+Tous les chapitres
+10 - DOTATIONS, FONDS DIVERS ET RÃSERVES
+13 - SUBVENTIONS DâINVESTISSEMENT
+16 - EMPRUNTS ET DETTES ASSIMILÃES
+20 - IMMOBILISATIONS INCORPORELLES
+21 - IMMOBILISATIONS CORPORELLES
+23 - IMMOBILISATIONS EN COURS
+26 - PARTICIPATIONS ET CRÃANCES RATTACHÃES A DES PARTICIPATIONS
+27 - AUTRES IMMOBILISATIONS FINANCIÃRES
+28 - AMORTISSEMENTS DES IMMOBILISATIONS
+60 - ACHATS ET VARIATION DES STOCKS
+61 - SERVICES EXTÃRIEURS
+62 - AUTRES SERVICES EXTÃRIEURS
+63 - IMPÃTS, TAXES ET VERSEMENTS ASSIMILÃS
+64 - CHARGES DE PERSONNEL
+65 - AUTRES CHARGES DE GESTION COURANTE
+66 - CHARGES FINANCIÃRES
+67 - CHARGES SPECIFIQUES
+68 - DOTATIONS AUX AMORTISSEMENTS, DÃPRÃCIATIONS ET PROVISIONS
+70 - PRODUITS DES SERVICES DU DOMAINE ET VENTES DIVERSES
+73 - IMPÃTS ET TAXES
+74 - DOTATIONS ET PARTICIPATIONS
+75 - AUTRES PRODUITS DE GESTION COURANTE
+76 - PRODUITS FINANCIERS
+77 - PRODUITS SPÃCIFIQUES
+Investissement (APCP)
+Choisir un programme...
+Tous les programmes
+POURSUITE LIGNE 5 DE TRAMWAY
+386â¯668â¯229Â â¬ â¢ Clapiers, Montferrier-sur-Lez, Montpellier, Saint-Jean-de-VÃ©das
+REALISATION 5 LIGNES BUSTRAM
+306â¯000â¯000Â â¬ â¢ Castelnau-le-Lez, Castries, Cournonsec, Cournonterral, FabrÃ¨gues, Grabels, LavÃ©rune, Le CrÃ¨s, Montpellier, Pignan, Saint-Jean-de-VÃ©das, Vendargues
+MATERIEL ROULANT TRAMWAY
+180â¯000â¯000Â â¬ â¢ Clapiers, Montferrier-sur-Lez, Montpellier, Saint-Jean-de-VÃ©das
+NPRU MOSSON
+97â¯212â¯500Â â¬ â¢ Montpellier
+2015 APDI 7
+95â¯269â¯568Â â¬
+2011 APDI 7
+80â¯838â¯298Â â¬
+NOUVEAU DEPOT TRANSPORTS MOBILITES
+60â¯000â¯000Â â¬
+POURSUITE EXTENSION L1 TRAMWAY
+46â¯916â¯508Â â¬
+CITE DES ARTS
+46â¯905â¯167Â â¬ â¢ Montpellier
+CimetiÃ¨re intercommunal
+44â¯400â¯000Â â¬
+COEUR DE METROPOLE COMEDIE ESPLANADE TRIANGLE
+39â¯400â¯000Â â¬ â¢ Montpellier
+ESPACES PUBLICS LIGNE 5
+33â¯371â¯040Â â¬ â¢ Clapiers, Montferrier-sur-Lez, Montpellier, Saint-Jean-de-VÃ©das
+APDI 7
+33â¯298â¯645Â â¬
+APDI 7
+31â¯254â¯605Â â¬
+2012 APDI 7
+28â¯891â¯327Â â¬
+APDI 7
+27â¯942â¯659Â â¬
+NPRU CEVENNES
+27â¯325â¯600Â â¬ â¢ Montpellier
+DOUBLEMENT LIGNE 3 TRAMWAY
+25â¯608â¯024Â â¬ â¢ Montpellier
+APDI 7
+25â¯268â¯279Â â¬
+2010 APDI 7
+23â¯671â¯102Â â¬
+HOTEL MONTCALM &#8211; MOCO
+22â¯500â¯000Â â¬ â¢ Montpellier
+AIRES D ACCUEIL DES GENS DU VOYAGE
+22â¯000â¯000Â â¬
+APDI 7
+20â¯558â¯351Â â¬
+APDI 99
+20â¯175â¯396Â â¬
+CPER ESRI 2023-2027
+19â¯100â¯000Â â¬
+SCHEMA DIRECTEUR DES SYS D INFORMATION
+18â¯389â¯200Â â¬
+COEUR DE METROPOLE FOCH PEYROU ARCEAUX
+17â¯720â¯000Â â¬ â¢ Montpellier
+SUR FONDS PROPRES
+16â¯800â¯000Â â¬
+GUICHET UNIQUE - RENOV ENERGIE
+16â¯641â¯500Â â¬
+APDI 7
+16â¯189â¯265Â â¬ â¢ Baillargues
+APDI 99
+14â¯240â¯000Â â¬
+APDI 99
+13â¯870â¯448Â â¬ â¢ Montpellier
+RESEAUX LIGNE 5
+13â¯855â¯200Â â¬ â¢ Clapiers, Montferrier-sur-Lez, Montpellier, Saint-Jean-de-VÃ©das
+2010 APDI 8
+12â¯160â¯236Â â¬
+EMBELLISS ENFOUISSEMENT LHT
+12â¯043â¯794Â â¬
+APDI 99
+11â¯803â¯080Â â¬
+APDI 7
+11â¯769â¯038Â â¬
+FRANCHISSEMENT A709
+11â¯701â¯797Â â¬
+FLOTTE DE VEHICULES DECARBONES
+11â¯550â¯000Â â¬
+CAMBACERES PARTICIPATION CONCEDANT
+10â¯930â¯000Â â¬ â¢ Montpellier
+POURSUITE ACQUISITION DE NAVETTES ET BUS
+10â¯677â¯262Â â¬
+APDI 7
+10â¯260â¯267Â â¬
+FONDS D EQUIPEMENTS COMMUNES
+10â¯000â¯000Â â¬
+APDI 99
+9â¯313â¯207Â â¬
+MANDAT REQUALIFICATION LAUZE EST
+9â¯167â¯971Â â¬
+BAILLARGUES ALLEE ALLUVIALE
+8â¯500â¯000Â â¬ â¢ Baillargues
+LATTARA CREATION CENTRE CONSERVATION ET ETUDES
+8â¯127â¯236Â â¬ â¢ Lattes
+SOUTIEN PATRIMONIAL AUX COMMUNES
+8â¯000â¯000Â â¬
+LATTARA PARCOURS PEDAGOGIQUE
+7â¯139â¯000Â â¬ â¢ Lattes
+APDI 99
+7â¯110â¯000Â â¬
+APDI 10
+6â¯708â¯001Â â¬ â¢ Montpellier
+POURSUITE SCHEMA DIRECTEUR ACCESSIBILITE MOBILITES
+6â¯250â¯000Â â¬
+APDI 7
+6â¯231â¯442Â â¬
+ECOCITE EN 905
+6â¯013â¯000Â â¬
+REHABILITATION PISCINE JARROUSSE
+5â¯980â¯000Â â¬ â¢ Montpellier
+2011 APDI 6
+5â¯812â¯903Â â¬
+APDI 99
+5â¯449â¯524Â â¬
+2014 APDI 3
+5â¯349â¯718Â â¬
+HALLE FRENCH TECH CAMBACERES
+5â¯320â¯000Â â¬
+SDH RIEUTORD MONTPELLIER
+5â¯200â¯000Â â¬ â¢ Montpellier
+REPRISE CHAUSSEES RM66
+5â¯150â¯000Â â¬
+APDI 7
+5â¯134â¯405Â â¬
+APDI 99
+4â¯915â¯000Â â¬
+FONDS DE CAPITAL-RISQUE
+4â¯600â¯000Â â¬
+APDI 99
+4â¯300â¯000Â â¬
+CONCESSION LAUZE EST
+4â¯206â¯000Â â¬
+REHABILITATION PISCINE TARIS
+4â¯130â¯000Â â¬
+RESSOURCERIES
+4â¯000â¯000Â â¬
+TRAVAUX RD5 COURNONSEC
+3â¯900â¯000Â â¬ â¢ Cournonsec
+APDI 99
+3â¯810â¯434Â â¬
+APDI 7
+3â¯604â¯532Â â¬
+FONDS D AIDE AUX ICC
+3â¯600â¯000Â â¬
+APDI 99
+3â¯590â¯000Â â¬
+APDI 7
+3â¯506â¯103Â â¬
+ACQ FONCIERE DEMOLITION DE LA TOUR D ASSAS
+3â¯252â¯000Â â¬ â¢ Montpellier
+QUARTIER HOPITAUX - HORTUS BAUMEL
+2â¯980â¯800Â â¬
+Mise Ã  niveau parc vÃ©hicules
+2â¯775â¯146Â â¬
+AMELIORATION DE LA SECURITE ROUTIERE RD 986 SUD
+2â¯700â¯000Â â¬
+ORGANISME FONCIER SOLIDAIRE
+2â¯700â¯000Â â¬
+APDI 99
+2â¯554â¯043Â â¬
+DERNIERE PHASE USINE METHANISATION
+2â¯475â¯962Â â¬
+PAPI OR PROTECTION CABANES PEROLS
+2â¯400â¯000Â â¬ â¢ PÃ©rols
+CONCESSION CHARLES MARTEL EXTENSION
+2â¯370â¯000Â â¬
+TRAVERSE DE SUSSARGUES
+2â¯300â¯000Â â¬ â¢ Sussargues
+JALONNEMENT TOURISTIQUE
+2â¯280â¯000Â â¬
+MTP POMPIGNANE CONFORTEMENT BERGES LEZ
+2â¯100â¯000Â â¬ â¢ Pignan
+RD612 AMENAGEMENT ENTREE OUEST
+2â¯030â¯000Â â¬
+VEGETALISATION DE LA METROPOLE
+2â¯000â¯000Â â¬
+CONCESSION DASSAULT 2EME EXT
+1â¯999â¯540Â â¬
+PAPI 2 LEZ JUVIGNAC
+1â¯917â¯102Â â¬ â¢ Juvignac
+DESSERTE DE L ARENA SDF LEVADES
+1â¯826â¯000Â â¬
+RD613 RD24E2 GIR ET BARREAU ZAC
+1â¯800â¯000Â â¬
+PARC D&#8217;ACTIVITE MIJOULAN
+1â¯791â¯434Â â¬
+2014 APDI 4
+1â¯776â¯609Â â¬ â¢ Montpellier
+TRAVERSE DE RESTINCLIERES
+1â¯760â¯000Â â¬ â¢ RestincliÃ¨res
+RM5 CREATION GIRATOIRE PIGNAN
+1â¯760â¯000Â â¬ â¢ Pignan
+PLAN DE SAUVEGARDE CEVENNES
+1â¯715â¯000Â â¬ â¢ Montpellier
+APDI 99
+1â¯676â¯885Â â¬
+AmÃ©nagement av Nimes St-Bres
+1â¯620â¯000Â â¬
+ACQUISITION INSTRUMENTS MUSIQUE
+1â¯600â¯000Â â¬
+LAVERUNE PRAIRIES ALLUVIALES
+1â¯600â¯000Â â¬ â¢ LavÃ©rune
+TRANSITION ENERGETIQUE DU PATRIMOINE METROPOLITAIN
+1â¯506â¯825Â â¬
+REPRISE DES RAMPES EST
+1â¯506â¯000Â â¬
+NOUVEAU MANDAT PAE
+1â¯500â¯000Â â¬
+RENOV FACADES OPERA COMEDIE
+1â¯280â¯000Â â¬ â¢ Montpellier
+OPAH COPROS DEGRADEES MOSSON
+1â¯215â¯000Â â¬ â¢ Montpellier
+RM610 AMGT URBAIN TRAVERSEE DE VENDARGUES
+1â¯208â¯000Â â¬ â¢ Vendargues
+AMELIORATION DE LA SECURITE
+1â¯200â¯000Â â¬
+M185/185E4 GIRATOIRE VILLENEUVE LES MAGUELONE
+1â¯100â¯000Â â¬ â¢ Villeneuve-lÃ¨s-Maguelone
+MANDAT REQUALIFICATION PAE
+1â¯073â¯060Â â¬
+OA RM62 GRAU DE PEROLS
+1â¯030â¯000Â â¬ â¢ PÃ©rols
+PRESERVATION DU LITORAL
+1â¯000â¯000Â â¬
+AMENAGEMENT PDU EN 908
+479â¯000Â â¬
+MOBILITES ACTIVES MGB
+100â¯000Â â¬
+ANNULATIONS DE MANDATS
+0Â â¬
+Recherche
+Type
+â
+Budget
+â
+Nature / Compte
+â
+AgrÃ©gation
+Fonction
+â
+Montant VotÃ©
+â
+RÃ©alisÃ© â¼
+Recette
+Principal
+EMPRUNTS EN EUROS
+Code: 1641
+Emprunts auprÃ¨s des Ã©tablissements financiers
+Fonction en rÃ©serve
+Code: 923
+0Â â¬
+233â¯600â¯000Â â¬
+Recette
+Principal
+ExcÃ©dents de fonctionnement capitalisÃ©s
+Code: 1068
+RÃ©serves
+Fonction en rÃ©serve
+Code: 922
+0Â â¬
+129â¯073â¯842Â â¬
+DÃ©pense
+Principal
+001
+Code: 001
+Solde d'exÃ©cution de la section d'investissement reportÃ©
+-
+0Â â¬
+127â¯693â¯320Â â¬
+Recette
+Principal
+FiscalitÃ© locale
+Code: 73156
+-
+Services communs
+Code: 93820
+0Â â¬
+116â¯273â¯790Â â¬
+DÃ©pense
+Principal
+Entreprises
+Code: 65742
+Subventions de fonctionnement aux personnes, aux associations et aux autres organismes de droit privÃ©
+Services communs
+Code: 93820
+0Â â¬
+104â¯878â¯942Â â¬
+Recette
+Principal
+IMPÃTS ET TAXES
+Code: 7351
+-
+Fonction en rÃ©serve
+Code: 940
+0Â â¬
+104â¯544â¯714Â â¬
+Recette
+Principal
+AVANCES VERSEES SUR COMMANDE D'IMMO
+Code: 238
+Avances versÃ©es sur commandes dâimmobilisations corporelles
+Fonction en rÃ©serve
+Code: 925
+0Â â¬
+98â¯645â¯629Â â¬
+Recette
+Principal
+IMPOTS LOCAUX
+Code: 73133
+-
+Collecte des dÃ©chets
+Code: 937212
+0Â â¬
+95â¯992â¯423Â â¬
+Recette
+Principal
+ImpÃ´ts directs locaux
+Code: 73111
+-
+Fonction en rÃ©serve
+Code: 940
+0Â â¬
+78â¯768â¯795Â â¬
+DÃ©pense
+Principal
+INSTALL., MATERIEL ET OUTILL.
+Code: 2315
+Travaux en cours
+Fonction en rÃ©serve
+Code: 925
+0Â â¬
+77â¯298â¯506Â â¬
+DÃ©pense
+Principal
+AVANCES VERSEES SUR COMMANDE D'IMMO
+Code: 238
+Avances versÃ©es
+POURSUITE LIGNE 5 DE TRAMWAY
+Transport ferroviaire
+Code: 90822
+0Â â¬
+59â¯113â¯264Â â¬
+DÃ©pense
+Principal
+EMPRUNTS EN EUROS
+Code: 1641
+Emprunts auprÃ¨s des Ã©tablissements financiers
+Fonction en rÃ©serve
+Code: 923
+0Â â¬
+49â¯633â¯696Â â¬
+Recette
+Principal
+Attribution de compensation
+Code: 73211
+FiscalitÃ© reversÃ©e entre collectivitÃ©s locales
+Fonction en rÃ©serve
+Code: 941
+0Â â¬
+46â¯939â¯403Â â¬
+Recette
+Principal
+D.G.F.
+Code: 741126
+DGF des communes et des Ã©tablissements publics de coopÃ©ration intercommunale (EPCI)
+Fonction en rÃ©serve
+Code: 942
+0Â â¬
+41â¯425â¯166Â â¬
+DÃ©pense
+Principal
+Emprunts auprÃ¨s des Ã©tablissements financiers
+Code: 16441
+Emprunts auprÃ¨s des Ã©tablissements financiers
+Fonction en rÃ©serve
+Code: 923
+0Â â¬
+40â¯000â¯000Â â¬
+Recette
+Principal
+IMPÃTS ET TAXES
+Code: 7352
+-
+Fonction en rÃ©serve
+Code: 940
+0Â â¬
+39â¯894â¯514Â â¬
+DÃ©pense
+Principal
+CONTRATS DE PRESTATIONS DE SER
+Code: 611
+-
+Collecte des dÃ©chets
+Code: 937212
+0Â â¬
+37â¯233â¯996Â â¬
+DÃ©pense
+Principal
+Dotations aux amortissements des immobilisations
+Code: 6811
+Dotations aux amortissements, aux dÃ©prÃ©ciations et aux provisions - Charges de fonctionnement
+Fonction en rÃ©serve
+Code: 946
+0Â â¬
+35â¯183â¯283Â â¬
+Recette
+Principal
+F.C.T.V.A.
+Code: 10222
+Fonds d'investissement
+Fonction en rÃ©serve
+Code: 922
+0Â â¬
+33â¯688â¯004Â â¬
+DÃ©pense
+Principal
+CONTRATS DE PRESTATIONS DE SER
+Code: 611
+-
+Action propretÃ© urbaine et nettoiement
+Code: 937222
+0Â â¬
+31â¯956â¯607Â â¬
+DÃ©pense
+Principal
+SUBV AUTRES PERS DROIT PRIV
+Code: 65748
+Subventions de fonctionnement aux personnes, aux associations et aux autres organismes de droit privÃ©
+Culture, vie sociale, jeunesse, sports et loisirs
+Code: 9330
+0Â â¬
+29â¯899â¯823Â â¬
+DÃ©pense
+Principal
+AVANCES VERSEES SUR COMMANDE D'IMMO
+Code: 238
+Avances versÃ©es
+MATERIEL ROULANT TRAMWAY
+Autres transports
+Code: 90828
+0Â â¬
+28â¯982â¯277Â â¬
+Recette
+Principal
+002
+Code: 002
+-
+-
+0Â â¬
+27â¯562â¯421Â â¬
+DÃ©pense
+Principal
+IntÃ©rÃªts rÃ©glÃ©s Ã  lâÃ©chÃ©ance
+Code: 66111
+Charges d'intÃ©rÃªts
+Fonction en rÃ©serve
+Code: 943
+0Â â¬
+26â¯229â¯875Â â¬
+DÃ©pense
+Principal
+CHARGES DE STRUCTURE (3% DE LA MASSE SALARIALE)
+Code: 6288
+-
+Tri, valorisation, traitement dÃ©chets
+Code: 937213
+0Â â¬
+24â¯872â¯039Â â¬
+DÃ©pense
+Principal
+CONTRATS DE PRESTATIONS DE SER
+Code: 611
+-
+Tri, valorisation, traitement dÃ©chets
+Code: 937213
+0Â â¬
+24â¯393â¯847Â â¬
+Recette
+Principal
+Autres produits
+Code: 70845
+Mise Ã  disposition de personnel facturÃ©e
+Administration gÃ©nÃ©rale de la collectivitÃ©
+Code: 93020
+0Â â¬
+23â¯310â¯726Â â¬
+Recette
+Principal
+Communes membres du GFP
+Code: 13141
+-
+Autres transports
+Code: 90828
+0Â â¬
+21â¯217â¯625Â â¬
+DÃ©pense
+Principal
+Reversements et restitutions sur impÃ´ts et taxes
+Code: 739221
+-
+Fonction en rÃ©serve
+Code: 940
+0Â â¬
+18â¯616â¯655Â â¬
+DÃ©pense
+Principal
+Service d'incendie
+Code: 6553
+-
+Incendie et secours
+Code: 9312
+0Â â¬
+18â¯537â¯488Â â¬
+Recette
+Principal
+FiscalitÃ© reversÃ©e
+Code: 73218
+FiscalitÃ© reversÃ©e entre collectivitÃ©s locales
+Fonction en rÃ©serve
+Code: 941
+0Â â¬
+17â¯819â¯909Â â¬
+Recette
+Principal
+Subventions dâinvestissement rattachÃ©es aux actifs non amortissables
+Code: 13246
+Communes
+Fonction en rÃ©serve
+Code: 922
+0Â â¬
+17â¯747â¯826Â â¬
+DÃ©pense
+Principal
+REMUNERATION PRINCIPALE TITULA
+Code: 64111
+-
+Administration gÃ©nÃ©rale de la collectivitÃ©
+Code: 93020
+0Â â¬
+16â¯203â¯215Â â¬
+DÃ©pense
+Principal
+RESEAUX DE VOIRIE
+Code: 2151
+Installations, matÃ©riel et outillage techniques
+AMENAGEMENT PDU EN 908
+Voirie communale
+Code: 90845
+0Â â¬
+15â¯955â¯783Â â¬
+DÃ©pense
+Principal
+Terrains bÃ¢tis
+Code: 2115
+Terrains
+2015 APDI 7
+Services communs
+Code: 90510
+0Â â¬
+15â¯328â¯155Â â¬
+Recette
+Principal
+PRODUITS SPÃCIFIQUES
+Code: 777
+-
+Fonction en rÃ©serve
+Code: 946
+0Â â¬
+15â¯042â¯826Â â¬
+DÃ©pense
+Principal
+Autres immobilisations corporelles
+Code: 2318
+Travaux en cours
+Fonction en rÃ©serve
+Code: 925
+0Â â¬
+14â¯475â¯285Â â¬
+DÃ©pense
+Principal
+BATIMENTS ET INSTALLATIONS
+Code: 20422
+-
+NPRU MOSSON
+Aide au secteur locatif
+Code: 90552
+0Â â¬
+14â¯120â¯672Â â¬
+DÃ©pense
+Principal
+BATIMENTS ET INSTALLATIONS
+Code: 20422
+-
+Transport sur route
+Code: 90821
+0Â â¬
+13â¯965â¯416Â â¬
+DÃ©pense
+Principal
+198
+Code: 198
+-
+Fonction en rÃ©serve
+Code: 926
+0Â â¬
+13â¯480â¯980Â â¬
+Recette
+Principal
+PRODUITS SPÃCIFIQUES
+Code: 77681
+-
+Fonction en rÃ©serve
+Code: 946
+0Â â¬
+13â¯480â¯980Â â¬
+DÃ©pense
+Principal
+AVANCES VERSEES SUR COMMANDE D'IMMO
+Code: 238
+Avances versÃ©es
+REALISATION 5 LIGNES BUSTRAM
+Transport sur route
+Code: 90821
+0Â â¬
+12â¯087â¯581Â â¬
+DÃ©pense
+Principal
+RESEAUX DE VOIRIE
+Code: 2151
+Installations, matÃ©riel et outillage techniques
+Fonction en rÃ©serve
+Code: 925
+0Â â¬
+11â¯345â¯730Â â¬
+Recette
+Principal
+Compensations et attributions
+Code: 74832
+Attributions de pÃ©rÃ©quation et de compensation
+Fonction en rÃ©serve
+Code: 942
+0Â â¬
+10â¯963â¯947Â â¬
+DÃ©pense
+Principal
+INSTALL., MATERIEL ET OUTILL.
+Code: 2315
+Travaux en cours
+COEUR DE METROPOLE COMEDIE ESPLANADE TRIANGLE
+OpÃ©rations d'amÃ©nagement
+Code: 90515
+0Â â¬
+10â¯610â¯745Â â¬
+DÃ©pense
+Principal
+REMUNERATION PRINCIPALE TITULA
+Code: 64111
+-
+Voirie communale
+Code: 93845
+0Â â¬
+10â¯460â¯749Â â¬
+Recette
+Principal
+Emprunts auprÃ¨s des Ã©tablissements financiers
+Code: 16441
+Emprunts auprÃ¨s des Ã©tablissements financiers
+Fonction en rÃ©serve
+Code: 923
+0Â â¬
+10â¯000â¯000Â â¬
+Recette
+Principal
+FRAIS D'ETUDES
+Code: 2031
+Frais d'Ã©tudes
+Fonction en rÃ©serve
+Code: 925
+0Â â¬
+8â¯971â¯860Â â¬
+DÃ©pense
+Principal
+ENERGIE - ELECTRICITE
+Code: 60612
+-
+Culture, vie sociale, jeunesse, sports et loisirs
+Code: 9330
+0Â â¬
+8â¯895â¯881Â â¬
+DÃ©pense
+Principal
+BATIMENTS ET INSTALLATIONS
+Code: 20422
+-
+Aide au secteur locatif
+Code: 90552
+0Â â¬
+8â¯519â¯036Â â¬
+Total
+0Â â¬
+2â¯817â¯543â¯939Â â¬
+PrÃ©cÃ©dent
+Page
+1
+sur
+45
+(
+2212
+lignes)
+Suivant
+Budget
+Tous
+Principal
+Parking
+Assainissement
+Eau
+Transport
+SPANC
+Recherche
+PrÃªteur
+â
+Objet / Contrat
+â
+AnnÃ©e
+â
+Taux Actuel
+â
+DurÃ©e Rest.
+â
+Capital Restant â¼
+AnnuitÃ© 2025
+â
+CREDIT FONCIER DE FRANCE
+Refinancement 52 prÃªts CDC sur 20 ans
+C717662/A172200H (CE032)
+Fixe / Marge: 1,43
+2022
+1,43Â %
+18.2 ans
+62â¯900â¯000Â â¬
+4â¯335â¯935Â â¬
+CREDIT FONCIER DE FRANCE
+Refinancement 28 prÃªts CDC sur 30 ans
+C717664/A172200I (CE031)
+Fixe / Marge: 1,49
+2022
+1,49Â %
+28.2 ans
+47â¯500â¯000Â â¬
+2â¯393â¯042Â â¬
+Caisse FranÃ§aise de Financement Local
+consolidation BP
+MIN517343EUR (20171)
+Variable (EURIBOR12M) / Marge: EURIBOR12M+0,78
+2017
+1,848Â %
+13.5 ans
+42â¯000â¯000Â â¬
+3â¯843â¯150Â â¬
+CAISSE DES DEPOTS ET CONSIGNATION
+Regroupement de prets nÂ° 22 (Ville)
+1204203 (CDC#1204203#)
+Variable (EURIBOR03M) / Marge: EURIBOR03M+0,45
+2011
+3,444Â %
+5.4 ans
+30â¯761â¯453Â â¬
+6â¯246â¯013Â â¬
+Bq EuropÃ©enne d'Investissement
+Tirage sur le Contrat Cadre NÂ° 202209
+93.862/FR (20233CONS202209)
+Fixe / Marge: 3,349
+2023
+3,349Â %
+24.4 ans
+29â¯400â¯000Â â¬
+1â¯099â¯838Â â¬
+CAISSE DES DEPOTS ET CONSIGNATION
+Regroupement de prets nÂ° 15 (3M)
+1217938 (CDC#1217938#)
+Variable (EURIBOR03M) / Marge: EURIBOR03M+0,1
+2011
+2,914Â %
+23.4 ans
+28â¯518â¯043Â â¬
+1â¯734â¯591Â â¬
+SociÃ©tÃ© GÃ©nÃ©rale
+Tirage sur le Contrat Cadre NÂ° 201902C
+2513/001 (20211CONS201902)
+Fixe / Marge: EURIBOR03M+0.32
+2021
+0,05Â %
+17.8 ans
+26â¯625â¯000Â â¬
+1â¯513â¯972Â â¬
+Bq EuropÃ©enne d'Investissement
+5Ã¨me mobilisation 2011
+FI26.200/FR - 2009-0 (20115)
+Fixe / Marge: 3,833
+2011
+3,833Â %
+14.0 ans
+26â¯309â¯325Â â¬
+2â¯437â¯114Â â¬
+Bq EuropÃ©enne d'Investissement
+2 eme tirage BEI 45M
+23.066/FR (20065)
+Fixe / Marge: 4,116
+2006
+4,116Â %
+13.0 ans
+26â¯164â¯755Â â¬
+2â¯639â¯131Â â¬
+Bq EuropÃ©enne d'Investissement
+dernier versement contrat 100M&#x20AC;
+FI81.286/FR (20141)
+Fixe / Marge: 2,495
+2014
+2,495Â %
+16.5 ans
+25â¯384â¯616Â â¬
+2â¯195â¯798Â â¬
+Bq EuropÃ©enne d'Investissement
+4Ã¨me mobilisation 2012
+FI81.286/FR - 2009-0 (20126)
+Variable (EURIBOR03M) / Marge: EURIBOR03M+1,258
+2012
+3,821Â %
+14.5 ans
+22â¯692â¯308Â â¬
+2â¯451â¯082Â â¬
+SociÃ©tÃ© GÃ©nÃ©rale
+Mob. 2010
+16277/002/008 (20104)
+Variable (TAG01M) / Marge: 3,76
+2010
+3,76Â %
+17.0 ans
+22â¯004â¯877Â â¬
+1â¯442â¯122Â â¬
+La Banque Postale
+3Ã¨me consolidation 2011
+MIR236968EUR (20113)
+Fixe / Marge: 3,67
+2011
+3,67Â %
+16.5 ans
+21â¯299â¯900Â â¬
+1â¯780â¯364Â â¬
+CrÃ©dit Foncier
+Consolidation 30M&#x20AC; dÃ©c 2010
+00778082692G (20103)
+Variable (EURIBOR03M) / Marge: TAG03M+0,105
+2010
+3,064Â %
+16.9 ans
+20â¯680â¯128Â â¬
+1â¯525â¯615Â â¬
+Bq EuropÃ©enne d'Investissement
+Tirage sur le Contrat Cadre NÂ° 202209
+93.862/FR (202310CON202209)
+Variable (EURIBOR03M) / Marge: EURIBOR03M+0,472
+2023
+2,535Â %
+24.9 ans
+20â¯000â¯000Â â¬
+0Â â¬
+Bq EuropÃ©enne d'Investissement
+Tirage sur le Contrat Cadre NÂ° 202209
+93.862/FR (202311CON202209)
+Variable (EURIBOR03M) / Marge: EURIBOR03M+0,474
+2023
+2,537Â %
+24.9 ans
+20â¯000â¯000Â â¬
+0Â â¬
+Bq EuropÃ©enne d'Investissement
+Tirage sur le Contrat Cadre NÂ° 202209
+93.862/FR (20239CONS202209)
+Variable (EURIBOR03M) / Marge: EURIBOR03M+0,472
+2023
+2,535Â %
+24.9 ans
+20â¯000â¯000Â â¬
+0Â â¬
+SociÃ©tÃ© GÃ©nÃ©rale
+Tirage sur le Contrat Cadre NÂ° 202206
+100070/001 (20232VERS202206)
+Variable (EURIBOR01M) / Marge: EURIBOR01M+0,4
+2023
+3,59Â %
+0.7 ans
+20â¯000â¯000Â â¬
+635â¯379Â â¬
+Bq EuropÃ©enne d'Investissement
+Tirage sur le Contrat Cadre NÂ° 202209
+93.862/FR (20238CONS202209)
+Fixe / Marge: 3,554
+2023
+3,554Â %
+24.7 ans
+19â¯800â¯000Â â¬
+377â¯700Â â¬
+CREDIT AGRICOLE CIB
+Phase d'amortissement du prÃªt 202103
+CP1660 (20236CONS202103)
+Variable (EURIBOR03M) / Marge: EURIBOR03M+0,19
+2023
+3,921Â %
+24.8 ans
+19â¯800â¯000Â â¬
+662â¯344Â â¬
+Total
+2â¯474â¯335â¯114Â â¬
+290â¯758â¯784Â â¬
+PrÃ©cÃ©dent
+Page
+1
+sur
+134
+(
+2669
+emprunts)
+Suivant
+ð Voir la rÃ©partition par commune
+RÃ©partition de l'investissement par commune
+Total
+Par habitant
+MÃ©tropole / Non affectÃ©
+143Â MÂ â¬
+Montpellier
+140Â MÂ â¬
+Saint-Jean-de-VÃ©das
+8Â MÂ â¬
+Montferrier-sur-Lez
+4Â MÂ â¬
+Clapiers
+4Â MÂ â¬
+Juvignac
+886Â kÂ â¬
+Grabels
+806Â kÂ â¬
+Castelnau-le-Lez
+538Â kÂ â¬
+Castries
+538Â kÂ â¬
+Baillargues
+340Â kÂ â¬
+Cournonsec
+316Â kÂ â¬
+Lattes
+286Â kÂ â¬
+Pignan
+280Â kÂ â¬
+Vendargues
+269Â kÂ â¬
+Le CrÃ¨s
+269Â kÂ â¬
+Cournonterral
+269Â kÂ â¬
+FabrÃ¨gues
+269Â kÂ â¬
+Villeneuve-lÃ¨s-Maguelone
+155Â kÂ â¬
+LavÃ©rune
+134Â kÂ â¬
+Sussargues
+97Â kÂ â¬
+RestincliÃ¨res
+5Â kÂ â¬
+PÃ©rols
+3Â kÂ â¬
+* Pour les programmes concernant plusieurs communes, le montant est divisÃ© Ã©quitablement, sauf pour le Tramway Ligne 5 et le Bustram (rÃ©partition selon le nombre d'arrÃªts par commune).
+Filtrer par commune
+Choisir une commune...
+Toutes les communes
+MÃ©tropole / Non affectÃ©
+Baillargues
+Castelnau-le-Lez
+Castries
+Clapiers
+Cournonsec
+Cournonterral
+FabrÃ¨gues
+Grabels
+Juvignac
+Lattes
+LavÃ©rune
+Le CrÃ¨s
+Montferrier-sur-Lez
+Montpellier
+Pignan
+PÃ©rols
+RestincliÃ¨res
+Saint-Jean-de-VÃ©das
+Sussargues
+Vendargues
+Villeneuve-lÃ¨s-Maguelone
+Recherche
+Code
+â
+LibellÃ© AP
+â
+AP VotÃ©e (N-1)
+â
+CP VotÃ©
+2023
+â
+CP RÃ©alisÃ©
+2023
+â
+Reste Ã  RÃ©aliser
+â
+Actions
+M21TRAML5
+POURSUITE LIGNE 5 DE TRAMWAY
+Chapitre 908 â¢ 4 lignes
+386â¯668â¯229Â â¬
+62â¯115â¯055Â â¬
+62â¯102â¯391Â â¬
+11â¯000Â â¬
+DÃ©tail
+M21ROUL2
+MATERIEL ROULANT TRAMWAY
+Chapitre 908 â¢ 2 lignes
+180â¯000â¯000Â â¬
+29â¯417â¯733Â â¬
+29â¯417â¯733Â â¬
+0Â â¬
+DÃ©tail
+M20MOAC01
+MOBILITES ACTIVES MGB
+Chapitre 908 â¢ 22 lignes
+100â¯000Â â¬
+37â¯146â¯988Â â¬
+26â¯575â¯585Â â¬
+8â¯475â¯699Â â¬
+DÃ©tail
+VOIMTP16
+AMENAGEMENT PDU EN 908
+Chapitre 908 â¢ 16 lignes
+479â¯000Â â¬
+32â¯299â¯170Â â¬
+21â¯890â¯868Â â¬
+7â¯923â¯497Â â¬
+DÃ©tail
+FONAMU05
+2015 APDI 7
+Chapitre 905 â¢ 9 lignes
+95â¯269â¯568Â â¬
+21â¯705â¯948Â â¬
+21â¯060â¯137Â â¬
+603â¯611Â â¬
+DÃ©tail
+M22METRO01
+REALISATION 5 LIGNES BUSTRAM
+Chapitre 908 â¢ 3 lignes
+306â¯000â¯000Â â¬
+15â¯672â¯050Â â¬
+15â¯185â¯152Â â¬
+404â¯178Â â¬
+DÃ©tail
+M20NPRU02
+NPRU MOSSON
+Chapitre 905 â¢ 1 lignes
+97â¯212â¯500Â â¬
+14â¯120â¯672Â â¬
+14â¯120â¯672Â â¬
+0Â â¬
+DÃ©tail
+M21ESPP01
+COEUR DE METROPOLE COMEDIE ESPLANADE TRIANGLE
+Chapitre 905 â¢ 2 lignes
+39â¯400â¯000Â â¬
+12â¯610â¯745Â â¬
+12â¯610â¯745Â â¬
+0Â â¬
+DÃ©tail
+M21DEPO02
+NOUVEAU DEPOT TRANSPORTS MOBILITES
+Chapitre 908 â¢ 2 lignes
+60â¯000â¯000Â â¬
+7â¯614â¯157Â â¬
+7â¯614â¯156Â â¬
+0Â â¬
+DÃ©tail
+M19FRA709
+FRANCHISSEMENT A709
+Chapitre 905 â¢ 1 lignes
+11â¯701â¯797Â â¬
+6â¯744â¯637Â â¬
+6â¯328â¯670Â â¬
+415â¯967Â â¬
+DÃ©tail
+M21OUES01
+ESPACES PUBLICS LIGNE 5
+Chapitre 908 â¢ 2 lignes
+33â¯371â¯040Â â¬
+5â¯981â¯390Â â¬
+5â¯981â¯390Â â¬
+0Â â¬
+DÃ©tail
+M20NPRU01
+NPRU CEVENNES
+Chapitre 905 â¢ 1 lignes
+27â¯325â¯600Â â¬
+5â¯533â¯972Â â¬
+5â¯533â¯972Â â¬
+0Â â¬
+DÃ©tail
+M22SDSI01
+SCHEMA DIRECTEUR DES SYS D INFORMATION
+Chapitre 900 â¢ 5 lignes
+18â¯389â¯200Â â¬
+6â¯814â¯772Â â¬
+4â¯916â¯971Â â¬
+1â¯744â¯814Â â¬
+DÃ©tail
+VOILIT16
+APDI 7
+Chapitre 908 â¢ 10 lignes
+31â¯254â¯605Â â¬
+7â¯878â¯966Â â¬
+4â¯390â¯057Â â¬
+3â¯131â¯436Â â¬
+DÃ©tail
+VOIVDL16
+APDI 7
+Chapitre 908 â¢ 8 lignes
+33â¯298â¯645Â â¬
+7â¯021â¯055Â â¬
+4â¯292â¯746Â â¬
+2â¯371â¯530Â â¬
+DÃ©tail
+VOIPLO16
+APDI 7
+Chapitre 908 â¢ 7 lignes
+27â¯942â¯659Â â¬
+6â¯795â¯256Â â¬
+4â¯127â¯470Â â¬
+2â¯235â¯624Â â¬
+DÃ©tail
+AMEMTP16
+QUARTIER HOPITAUX - HORTUS BAUMEL
+Chapitre 905 â¢ 10 lignes
+2â¯980â¯800Â â¬
+5â¯109â¯698Â â¬
+3â¯784â¯755Â â¬
+1â¯296â¯469Â â¬
+DÃ©tail
+M21ESPP02
+COEUR DE METROPOLE FOCH PEYROU ARCEAUX
+Chapitre 905 â¢ 3 lignes
+17â¯720â¯000Â â¬
+3â¯642â¯143Â â¬
+3â¯642â¯143Â â¬
+0Â â¬
+DÃ©tail
+M21NBUS02
+POURSUITE ACQUISITION DE NAVETTES ET BUS
+Chapitre 908 â¢ 1 lignes
+10â¯677â¯262Â â¬
+3â¯587â¯483Â â¬
+3â¯587â¯483Â â¬
+0Â â¬
+DÃ©tail
+M22MROU01
+REHABILITATION PISCINE JARROUSSE
+Chapitre 903 â¢ 6 lignes
+5â¯980â¯000Â â¬
+3â¯272â¯804Â â¬
+3â¯213â¯900Â â¬
+58â¯348Â â¬
+DÃ©tail
+Total
+2â¯231â¯253â¯266Â â¬
+363â¯140â¯576Â â¬
+304â¯321â¯978Â â¬
+46â¯978â¯567Â â¬
+PrÃ©cÃ©dent
+Page
+1
+sur
+6
+(
+115
+AP)
+Suivant
+Subventions versÃ©es par la mÃ©tropole
+Rechercher
+Nature BÃ©nÃ©ficiaire
+Toutes
+PrivÃ© (Associations...)
+Public (Coll., Ãtab...)
+MÃ©nages
+EPCI (MÃ©tropoles...)
+DÃ©partements
+RÃ©gions
+Autres (Public)
+RÃ©sultats :
+579
+lignes
+BÃ©nÃ©ficiaire
+Nature
+Objet
+Montant
+â
+TAM SA TRANSPORTS AGGLOMERATION DE
+Public (Coll., Ãtab...)
+102â¯536â¯569Â â¬
+SA3M SOCIETE D AMENAGEMENT DE
+Public (Coll., Ãtab...)
+24â¯816â¯044Â â¬
+TRANSDEV MOBILITE MONTPELLIE CXT 102
+Public (Coll., Ãtab...)
+15â¯966â¯104Â â¬
+OPERA ORCHESTRE NATIONAL MTP OPERA ET ORCHESTRE NATIONAL
+PrivÃ© (Associations...)
+13â¯830â¯000Â â¬
+AIDES AU SECTEUR LOCATIF - PERSONNES PHYSIQUES
+MÃ©nages
+10â¯239â¯909Â â¬
+AUTOROUTE DU SUD DE LA FRANC AUTOROUTE DU SUD DE LA FRANC
+Public (Coll., Ãtab...)
+6â¯328â¯670Â â¬
+AIDE A L'ACQUISITION DE VAE
+MÃ©nages
+5â¯599â¯960Â â¬
+EPCC MONTPELLIER CONTEMPORAI MOCO ESBAMA EPCC MOCO
+RÃ©gions
+MAD DE LOCAUX Ã L'ANNÃE (HÃTEL MONTCALM)
+3â¯700â¯000Â â¬
+REGIE AUTONOME DU DOMAINE D REGIE AUTONOME DU DOMAINE D
+RÃ©gions
+3â¯137â¯178Â â¬
+OFFICE TOURISME MONTPELLIER OFFICE DE TOURISME ET DES
+PrivÃ© (Associations...)
+MAD DE LOCAUX Ã L'ANNÃE
+2â¯359â¯988Â â¬
+MONTPELLIER DANSE
+PrivÃ© (Associations...)
+MAD DE LOCAUX Ã L'ANNÃE
+1â¯588â¯000Â â¬
+PRINTEMPS DES COMEDIENS PRINTEMPS DES COMEDIENS
+PrivÃ© (Associations...)
+1â¯472â¯000Â â¬
+GIHP DELEGATION GIHP DELEGATION
+PrivÃ© (Associations...)
+1â¯374â¯800Â â¬
+SUBVENTIONS RENOVATIONS ENERGETIQUES
+MÃ©nages
+1â¯231â¯150Â â¬
+AIDES AU SECTEUR LOCATIF - ORGANISMES PUBLICS
+Autres (Public)
+1â¯227â¯993Â â¬
+ORG FONCIER SOLIDAIRE DE 3M ORGANISME DE FONCIER SOLIDAI
+PrivÃ© (Associations...)
+1â¯130â¯000Â â¬
+MONTPELLIER HERAULT SPORT CL MONTPELLIER HERAULT SPORT CL
+Public (Coll., Ãtab...)
+1â¯081â¯000Â â¬
+SAS MONTPELLIER HANDBALL MONTPEL AGGLOMERATION HANDB
+Public (Coll., Ãtab...)
+1â¯030â¯000Â â¬
+UNIVERSITE DE MONTPELLIER UNIVERSITE DE MONTPELLIER
+Autres (Public)
+982â¯859Â â¬
+BASKET LATTES MTP MED METROP BASKET LATTES MONTPELLIER
+PrivÃ© (Associations...)
+964â¯500Â â¬
+AGENCE LOCALE ENERGIE ET CLI AGENCE LOCALE DE L ENERGIE
+PrivÃ© (Associations...)
+944â¯800Â â¬
+MONTPELLIER HSC VOLLEY BALL MONTPELLIER HERAULT SPORT CL
+Public (Coll., Ãtab...)
+860â¯000Â â¬
+MONTPELLIER RUGBY CLUB SASP MONTPELLIER RUGBY CLUB SASP
+Public (Coll., Ãtab...)
+845â¯000Â â¬
+THEATRE DES TREIZE VENTS
+Public (Coll., Ãtab...)
+MAD DE LOCAUX Ã L'ANNÃE
+788â¯800Â â¬
+CASSC CASSC
+PrivÃ© (Associations...)
+785â¯169Â â¬
+FESTIVAL RADIO FRANCE ET MTP FESTIVAL RADIO FRANCE ET MTP
+PrivÃ© (Associations...)
+744â¯000Â â¬
+MLJ3M MISSION LOCALE JEUNES ASSOCIATION MLJAM MISSION LOCALE JEUNES
+PrivÃ© (Associations...)
+MAD DE LOCAUX Ã L'ANNÃE
+735â¯800Â â¬
+MHB MONTPELLIER HAND BALL
+PrivÃ© (Associations...)
+630â¯000Â â¬
+MONTPELLIER RUGBY CLUB MONTPELLIER RUGBY CLUB
+PrivÃ© (Associations...)
+600â¯000Â â¬
+CROUS MONTPELLIER CROUS MONTPELLIER
+Autres (Public)
+586â¯057Â â¬
+SNCF RESEAU
+Public (Coll., Ãtab...)
+507â¯717Â â¬
+ETHIGESTION IMMOBILIER SAS
+Public (Coll., Ãtab...)
+499â¯500Â â¬
+ENSAD DE MONTPELLIER LR ENSAD DE MONTPELLIER LR
+PrivÃ© (Associations...)
+MAD DE LOCAUX Ã L'ANNÃE (MAISON LOUIS JOUVET + HANGAR THÃÃTRE)
+454â¯353Â â¬
+MMM MUC NATATION
+PrivÃ© (Associations...)
+377â¯000Â â¬
+SERM SERM
+Public (Coll., Ãtab...)
+373â¯000Â â¬
+MONTPELLIER WATER POLO MONTPELLIER WATER POLO
+PrivÃ© (Associations...)
+370â¯000Â â¬
+CNRS REGION LANGUEDOC ROUSSI CNRS REGION LANGUEDOC ROUSSI
+Autres (Public)
+306â¯050Â â¬
+FFJDA ASSOCIATION
+PrivÃ© (Associations...)
+300â¯000Â â¬
+UNI SONS ASSOCIATION UNI SONS
+PrivÃ© (Associations...)
+294â¯130Â â¬
+MHSC ASSOCIATION MHSC ASSOCIATION
+PrivÃ© (Associations...)
+292â¯500Â â¬
+COMMUNE DE CASTRIES COMMUNE DE CASTRIES
+DÃ©partements
+RENOVATION CHÃTEAU DE CASTRIES
+247â¯402Â â¬
+FESTIV INTERN CINEMA MEDITER
+PrivÃ© (Associations...)
+222â¯100Â â¬
+FOLIES LYRIQUES FOLIES LYRIQUES
+PrivÃ© (Associations...)
+215â¯000Â â¬
+COMMUNE DE SUSSARGUES COMMUNE DE SUSSARGUES
+DÃ©partements
+FEC21 RENOVATION THERMIQUE ET ENERGETIQUE GS ENSOLEHAT
+200â¯000Â â¬
+COMMUNE DE CASTRIES COMMUNE DE CASTRIES
+DÃ©partements
+FEC21 RENOVATION ENERGETIQUE BATIMENT LA COMMUNALE ET DE L'ECOLE DE MUSIQUE
+200â¯000Â â¬
+MONTPELLIER METROPOLE HOCKEY
+PrivÃ© (Associations...)
+198â¯333Â â¬
+MONTPELLIER 2028 CAPITALE EUROPEENNE DE LA CULTURE
+PrivÃ© (Associations...)
+MAD DE LOCAUX ANNUELLE,MATÃRIEL INFORMATIQUE, MOBILIER, DIRECTEUR TERRITORIAL(24 871,18&#x20AC;)
+195â¯000Â â¬
+SIAO HERAULT
+PrivÃ© (Associations...)
+189â¯486Â â¬
+STAND ART STAND ART
+PrivÃ© (Associations...)
+170â¯000Â â¬
+ADIL DE L HERAULT ADIL DE L HERAULT
+PrivÃ© (Associations...)
+160â¯500Â â¬
+Total FiltrÃ©
+222â¯628â¯722Â â¬
+PrÃ©cÃ©dent
+1
+2
+3
+4
+...
+12
+Suivant

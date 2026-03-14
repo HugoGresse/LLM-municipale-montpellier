@@ -1,0 +1,24 @@
+URL: https://montpellier-municipales.fr/info/lancement-plateforme-montpellier-2026
+
+TITLE: Lancement de la plateforme Montpellier Municipales 2026
+
+DESCRIPTION: Bienvenue sur notre comparateur neutre et indÃ©pendant pour les Ã©lections municipales Ã  Montpellier.
+
+CONTENT:
+
+Lancement de la plateforme Montpellier Municipales 2026
+2025-12-09
+|
+L'Ã©quipe citoyenne
+Pourquoi ce site ?
+Les Ã©lections municipales sont un moment clÃ© pour notre ville. Pourtant, il est parfois difficile de s'y retrouver entre les multiples listes, les programmes touffus et les promesses de campagne.
+C'est pourquoi nous avons crÃ©Ã© cette plateforme avec trois objectifs :
+Comparer
+facilement les propositions.
+Informer
+de maniÃ¨re neutre et factuelle.
+Inclure
+tous les montpelliÃ©rains grÃ¢ce au multilinguisme.
+Une dÃ©marche Open Source
+Ce projet est dÃ©veloppÃ© de maniÃ¨re transparente. Le code est ouvert, et nous invitons chacun Ã  contribuer, que ce soit pour corriger des bugs, proposer des traductions ou enrichir le contenu.
+Restez connectÃ©s pour dÃ©couvrir les analyses des programmes dÃ¨s leur publication !
