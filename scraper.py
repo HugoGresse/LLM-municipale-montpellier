@@ -144,6 +144,8 @@ def scrape(output_dir: str = DEFAULT_OUTPUT_DIR, delay: float = DEFAULT_DELAY) -
             print(f"  Skipping non-HTML content ({content_type})")
             continue
 
+        # Force UTF-8 decoding to prevent garbled French characters
+        response.encoding = "utf-8"
         soup = BeautifulSoup(response.text, "lxml")
 
         # Save text content
