@@ -28,14 +28,18 @@ jobs:
       - name: Run scraper
         run: python scraper.py --output-dir output --delay 1.0
 
-      - name: Commit and push scraped data
+      - name: Generate analysis prompt
+        run: python analyze.py --output-dir output --output-file analysis_prompt.md
+
+      - name: Commit and push scraped data and analysis
         run: |
           git config user.name "github-actions[bot]"
           git config user.email "github-actions[bot]@users.noreply.github.com"
           git add -f output/
+          git add analysis_prompt.md
           if git diff --cached --quiet; then
             echo "No changes to commit."
           else
-            git commit -m "chore: update scraped data [skip ci]"
+            git commit -m "chore: update scraped data and analysis [skip ci]"
             git push
           fi
