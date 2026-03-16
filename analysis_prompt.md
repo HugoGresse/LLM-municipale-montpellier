@@ -1067,6 +1067,338 @@ Accueil p�riscolaire
 : D�veloppement de l'offre p�riscolaire
 [... truncated ...]
 
+--- File: listes_michael-delafosse_4.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse
+
+TITLE: Demain Montpellier � Micha�l Delafosse
+
+DESCRIPTION: Pr�sentation de la liste Demain Montpellier et de sa t�te de liste Micha�l Delafosse qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Demain Montpellier
+T�te de liste�: Micha�l Delafosse
+Parti Socialiste
+Parti Radical de Gauche
+Parti Communiste
+Place Publique
+G�n�ration �cologie
+Parti Animaliste
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Derni�res actualit�s
+Micha�l Delafosse
+, maire sortant socialiste, est candidat � sa r��lection pour les municipales de 2026. Il m�ne une liste de rassemblement de la gauche et des �cologistes "pragmatiques", soutenue par le
+Parti Socialiste
+, le
+Parti Communiste
+, le
+Parti Radical de Gauche
+,
+Place Publique
+,
+G�n�ration �cologie
+et le
+Parti Animaliste
+.
+Son projet s'inscrit dans la
+continuit�
+de son premier mandat, revendiquant une "grande transformation" de Montpellier.
+Ses priorit�s affich�es :
+Mobilit�s :
+P�rennisation de la gratuit� des transports et extension du r�seau (Ligne 5).
+Urbanisme et �cologie :
+V�g�talisation de la ville, r�novation des quartiers (Mosson, C�vennes) et adaptation au changement climatique.
+S�curit� et Tranquillit� publique :
+Renforcement de la police municipale et politique de fermet� r�publicaine.
+Services Publics :
+D�fense d'un service public fort et accessible (bouclier social).
+Micha�l Delafosse souhaite "prot�ger et projeter" Montpellier vers l'avenir, en consolidant les acquis sociaux et �cologiques de son mandat.
+Micha�l Delafosse : une gauche de gestion, entre mobilit� gratuite et r�publicanisme assum�
+�lu maire de Montpellier en 2020, Micha�l Delafosse incarne une ligne politique singuli�re au sein de la gauche locale : � la fois
+social-d�mocrate dans sa gestion
+,
+volontariste sur les politiques de mobilit�
+, et
+fermement inscrit dans une tradition r�publicaine la�que
+h�rit�e du courant incarn� au niveau national par Manuel Valls et le Printemps r�publicain.
+Son premier mandat permet aujourd?hui de d�gager assez clairement les grandes orientations id�ologiques qui structurent son action municipale.
+Une politique de mobilit� comme marqueur central du mandat
+S?il ne fallait retenir qu?un seul axe fort du mandat Delafosse, ce serait celui des
+mobilit�s
+.
+La mise en place de la
+gratuit� des transports en commun pour les habitants de la m�tropole
+constitue l?un des actes politiques les plus visibles et les plus structurants du mandat. Annonc�e comme une mesure sociale et �cologique, elle s?inscrit aussi dans une volont� de transformation profonde des usages urbains :
+r�duction de la place de la voiture individuelle,
+am�lioration de l?accessibilit� des quartiers populaires,
+renforcement de l?attractivit� du r�seau de tramway,
+accompagnement du d�veloppement m�tropolitain.
+La cr�ation de la
+ligne 5 du tramway
+, la restructuration du r�seau de bus et l?affichage d?une ville � apais�e � sont autant d?�l�ments qui participent � ce r�cit politique : Montpellier comme m�tropole moderne, mobile et �cologique.
+Cependant, cette politique fait aussi l?objet de critiques :
+saturation de certains axes,
+sentiment de rel�gation de quartiers p�riph�riques moins bien desservis,
+difficult� � articuler gratuit� et qualit� de service sur le long terme.
+La mobilit� est ainsi � la fois
+le c?ur du projet politique de Delafosse
+et l?un de ses principaux points de tension.
+Une conception r�publicaine stricte de la la�cit�
+Sur le plan id�ologique, Micha�l Delafosse s?inscrit clairement dans une
+lecture r�publicaine classique de la la�cit�
+, souvent rapproch�e du courant dit du
+Printemps r�publicain
+.
+Cette ligne se caract�rise par :
+une d�fense stricte de la neutralit� de l?espace public,
+une m�fiance affich�e vis-�-vis des expressions religieuses visibles,
+une approche universaliste des politiques publiques, refusant toute lecture communautaire.
+Cette orientation l?a r�guli�rement amen� � se distinguer d?une partie de la gauche plus attentive aux enjeux de discriminations syst�miques ou de reconnaissance des minorit�s.
+Elle s?est notamment traduite par :
+des prises de position fermes sur la la�cit� dans l'espace public,
+un discours centr� sur la � R�publique une et indivisible �,
+une proximit� id�ologique assum�e avec certaines figures nationales du courant social-lib�ral r�publicain.
+Pour ses soutiens, cette ligne garantit la clart� et la coh�rence de l?action publique.
+Pour ses critiques, elle traduit une vision parfois jug�e
+rigide
+, voire d�connect�e des r�alit�s sociales contemporaines.
+Une gouvernance marqu�e par la stabilit� et la verticalit�
+Sur le plan institutionnel, le style Delafosse est celui d?un
+maire centralisateur
+, assumant pleinement le r�le d?ex�cutif fort.
+Son mandat s?est appuy� sur :
+une majorit� large mais disciplin�e,
+une articulation �troite entre mairie et m�tropole,
+une forte personnalisation de l?action publique.
+Cette m�thode lui permet de porter des projets d?envergure, mais alimente aussi les critiques sur :
+le manque de concertation r�elle avec les habitants,
+la faible place accord�e � la d�mocratie participative,
+une gouvernance per�ue comme technocratique.
+Une �cologie de gestion plus que de rupture
+Si l?�cologie est omnipr�sente dans la communication municipale, elle s?inscrit davantage dans une logique de
+transition encadr�e
+que de transformation radicale.
+Le projet de Delafosse repose sur :
+l?adaptation au changement climatique (�lots de fra�cheur, v�g�talisation),
+la r�duction progressive de la place de la voiture,
+la planification urbaine ma�tris�e.
+En revanche, les sujets plus conflictuels ? artificialisation des sols, mod�le �conomique de la m�tropole, attractivit� � tout prix ? restent largement absents du discours officiel ou trait�s sous un angle consensuel.
+Une ligne politique claire, mais clivante
+Au final, Micha�l Delafosse incarne une
+gauche de gouvernement
+, pragmatique, structur�e, assumant :
+une vision r�publicaine ferme,
+une priorit� donn�e � la gestion et � l?attractivit�,
+une �cologie compatible avec le d�veloppement m�tropolitain.
+Cette coh�rence est aussi sa principale fragilit� :
+elle laisse peu de place aux aspirations plus radicales sur le logement, la d�mocratie locale, la justice sociale ou la transition �cologique profonde.
+� l?approche des municipales de 2026, c?est donc moins la clart� de sa ligne que sa capacit� �
+convaincre au-del� de son socle
+qui constituera l?enjeu central de sa candidature.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+changement climatique
+culture
+enfance et �ducation
+environnement
+logement
+solidarit�
+sport
+s�curit�
+transport et mobilit�s
+enfance et �ducation
+�ducation, enfance et jeunesse
+Micha�l Delafosse place l'�ducation et l'�panouissement des enfants et des jeunes au c?ur de son projet de ville.
+Les axes forts :
+Restauration scolaire de qualit�
+: Maintien des cantines municipales avec une part croissante de produits locaux et bio, et tarification selon le quotient familial.
+Accueil p�riscolaire
+: D�veloppement de l'offre p�riscolaire (centres de loisirs, �tudes accompagn�es) pour r�pondre aux besoins des familles.
+R�novation des �coles
+: Programme pluriannuel de r�novation thermique et de mise aux normes des �coles primaires.
+�galit� des chances
+: Renforcement des dispositifs de soutien scolaire dans les quartiers prioritaires de la politique de la ville.
+Jeunesse et engagement
+: D�veloppement des maisons de la jeunesse, soutien aux associations �tudiantes et aux initiatives citoyennes des jeunes Montpelli�rains.
+logement
+environnement
+R�novation et embellissement de chaque quartier
+Micha�l Delafosse engage un vaste programme de r�novation pour que chaque quartier de Montpellier b�n�ficie d'am�liorations concr�tes et visibles.
+Les axes forts :
+R�novation thermique des logements
+: Soutien aux copropri�t�s et aux m�nages modestes pour financer la r�novation �nerg�tique, en compl�ment des aides nationales.
+Requalification des quartiers priorita
+[... truncated ...]
+
+--- File: listes_michael-delafosse_5.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/
+
+TITLE: Demain Montpellier � Micha�l Delafosse
+
+DESCRIPTION: Pr�sentation de la liste Demain Montpellier et de sa t�te de liste Micha�l Delafosse qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Demain Montpellier
+T�te de liste�: Micha�l Delafosse
+Parti Socialiste
+Parti Radical de Gauche
+Parti Communiste
+Place Publique
+G�n�ration �cologie
+Parti Animaliste
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Derni�res actualit�s
+Micha�l Delafosse
+, maire sortant socialiste, est candidat � sa r��lection pour les municipales de 2026. Il m�ne une liste de rassemblement de la gauche et des �cologistes "pragmatiques", soutenue par le
+Parti Socialiste
+, le
+Parti Communiste
+, le
+Parti Radical de Gauche
+,
+Place Publique
+,
+G�n�ration �cologie
+et le
+Parti Animaliste
+.
+Son projet s'inscrit dans la
+continuit�
+de son premier mandat, revendiquant une "grande transformation" de Montpellier.
+Ses priorit�s affich�es :
+Mobilit�s :
+P�rennisation de la gratuit� des transports et extension du r�seau (Ligne 5).
+Urbanisme et �cologie :
+V�g�talisation de la ville, r�novation des quartiers (Mosson, C�vennes) et adaptation au changement climatique.
+S�curit� et Tranquillit� publique :
+Renforcement de la police municipale et politique de fermet� r�publicaine.
+Services Publics :
+D�fense d'un service public fort et accessible (bouclier social).
+Micha�l Delafosse souhaite "prot�ger et projeter" Montpellier vers l'avenir, en consolidant les acquis sociaux et �cologiques de son mandat.
+Micha�l Delafosse : une gauche de gestion, entre mobilit� gratuite et r�publicanisme assum�
+�lu maire de Montpellier en 2020, Micha�l Delafosse incarne une ligne politique singuli�re au sein de la gauche locale : � la fois
+social-d�mocrate dans sa gestion
+,
+volontariste sur les politiques de mobilit�
+, et
+fermement inscrit dans une tradition r�publicaine la�que
+h�rit�e du courant incarn� au niveau national par Manuel Valls et le Printemps r�publicain.
+Son premier mandat permet aujourd?hui de d�gager assez clairement les grandes orientations id�ologiques qui structurent son action municipale.
+Une politique de mobilit� comme marqueur central du mandat
+S?il ne fallait retenir qu?un seul axe fort du mandat Delafosse, ce serait celui des
+mobilit�s
+.
+La mise en place de la
+gratuit� des transports en commun pour les habitants de la m�tropole
+constitue l?un des actes politiques les plus visibles et les plus structurants du mandat. Annonc�e comme une mesure sociale et �cologique, elle s?inscrit aussi dans une volont� de transformation profonde des usages urbains :
+r�duction de la place de la voiture individuelle,
+am�lioration de l?accessibilit� des quartiers populaires,
+renforcement de l?attractivit� du r�seau de tramway,
+accompagnement du d�veloppement m�tropolitain.
+La cr�ation de la
+ligne 5 du tramway
+, la restructuration du r�seau de bus et l?affichage d?une ville � apais�e � sont autant d?�l�ments qui participent � ce r�cit politique : Montpellier comme m�tropole moderne, mobile et �cologique.
+Cependant, cette politique fait aussi l?objet de critiques :
+saturation de certains axes,
+sentiment de rel�gation de quartiers p�riph�riques moins bien desservis,
+difficult� � articuler gratuit� et qualit� de service sur le long terme.
+La mobilit� est ainsi � la fois
+le c?ur du projet politique de Delafosse
+et l?un de ses principaux points de tension.
+Une conception r�publicaine stricte de la la�cit�
+Sur le plan id�ologique, Micha�l Delafosse s?inscrit clairement dans une
+lecture r�publicaine classique de la la�cit�
+, souvent rapproch�e du courant dit du
+Printemps r�publicain
+.
+Cette ligne se caract�rise par :
+une d�fense stricte de la neutralit� de l?espace public,
+une m�fiance affich�e vis-�-vis des expressions religieuses visibles,
+une approche universaliste des politiques publiques, refusant toute lecture communautaire.
+Cette orientation l?a r�guli�rement amen� � se distinguer d?une partie de la gauche plus attentive aux enjeux de discriminations syst�miques ou de reconnaissance des minorit�s.
+Elle s?est notamment traduite par :
+des prises de position fermes sur la la�cit� dans l'espace public,
+un discours centr� sur la � R�publique une et indivisible �,
+une proximit� id�ologique assum�e avec certaines figures nationales du courant social-lib�ral r�publicain.
+Pour ses soutiens, cette ligne garantit la clart� et la coh�rence de l?action publique.
+Pour ses critiques, elle traduit une vision parfois jug�e
+rigide
+, voire d�connect�e des r�alit�s sociales contemporaines.
+Une gouvernance marqu�e par la stabilit� et la verticalit�
+Sur le plan institutionnel, le style Delafosse est celui d?un
+maire centralisateur
+, assumant pleinement le r�le d?ex�cutif fort.
+Son mandat s?est appuy� sur :
+une majorit� large mais disciplin�e,
+une articulation �troite entre mairie et m�tropole,
+une forte personnalisation de l?action publique.
+Cette m�thode lui permet de porter des projets d?envergure, mais alimente aussi les critiques sur :
+le manque de concertation r�elle avec les habitants,
+la faible place accord�e � la d�mocratie participative,
+une gouvernance per�ue comme technocratique.
+Une �cologie de gestion plus que de rupture
+Si l?�cologie est omnipr�sente dans la communication municipale, elle s?inscrit davantage dans une logique de
+transition encadr�e
+que de transformation radicale.
+Le projet de Delafosse repose sur :
+l?adaptation au changement climatique (�lots de fra�cheur, v�g�talisation),
+la r�duction progressive de la place de la voiture,
+la planification urbaine ma�tris�e.
+En revanche, les sujets plus conflictuels ? artificialisation des sols, mod�le �conomique de la m�tropole, attractivit� � tout prix ? restent largement absents du discours officiel ou trait�s sous un angle consensuel.
+Une ligne politique claire, mais clivante
+Au final, Micha�l Delafosse incarne une
+gauche de gouvernement
+, pragmatique, structur�e, assumant :
+une vision r�publicaine ferme,
+une priorit� donn�e � la gestion et � l?attractivit�,
+une �cologie compatible avec le d�veloppement m�tropolitain.
+Cette coh�rence est aussi sa principale fragilit� :
+elle laisse peu de place aux aspirations plus radicales sur le logement, la d�mocratie locale, la justice sociale ou la transition �cologique profonde.
+� l?approche des municipales de 2026, c?est donc moins la clart� de sa ligne que sa capacit� �
+convaincre au-del� de son socle
+qui constituera l?enjeu central de sa candidature.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+changement climatique
+culture
+enfance et �ducation
+environnement
+logement
+solidarit�
+sport
+s�curit�
+transport et mobilit�s
+enfance et �ducation
+�ducation, enfance et jeunesse
+Micha�l Delafosse place l'�ducation et l'�panouissement des enfants et des jeunes au c?ur de son projet de ville.
+Les axes forts :
+Restauration scolaire de qualit�
+: Maintien des cantines municipales avec une part croissante de produits locaux et bio, et tarification selon le quotient familial.
+Accueil p�riscolaire
+: D�veloppement de l'offre p�riscolaire (centres de loisirs, �tudes accompagn�es) pour r�pondre aux besoins des familles.
+R�novation des �coles
+: Programme pluriannuel de r�novation thermique et de mise aux normes des �coles primaires.
+�galit� des chances
+: Renforcement des dispositifs de soutien scolaire dans les quartiers prioritaires de la politique de la ville.
+Jeunesse et engagement
+: D�veloppement des maisons de la jeunesse, soutien aux associations �tudiantes et aux initiatives citoyennes des jeunes Montpelli�rains.
+logement
+environnement
+R�novation et embellissement de chaque quartier
+Micha�l Delafosse engage un vaste programme de r�novation pour que chaque quartier de Montpellier b�n�ficie d'am�liorations concr�tes et visibles.
+Les axes forts :
+R�novation thermique des logements
+: Soutien aux copropri�t�s et aux m�nages modestes pour financer la r�novation �nerg�tique, en compl�ment des aides nationales.
+Requalification des quartiers priorit
+[... truncated ...]
+
 --- File: listes_michael-delafosse_programme_coulees-vertes-espaces-publics.txt ---
 URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/coulees-vertes-espaces-publics/
 
@@ -1146,6 +1478,58 @@ Espaces publics apais�s
 : Adaptation de l'�clairage public pour pr�server la faune nocturne tout en maintenant la s�curit�.
 
 --- File: listes_michael-delafosse_programme_coulees-vertes-espaces-publics_3.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/coulees-vertes-espaces-publics
+
+TITLE: Coul�es vertes et embellissement des espaces publics � Demain Montpellier
+
+DESCRIPTION: Coul�es vertes et embellissement des espaces publics
+
+CONTENT:
+
+Retour � la liste
+environnement
+Coul�es vertes et embellissement des espaces publics
+Une mesure propos�e par Demain Montpellier
+Pour offrir � Montpellier un cadre de vie plus agr�able et plus frais, Micha�l Delafosse veut faire des grandes coul�es vertes la colonne vert�brale de la ville.
+Les axes forts :
+Coul�es vertes structurantes
+: Am�nagement de larges promenades arbor�es reliant le centre-ville aux parcs de la ville (Rimbaud, M�ric, Montmaur, etc.).
+V�g�talisation des cours d'�cole
+: Transformation de toutes les cours d'�cole en espaces mixtes, avec herbe, arbres et zones de fra�cheur.
+Jardins partag�s
+: Cr�ation de nouveaux jardins collectifs dans chaque quartier, g�r�s avec et par les habitants.
+Espaces publics apais�s
+: R�am�nagement de places et de rues pour favoriser la convivialit�, la biodiversit� et le bien-�tre animal.
+�clairage doux et biodiversit� nocturne
+: Adaptation de l'�clairage public pour pr�server la faune nocturne tout en maintenant la s�curit�.
+
+--- File: listes_michael-delafosse_programme_coulees-vertes-espaces-publics_4.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/coulees-vertes-espaces-publics/
+
+TITLE: Coul�es vertes et embellissement des espaces publics � Demain Montpellier
+
+DESCRIPTION: Coul�es vertes et embellissement des espaces publics
+
+CONTENT:
+
+Retour � la liste
+environnement
+Coul�es vertes et embellissement des espaces publics
+Une mesure propos�e par Demain Montpellier
+Pour offrir � Montpellier un cadre de vie plus agr�able et plus frais, Micha�l Delafosse veut faire des grandes coul�es vertes la colonne vert�brale de la ville.
+Les axes forts :
+Coul�es vertes structurantes
+: Am�nagement de larges promenades arbor�es reliant le centre-ville aux parcs de la ville (Rimbaud, M�ric, Montmaur, etc.).
+V�g�talisation des cours d'�cole
+: Transformation de toutes les cours d'�cole en espaces mixtes, avec herbe, arbres et zones de fra�cheur.
+Jardins partag�s
+: Cr�ation de nouveaux jardins collectifs dans chaque quartier, g�r�s avec et par les habitants.
+Espaces publics apais�s
+: R�am�nagement de places et de rues pour favoriser la convivialit�, la biodiversit� et le bien-�tre animal.
+�clairage doux et biodiversit� nocturne
+: Adaptation de l'�clairage public pour pr�server la faune nocturne tout en maintenant la s�curit�.
+
+--- File: listes_michael-delafosse_programme_coulees-vertes-espaces-publics_5.txt ---
 URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/coulees-vertes-espaces-publics
 
 TITLE: Coul�es vertes et embellissement des espaces publics � Demain Montpellier
@@ -1275,6 +1659,58 @@ R�novation des �coles
 Jeunesse et engagement
 : D�veloppement des maisons de la jeunesse, soutien aux associations �tudiantes et aux initiatives citoyennes des jeunes Montpelli�rains.
 
+--- File: listes_michael-delafosse_programme_education-enfance-jeunesse_4.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/education-enfance-jeunesse/
+
+TITLE: �ducation, enfance et jeunesse � Demain Montpellier
+
+DESCRIPTION: �ducation, enfance et jeunesse
+
+CONTENT:
+
+Retour � la liste
+enfance et �ducation
+�ducation, enfance et jeunesse
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse place l'�ducation et l'�panouissement des enfants et des jeunes au c?ur de son projet de ville.
+Les axes forts :
+Restauration scolaire de qualit�
+: Maintien des cantines municipales avec une part croissante de produits locaux et bio, et tarification selon le quotient familial.
+Accueil p�riscolaire
+: D�veloppement de l'offre p�riscolaire (centres de loisirs, �tudes accompagn�es) pour r�pondre aux besoins des familles.
+R�novation des �coles
+: Programme pluriannuel de r�novation thermique et de mise aux normes des �coles primaires.
+�galit� des chances
+: Renforcement des dispositifs de soutien scolaire dans les quartiers prioritaires de la politique de la ville.
+Jeunesse et engagement
+: D�veloppement des maisons de la jeunesse, soutien aux associations �tudiantes et aux initiatives citoyennes des jeunes Montpelli�rains.
+
+--- File: listes_michael-delafosse_programme_education-enfance-jeunesse_5.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/education-enfance-jeunesse
+
+TITLE: �ducation, enfance et jeunesse � Demain Montpellier
+
+DESCRIPTION: �ducation, enfance et jeunesse
+
+CONTENT:
+
+Retour � la liste
+enfance et �ducation
+�ducation, enfance et jeunesse
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse place l'�ducation et l'�panouissement des enfants et des jeunes au c?ur de son projet de ville.
+Les axes forts :
+Restauration scolaire de qualit�
+: Maintien des cantines municipales avec une part croissante de produits locaux et bio, et tarification selon le quotient familial.
+Accueil p�riscolaire
+: D�veloppement de l'offre p�riscolaire (centres de loisirs, �tudes accompagn�es) pour r�pondre aux besoins des familles.
+R�novation des �coles
+: Programme pluriannuel de r�novation thermique et de mise aux normes des �coles primaires.
+�galit� des chances
+: Renforcement des dispositifs de soutien scolaire dans les quartiers prioritaires de la politique de la ville.
+Jeunesse et engagement
+: D�veloppement des maisons de la jeunesse, soutien aux associations �tudiantes et aux initiatives citoyennes des jeunes Montpelli�rains.
+
 --- File: listes_michael-delafosse_programme_emploi-attractivite-economique.txt ---
 URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/emploi-attractivite-economique/
 
@@ -1354,6 +1790,58 @@ Insertion professionnelle
 : Renforcement des structures d'insertion par l'�conomique (SIAE) pour accompagner les publics �loign�s de l'emploi.
 
 --- File: listes_michael-delafosse_programme_emploi-attractivite-economique_3.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/emploi-attractivite-economique
+
+TITLE: Emploi et attractivit� �conomique � Demain Montpellier
+
+DESCRIPTION: Emploi et attractivit� �conomique
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+Emploi et attractivit� �conomique
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse mise sur le rayonnement �conomique de Montpellier pour cr�er des emplois et renforcer les fili�res locales, en s'appuyant sur les atouts du territoire.
+Les axes forts :
+Soutien aux entreprises locales
+: Renforcement des achats publics de proximit� et des clauses sociales dans les march�s municipaux pour favoriser l'emploi local.
+French Tech et num�rique
+: Soutien � l'�cosyst�me num�rique et � la French Tech Montpellier, qui repr�sente des milliers d'emplois qualifi�s.
+Campus et recherche
+: D�veloppement des liens universit�-entreprise et valorisation des start-ups issues des laboratoires montpelli�rains.
+Commerce de proximit�
+: Protection et soutien des commerces de centre-ville et de quartier face � la concurrence du e-commerce.
+Insertion professionnelle
+: Renforcement des structures d'insertion par l'�conomique (SIAE) pour accompagner les publics �loign�s de l'emploi.
+
+--- File: listes_michael-delafosse_programme_emploi-attractivite-economique_4.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/emploi-attractivite-economique/
+
+TITLE: Emploi et attractivit� �conomique � Demain Montpellier
+
+DESCRIPTION: Emploi et attractivit� �conomique
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+Emploi et attractivit� �conomique
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse mise sur le rayonnement �conomique de Montpellier pour cr�er des emplois et renforcer les fili�res locales, en s'appuyant sur les atouts du territoire.
+Les axes forts :
+Soutien aux entreprises locales
+: Renforcement des achats publics de proximit� et des clauses sociales dans les march�s municipaux pour favoriser l'emploi local.
+French Tech et num�rique
+: Soutien � l'�cosyst�me num�rique et � la French Tech Montpellier, qui repr�sente des milliers d'emplois qualifi�s.
+Campus et recherche
+: D�veloppement des liens universit�-entreprise et valorisation des start-ups issues des laboratoires montpelli�rains.
+Commerce de proximit�
+: Protection et soutien des commerces de centre-ville et de quartier face � la concurrence du e-commerce.
+Insertion professionnelle
+: Renforcement des structures d'insertion par l'�conomique (SIAE) pour accompagner les publics �loign�s de l'emploi.
+
+--- File: listes_michael-delafosse_programme_emploi-attractivite-economique_5.txt ---
 URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/emploi-attractivite-economique
 
 TITLE: Emploi et attractivit� �conomique � Demain Montpellier
@@ -1483,6 +1971,58 @@ Encadrement des meubl�s touristiques
 H�bergement d'urgence
 : D�veloppement de places d'h�bergement d'urgence et d'accompagnement vers le logement p�renne pour les personnes sans-abri.
 
+--- File: listes_michael-delafosse_programme_logement-abordable-bail-reel-solidaire_4.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/logement-abordable-bail-reel-solidaire/
+
+TITLE: Logement abordable et Bail R�el Solidaire � Demain Montpellier
+
+DESCRIPTION: Logement abordable et Bail R�el Solidaire
+
+CONTENT:
+
+Retour � la liste
+logement
+Logement abordable et Bail R�el Solidaire
+Une mesure propos�e par Demain Montpellier
+Pour que Montpellier reste accessible � toutes et tous, Micha�l Delafosse propose de d�multiplier les solutions de logement abordable, en particulier gr�ce au Bail R�el Solidaire.
+Les axes forts :
+Bail R�el Solidaire (BRS)
+: D�ploiement massif du BRS pour permettre aux m�nages modestes d'acc�der � la propri�t� sans acheter le foncier, avec un prix d'achat r�duit de 20 � 40 %.
+Construction de logements sociaux
+: Maintien d'un rythme soutenu de construction de logements sociaux dans les quartiers et en particulier dans les zones tendues.
+Lutte contre la vacance
+: Activation de dispositifs pour remettre sur le march� les logements vacants, notamment par des incitations fiscales et un accompagnement des propri�taires.
+Encadrement des meubl�s touristiques
+: Renforcement du contr�le des locations de type Airbnb pour pr�server l'offre de logements pour les r�sidents permanents.
+H�bergement d'urgence
+: D�veloppement de places d'h�bergement d'urgence et d'accompagnement vers le logement p�renne pour les personnes sans-abri.
+
+--- File: listes_michael-delafosse_programme_logement-abordable-bail-reel-solidaire_5.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/logement-abordable-bail-reel-solidaire
+
+TITLE: Logement abordable et Bail R�el Solidaire � Demain Montpellier
+
+DESCRIPTION: Logement abordable et Bail R�el Solidaire
+
+CONTENT:
+
+Retour � la liste
+logement
+Logement abordable et Bail R�el Solidaire
+Une mesure propos�e par Demain Montpellier
+Pour que Montpellier reste accessible � toutes et tous, Micha�l Delafosse propose de d�multiplier les solutions de logement abordable, en particulier gr�ce au Bail R�el Solidaire.
+Les axes forts :
+Bail R�el Solidaire (BRS)
+: D�ploiement massif du BRS pour permettre aux m�nages modestes d'acc�der � la propri�t� sans acheter le foncier, avec un prix d'achat r�duit de 20 � 40 %.
+Construction de logements sociaux
+: Maintien d'un rythme soutenu de construction de logements sociaux dans les quartiers et en particulier dans les zones tendues.
+Lutte contre la vacance
+: Activation de dispositifs pour remettre sur le march� les logements vacants, notamment par des incitations fiscales et un accompagnement des propri�taires.
+Encadrement des meubl�s touristiques
+: Renforcement du contr�le des locations de type Airbnb pour pr�server l'offre de logements pour les r�sidents permanents.
+H�bergement d'urgence
+: D�veloppement de places d'h�bergement d'urgence et d'accompagnement vers le logement p�renne pour les personnes sans-abri.
+
 --- File: listes_michael-delafosse_programme_pouvoir-achat-services-quotidien.txt ---
 URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/pouvoir-achat-services-quotidien/
 
@@ -1562,6 +2102,58 @@ Maintien des services de quartier
 : Pas de fermeture de mairies de quartier ni de services de proximit� ; renforcement des centres sociaux.
 
 --- File: listes_michael-delafosse_programme_pouvoir-achat-services-quotidien_3.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/pouvoir-achat-services-quotidien
+
+TITLE: Pouvoir d'achat et services du quotidien � Demain Montpellier
+
+DESCRIPTION: Pouvoir d'achat et services du quotidien
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+Pouvoir d'achat et services du quotidien
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse s'engage � renforcer les services de proximit� qui all�gent le quotidien des Montpelli�rains et � pr�server leur pouvoir d'achat.
+Les axes forts :
+Office du pouvoir d'achat
+: Cr�ation d'un guichet unique municipal pour aider les habitants � acc�der aux aides, tarifs sociaux et dispositifs existants (eau, �nergie, transports, alimentation).
+Tarification solidaire �largie
+: Extension de la tarification sociale dans les services municipaux (piscines, restauration scolaire, activit�s culturelles et sportives).
+Gratuit� des transports maintenue
+: Poursuite de la gratuit� totale du r�seau TAM pour tous les habitants de la m�tropole.
+�piceries sociales et alimentation
+: Soutien aux structures d'aide alimentaire et d�veloppement de l'acc�s � une alimentation de qualit� pour les m�nages modestes.
+Maintien des services de quartier
+: Pas de fermeture de mairies de quartier ni de services de proximit� ; renforcement des centres sociaux.
+
+--- File: listes_michael-delafosse_programme_pouvoir-achat-services-quotidien_4.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/pouvoir-achat-services-quotidien/
+
+TITLE: Pouvoir d'achat et services du quotidien � Demain Montpellier
+
+DESCRIPTION: Pouvoir d'achat et services du quotidien
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+Pouvoir d'achat et services du quotidien
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse s'engage � renforcer les services de proximit� qui all�gent le quotidien des Montpelli�rains et � pr�server leur pouvoir d'achat.
+Les axes forts :
+Office du pouvoir d'achat
+: Cr�ation d'un guichet unique municipal pour aider les habitants � acc�der aux aides, tarifs sociaux et dispositifs existants (eau, �nergie, transports, alimentation).
+Tarification solidaire �largie
+: Extension de la tarification sociale dans les services municipaux (piscines, restauration scolaire, activit�s culturelles et sportives).
+Gratuit� des transports maintenue
+: Poursuite de la gratuit� totale du r�seau TAM pour tous les habitants de la m�tropole.
+�piceries sociales et alimentation
+: Soutien aux structures d'aide alimentaire et d�veloppement de l'acc�s � une alimentation de qualit� pour les m�nages modestes.
+Maintien des services de quartier
+: Pas de fermeture de mairies de quartier ni de services de proximit� ; renforcement des centres sociaux.
+
+--- File: listes_michael-delafosse_programme_pouvoir-achat-services-quotidien_5.txt ---
 URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/pouvoir-achat-services-quotidien
 
 TITLE: Pouvoir d'achat et services du quotidien � Demain Montpellier
@@ -1695,6 +2287,60 @@ Patrimoine et espaces historiques
 Accessibilit� universelle
 : Mise en conformit� des espaces publics et b�timents municipaux pour les personnes � mobilit� r�duite.
 
+--- File: listes_michael-delafosse_programme_renovation-embellissement-quartiers_4.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/renovation-embellissement-quartiers/
+
+TITLE: R�novation et embellissement de chaque quartier � Demain Montpellier
+
+DESCRIPTION: R�novation et embellissement de chaque quartier
+
+CONTENT:
+
+Retour � la liste
+logement
+environnement
+R�novation et embellissement de chaque quartier
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse engage un vaste programme de r�novation pour que chaque quartier de Montpellier b�n�ficie d'am�liorations concr�tes et visibles.
+Les axes forts :
+R�novation thermique des logements
+: Soutien aux copropri�t�s et aux m�nages modestes pour financer la r�novation �nerg�tique, en compl�ment des aides nationales.
+Requalification des quartiers prioritaires
+: Poursuite du programme national de renouvellement urbain (ANRU) dans les quartiers comme La Mosson, Pas-du-Loup et Les C�vennes.
+Embellissement des centres de quartier
+: R�fection des trottoirs, de la signal�tique, du mobilier urbain et �clairage dans chaque centre de proximit�.
+Patrimoine et espaces historiques
+: Restauration des monuments, fontaines et espaces publics du centre historique.
+Accessibilit� universelle
+: Mise en conformit� des espaces publics et b�timents municipaux pour les personnes � mobilit� r�duite.
+
+--- File: listes_michael-delafosse_programme_renovation-embellissement-quartiers_5.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/renovation-embellissement-quartiers
+
+TITLE: R�novation et embellissement de chaque quartier � Demain Montpellier
+
+DESCRIPTION: R�novation et embellissement de chaque quartier
+
+CONTENT:
+
+Retour � la liste
+logement
+environnement
+R�novation et embellissement de chaque quartier
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse engage un vaste programme de r�novation pour que chaque quartier de Montpellier b�n�ficie d'am�liorations concr�tes et visibles.
+Les axes forts :
+R�novation thermique des logements
+: Soutien aux copropri�t�s et aux m�nages modestes pour financer la r�novation �nerg�tique, en compl�ment des aides nationales.
+Requalification des quartiers prioritaires
+: Poursuite du programme national de renouvellement urbain (ANRU) dans les quartiers comme La Mosson, Pas-du-Loup et Les C�vennes.
+Embellissement des centres de quartier
+: R�fection des trottoirs, de la signal�tique, du mobilier urbain et �clairage dans chaque centre de proximit�.
+Patrimoine et espaces historiques
+: Restauration des monuments, fontaines et espaces publics du centre historique.
+Accessibilit� universelle
+: Mise en conformit� des espaces publics et b�timents municipaux pour les personnes � mobilit� r�duite.
+
 --- File: listes_michael-delafosse_programme_securite-prevention-proximite.txt ---
 URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/securite-prevention-proximite/
 
@@ -1774,6 +2420,58 @@ Coordination police?justice
 : Renforcement de la coop�ration avec la police nationale et le parquet pour le traitement des incivilit�s et des d�lits.
 
 --- File: listes_michael-delafosse_programme_securite-prevention-proximite_3.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/securite-prevention-proximite
+
+TITLE: S�curit� : pr�vention et police de proximit� � Demain Montpellier
+
+DESCRIPTION: S�curit� : pr�vention et police de proximit�
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+S�curit� : pr�vention et police de proximit�
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse mise sur un renforcement significatif de la police municipale et de la vid�osurveillance, tout en maintenant un volet pr�vention.
+Les axes forts :
+100 agents suppl�mentaires
+: Doublement des effectifs de la police municipale pour atteindre 200 agents sur le terrain.
+Doublement des cam�ras
+: Extension du r�seau de vid�osurveillance pour couvrir l'ensemble des espaces publics sensibles.
+Pr�sence nocturne renforc�e
+: Des �quipes de police municipale pr�sentes 24h/24 dans les secteurs prioritaires.
+Pr�vention de la d�linquance
+: Maintien des dispositifs de m�diation sociale et des �ducateurs de rue dans les quartiers.
+Coordination police?justice
+: Renforcement de la coop�ration avec la police nationale et le parquet pour le traitement des incivilit�s et des d�lits.
+
+--- File: listes_michael-delafosse_programme_securite-prevention-proximite_4.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/securite-prevention-proximite/
+
+TITLE: S�curit� : pr�vention et police de proximit� � Demain Montpellier
+
+DESCRIPTION: S�curit� : pr�vention et police de proximit�
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+S�curit� : pr�vention et police de proximit�
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse mise sur un renforcement significatif de la police municipale et de la vid�osurveillance, tout en maintenant un volet pr�vention.
+Les axes forts :
+100 agents suppl�mentaires
+: Doublement des effectifs de la police municipale pour atteindre 200 agents sur le terrain.
+Doublement des cam�ras
+: Extension du r�seau de vid�osurveillance pour couvrir l'ensemble des espaces publics sensibles.
+Pr�sence nocturne renforc�e
+: Des �quipes de police municipale pr�sentes 24h/24 dans les secteurs prioritaires.
+Pr�vention de la d�linquance
+: Maintien des dispositifs de m�diation sociale et des �ducateurs de rue dans les quartiers.
+Coordination police?justice
+: Renforcement de la coop�ration avec la police nationale et le parquet pour le traitement des incivilit�s et des d�lits.
+
+--- File: listes_michael-delafosse_programme_securite-prevention-proximite_5.txt ---
 URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/securite-prevention-proximite
 
 TITLE: S�curit� : pr�vention et police de proximit� � Demain Montpellier
@@ -1881,6 +2579,60 @@ Acc�s � la culture pour tous
 : Tarification solidaire dans les mus�es, th��tres et salles de spectacle municipaux, et programmes d'�ducation artistique dans les �coles.
 
 --- File: listes_michael-delafosse_programme_sport-culture-rayonnement_3.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/sport-culture-rayonnement
+
+TITLE: Sport et culture : le rayonnement de Montpellier � Demain Montpellier
+
+DESCRIPTION: Sport et culture : le rayonnement de Montpellier
+
+CONTENT:
+
+Retour � la liste
+culture
+sport
+Sport et culture : le rayonnement de Montpellier
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse veut faire de Montpellier une ville o� le sport et la culture rassemblent et rayonnent bien au-del� de ses fronti�res.
+Les axes forts :
+Soutien aux clubs professionnels
+: Accompagnement du MHSC (football), du MHB (handball) et des autres clubs professionnels dans leur d�veloppement et leur ancrage local.
+Sport pour tous
+: D�veloppement de l'offre sportive de proximit�, maintien des cr�neaux horaires pour les associations et r�novation des �quipements sportifs de quartier.
+Culture vivante
+: Soutien � l'Op�ra Com�die, � l'Orchestre national de Montpellier, aux festivals (Printemps des Com�diens, Festival de Radio France) et aux structures culturelles de quartier.
+Rayonnement international
+: Renforcement des partenariats avec les festivals et institutions culturelles pour positionner Montpellier comme capitale culturelle du Sud de la France.
+Acc�s � la culture pour tous
+: Tarification solidaire dans les mus�es, th��tres et salles de spectacle municipaux, et programmes d'�ducation artistique dans les �coles.
+
+--- File: listes_michael-delafosse_programme_sport-culture-rayonnement_4.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/sport-culture-rayonnement/
+
+TITLE: Sport et culture : le rayonnement de Montpellier � Demain Montpellier
+
+DESCRIPTION: Sport et culture : le rayonnement de Montpellier
+
+CONTENT:
+
+Retour � la liste
+culture
+sport
+Sport et culture : le rayonnement de Montpellier
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse veut faire de Montpellier une ville o� le sport et la culture rassemblent et rayonnent bien au-del� de ses fronti�res.
+Les axes forts :
+Soutien aux clubs professionnels
+: Accompagnement du MHSC (football), du MHB (handball) et des autres clubs professionnels dans leur d�veloppement et leur ancrage local.
+Sport pour tous
+: D�veloppement de l'offre sportive de proximit�, maintien des cr�neaux horaires pour les associations et r�novation des �quipements sportifs de quartier.
+Culture vivante
+: Soutien � l'Op�ra Com�die, � l'Orchestre national de Montpellier, aux festivals (Printemps des Com�diens, Festival de Radio France) et aux structures culturelles de quartier.
+Rayonnement international
+: Renforcement des partenariats avec les festivals et institutions culturelles pour positionner Montpellier comme capitale culturelle du Sud de la France.
+Acc�s � la culture pour tous
+: Tarification solidaire dans les mus�es, th��tres et salles de spectacle municipaux, et programmes d'�ducation artistique dans les �coles.
+
+--- File: listes_michael-delafosse_programme_sport-culture-rayonnement_5.txt ---
 URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/sport-culture-rayonnement
 
 TITLE: Sport et culture : le rayonnement de Montpellier � Demain Montpellier
@@ -2015,6 +2767,60 @@ Adaptation climatique
 Plan Biodiversit�
 : Protection des zones humides, des ripisylves et des corridors �cologiques autour de la ville.
 
+--- File: listes_michael-delafosse_programme_transition-ecologique-ville-parc_4.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/transition-ecologique-ville-parc/
+
+TITLE: Transition �cologique : la Ville-Parc � Demain Montpellier
+
+DESCRIPTION: Transition �cologique : la Ville-Parc
+
+CONTENT:
+
+Retour � la liste
+changement climatique
+environnement
+Transition �cologique : la Ville-Parc
+Une mesure propos�e par Demain Montpellier
+Le projet phare de Micha�l Delafosse pour son second mandat est la � Ville-Parc � : transformer Montpellier en ville r�siliente face au changement climatique, en alliant v�g�talisation, sobri�t� �nerg�tique et adaptation urbaine.
+Les axes forts :
+Coul�es vertes et canop�e
+: Plantation de 100 000 arbres suppl�mentaires et cr�ation de corridors verts reliant les parcs et les quartiers.
+D�simperm�abilisation des sols
+: Transformation de parkings et de places min�rales en espaces v�g�talis�s pour lutter contre les �lots de chaleur.
+�nergie solaire
+: D�veloppement du photovolta�que sur les b�timents publics et soutien aux communaut�s �nerg�tiques locales.
+Adaptation climatique
+: Plans de chaleur et d'inondation actualis�s, avec des fontaines et des brumisateurs dans l'espace public.
+Plan Biodiversit�
+: Protection des zones humides, des ripisylves et des corridors �cologiques autour de la ville.
+
+--- File: listes_michael-delafosse_programme_transition-ecologique-ville-parc_5.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/transition-ecologique-ville-parc
+
+TITLE: Transition �cologique : la Ville-Parc � Demain Montpellier
+
+DESCRIPTION: Transition �cologique : la Ville-Parc
+
+CONTENT:
+
+Retour � la liste
+changement climatique
+environnement
+Transition �cologique : la Ville-Parc
+Une mesure propos�e par Demain Montpellier
+Le projet phare de Micha�l Delafosse pour son second mandat est la � Ville-Parc � : transformer Montpellier en ville r�siliente face au changement climatique, en alliant v�g�talisation, sobri�t� �nerg�tique et adaptation urbaine.
+Les axes forts :
+Coul�es vertes et canop�e
+: Plantation de 100 000 arbres suppl�mentaires et cr�ation de corridors verts reliant les parcs et les quartiers.
+D�simperm�abilisation des sols
+: Transformation de parkings et de places min�rales en espaces v�g�talis�s pour lutter contre les �lots de chaleur.
+�nergie solaire
+: D�veloppement du photovolta�que sur les b�timents publics et soutien aux communaut�s �nerg�tiques locales.
+Adaptation climatique
+: Plans de chaleur et d'inondation actualis�s, avec des fontaines et des brumisateurs dans l'espace public.
+Plan Biodiversit�
+: Protection des zones humides, des ripisylves et des corridors �cologiques autour de la ville.
+
 --- File: listes_michael-delafosse_programme_transports-decarbones-mobilites.txt ---
 URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/transports-decarbones-mobilites/
 
@@ -2094,6 +2900,58 @@ Intermodalit�
 : D�veloppement des p�les d'�changes pour faciliter la combinaison v�lo + tramway + bus et r�duire la place de la voiture individuelle.
 
 --- File: listes_michael-delafosse_programme_transports-decarbones-mobilites_3.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/transports-decarbones-mobilites
+
+TITLE: Transports d�carbon�s et mobilit�s durables � Demain Montpellier
+
+DESCRIPTION: Transports d�carbon�s et mobilit�s durables
+
+CONTENT:
+
+Retour � la liste
+transport et mobilit�s
+Transports d�carbon�s et mobilit�s durables
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse poursuit l'ambition montpelli�raine en mati�re de transports publics gratuits et durables, tout en d�veloppant les mobilit�s douces.
+Les axes forts :
+Gratuit� totale des transports
+: Maintien et extension de la gratuit� du r�seau TAM pour tous les habitants de la m�tropole.
+Ligne 5 du tramway
+: Lancement du projet de 5e ligne de tramway pour desservir les quartiers nord et les nouvelles zones d'habitation.
+R�seau cyclable
+: D�veloppement d'un r�seau cyclable s�curis� et continu � l'�chelle de la ville, avec des pistes s�par�es et du stationnement v�lo.
+Bus �lectriques
+: Poursuite du verdissement de la flotte de bus avec des v�hicules �lectriques ou � hydrog�ne.
+Intermodalit�
+: D�veloppement des p�les d'�changes pour faciliter la combinaison v�lo + tramway + bus et r�duire la place de la voiture individuelle.
+
+--- File: listes_michael-delafosse_programme_transports-decarbones-mobilites_4.txt ---
+URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/transports-decarbones-mobilites/
+
+TITLE: Transports d�carbon�s et mobilit�s durables � Demain Montpellier
+
+DESCRIPTION: Transports d�carbon�s et mobilit�s durables
+
+CONTENT:
+
+Retour � la liste
+transport et mobilit�s
+Transports d�carbon�s et mobilit�s durables
+Une mesure propos�e par Demain Montpellier
+Micha�l Delafosse poursuit l'ambition montpelli�raine en mati�re de transports publics gratuits et durables, tout en d�veloppant les mobilit�s douces.
+Les axes forts :
+Gratuit� totale des transports
+: Maintien et extension de la gratuit� du r�seau TAM pour tous les habitants de la m�tropole.
+Ligne 5 du tramway
+: Lancement du projet de 5e ligne de tramway pour desservir les quartiers nord et les nouvelles zones d'habitation.
+R�seau cyclable
+: D�veloppement d'un r�seau cyclable s�curis� et continu � l'�chelle de la ville, avec des pistes s�par�es et du stationnement v�lo.
+Bus �lectriques
+: Poursuite du verdissement de la flotte de bus avec des v�hicules �lectriques ou � hydrog�ne.
+Intermodalit�
+: D�veloppement des p�les d'�changes pour faciliter la combinaison v�lo + tramway + bus et r�duire la place de la voiture individuelle.
+
+--- File: listes_michael-delafosse_programme_transports-decarbones-mobilites_5.txt ---
 URL: https://montpellier-municipales.fr/listes/michael-delafosse/programme/transports-decarbones-mobilites
 
 TITLE: Transports d�carbon�s et mobilit�s durables � Demain Montpellier
@@ -2689,6 +3547,284 @@ Relogement sans d�placement
 : refus des politiques de dispersion d
 [... truncated ...]
 
+--- File: listes_la-france-insoumise_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise
+
+TITLE: Faire mieux pour Montpellier � Nathalie Oziol
+
+DESCRIPTION: Pr�sentation de la liste Faire mieux pour Montpellier et de sa t�te de liste Nathalie Oziol qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Faire mieux pour Montpellier
+T�te de liste�: Nathalie Oziol
+La France Insoumise
+Cause Commune
+REV (R�volution �cologique pour le Vivant)
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Derni�res actualit�s
+Faire mieux pour Montpellier
+est la liste de rassemblement de la gauche radicale et de l'�cologie populaire pour les �lections municipales de 2026. Port�e initialement par
+La France insoumise (LFI)
+, elle s'est �largie pour devenir le principal p�le d'alternative aux politiques m�tropolitaines actuelles.
+La liste rassemble d�sormais :
+La France insoumise (LFI)
+: mouvement antilib�ral, �cologiste et r�publicain.
+Cause Commune
+: collectif citoyen ancr� dans les quartiers et engag� pour la d�mocratie locale.
+La REV (R�volution �cologique pour le Vivant)
+: organisation �cologiste antisp�ciste et radicale.
+Des personnalit�s issues de l'�cologie politique
+, comme Julia Mignacca, et des mouvements sociaux.
+La liste est conduite par
+Nathalie Oziol
+, d�put�e de l?H�rault.
+Nathalie Oziol et le rassemblement de la gauche
+Nathalie Oziol est d�put�e de la
+2? circonscription de l?H�rault
+. Elle est engag�e de longue date dans les mobilisations sociales et politiques locales, et intervient r�guli�rement sur des sujets li�s aux services publics, � la pr�carit�, � l?�cologie et aux libert�s publiques.
+Sa candidature incarne une volont� de
+f�d�rer les forces de transformation sociale et �cologique
+autour d'un projet de rupture avec la gestion municipale sortante. Le ralliement de Cause Commune, de la REV et de figures comme Julia Mignacca marque une �tape cl� dans la construction de ce p�le de gauche assum�.
+Une strat�gie de rassemblement pour la transformation sociale
+Pour les municipales de 2026, la liste
+Faire mieux pour Montpellier
+marque un tournant. Si elle s'appuie sur le socle programmatique de La France insoumise, elle revendique d�sormais une
+dynamique de rassemblement large
+avec les forces citoyennes (Cause Commune) et l'�cologie radicale (la REV, Julia Mignacca).
+� Montpellier, cette strat�gie se traduit par :
+la construction d'un
+p�le de rupture
+capable de s'opposer frontalement � la majorit� socialiste sortante ;
+le refus de la m�tropolisation in�galitaire et de la gestion lib�rale de la ville ;
+l'affirmation d'un projet municipal ancr� dans les luttes sociales et l'�cologie populaire.
+Positionnement politique local
+La liste se situe dans une
+opposition frontale � la municipalit� socialiste actuelle
+. Les forces qui la composent d�noncent une gestion jug�e au service des int�r�ts priv�s et de la sp�culation immobili�re, au d�triment des services publics et du cadre de vie.
+Parmi les critiques structurantes figurent :
+la gouvernance m�tropolitaine, jug�e opaque et d�connect�e des besoins des habitant�es ;
+la b�tonisation et la gentrification des quartiers populaires ;
+l'instrumentalisation des enjeux �cologiques sans r�elle volont� de transformation sociale.
+La liste revendique ainsi la construction d?une
+alternative municipale citoyenne
+, s?appuyant sur les quartiers populaires, les communes de la m�tropole et les mobilisations sociales.
+Axes programmatiques du rassemblement
+Le programme de la liste, enrichi par les contributions de Cause Commune et de la REV, s'articule autour de plusieurs axes cl�s :
+D�mocratie locale et pouvoir citoyen
+: transformation radicale de la gouvernance pour redonner le pouvoir aux habitant�es (Cause Commune) ;
+�cologie radicale et antisp�cisme
+: d�fense du vivant, sortie du modelo extractiviste et justice climatique (la REV) ;
+Justice sociale et services publics
+: d�fense des services publics, lutte contre la pr�carit� et gratuit� des besoins essentiels ;
+Logement et lutte contre la sp�culation
+: encadrement strict des lloyers, arr�t des grands projets immobiliers inutiles et droit au logement pour toutes et tous.
+Une articulation entre enjeux locaux et nationaux
+Faire mieux pour Montpellier
+assume une lecture politique selon laquelle les politiques municipales sont le premier levier de r�sistance aux politiques n�olib�rales. La candidature de Nathalie Oziol s'inscrit dans cette volont� de faire de Montpellier une ville pionni�re du changement social et �cologique.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+alimentation
+bien �tre animal
+changement climatique
+culture
+d�chets
+d�mocratie
+enfance et �ducation
+environnement
+gestion de l'eau
+logement
+sant�
+solidarit�
+sport
+s�curit�
+transport et mobilit�s
+�mancipation et justice sociale
+solidarit�
+d�mocratie
+Paix et relations internationales : une ville engag�e dans le monde
+Les villes ont un r�le � jouer dans la politique internationale : elles peuvent refuser les partenariats avec des r�gimes violant le droit international et devenir des espaces de solidarit� concr�te. Nathalie Oziol propose une politique de coop�ration d�centralis�e fond�e sur la paix et les droits humains.
+Les axes forts :
+Suspension du partenariat avec Tib�riade
+: suspendre les accords avec la ville isra�lienne de Tib�riade tant que le droit international n'est pas respect� � Gaza et en Cisjordanie, en conditionnant tout partenariat au respect des droits humains.
+Montpellier ville pour la paix
+: adoption d'une charte municipale en faveur du d�sarmement, de la diplomatie et de la r�solution non-violente des conflits.
+Revitalisation des partenariats existants
+: renforcer les coop�rations avec Louisville, Heidelberg, Yaound� et d'autres villes partenaires autour de projets concrets.
+Maison des relations internationales populaire
+: transformer cet espace en lieu d'�ducation populaire aux enjeux internationaux, ouvert � toutes et tous.
+Bureau municipal de solidarit� internationale
+: structure d�di�e pour coordonner et soutenir les actions de solidarit� avec les peuples en lutte.
+Soutien aux associations de solidarit�
+: financement p�renne des associations montpelli�raines engag�es dans la coop�ration internationale et l'aide humanitaire.
+Valorisation des cultures du monde
+: programmation culturelle internationale, soutien aux langues minoritaires et aux expressions culturelles des communaut�s pr�sentes � Montpellier.
+d�mocratie
+D�mocratie citoyenne : le pouvoir aux habitant�es
+La d�mocratie repr�sentative � Montpellier est en crise : faible participation, d�cisions prises sans concertation r�elle, �lu�es coup�es des habitant�es. Nathalie Oziol veut une r�volution d�mocratique locale, inspir�e des pratiques participatives les plus avanc�es.
+Les axes forts :
+Assembl�e citoyenne
+: cr�ation d'une assembl�e tir�e au sort, repr�sentative de la diversit� montpelli�raine, avec pouvoir d�lib�ratif r�el sur les grandes orientations.
+R�f�rendum d'initiative citoyenne (RIC) local
+: m�canisme permettant aux habitant�es de proposer et d'imposer un vote sur tout sujet municipal, avec un seuil de signatures raisonnable.
+Droit de r�vocation des �lu�es
+: possibilit� pour les citoyen�nes de destituer un�e �lu�e en cours de mandat par voie p�titionnaire.
+Conventions citoyennes par tirage au sort
+: pour chaque grand sujet (mobilit�s, alimentation, r�novation urbaine), une convention citoyenne d�lib�rative avec suivi des recommandations.
+Droit de p�tition effectif
+: toute p�tition atteignant un seuil minimal d�clenchera automatiquement une discussion au conseil municipal.
+Vote � 16 ans
+: extension du droit de vote aux jeunes de 16 ans pour les scrutins municipaux et les consultations locales.
+Transparence des d�penses m�diatiques
+: publication des budgets de communication et d'achat publicitaire de la Ville.
+Renforcement de la mairie centrale
+: r�affirmer le r�le de la mairie comme institution d�mocratique face aux op�rateurs priv�s.
+Conseils de quartier � pouvoir r�el
+: �lection directe des membres, budget propre, 
+[... truncated ...]
+
+--- File: listes_la-france-insoumise_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/
+
+TITLE: Faire mieux pour Montpellier � Nathalie Oziol
+
+DESCRIPTION: Pr�sentation de la liste Faire mieux pour Montpellier et de sa t�te de liste Nathalie Oziol qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Faire mieux pour Montpellier
+T�te de liste�: Nathalie Oziol
+La France Insoumise
+Cause Commune
+REV (R�volution �cologique pour le Vivant)
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Derni�res actualit�s
+Faire mieux pour Montpellier
+est la liste de rassemblement de la gauche radicale et de l'�cologie populaire pour les �lections municipales de 2026. Port�e initialement par
+La France insoumise (LFI)
+, elle s'est �largie pour devenir le principal p�le d'alternative aux politiques m�tropolitaines actuelles.
+La liste rassemble d�sormais :
+La France insoumise (LFI)
+: mouvement antilib�ral, �cologiste et r�publicain.
+Cause Commune
+: collectif citoyen ancr� dans les quartiers et engag� pour la d�mocratie locale.
+La REV (R�volution �cologique pour le Vivant)
+: organisation �cologiste antisp�ciste et radicale.
+Des personnalit�s issues de l'�cologie politique
+, comme Julia Mignacca, et des mouvements sociaux.
+La liste est conduite par
+Nathalie Oziol
+, d�put�e de l?H�rault.
+Nathalie Oziol et le rassemblement de la gauche
+Nathalie Oziol est d�put�e de la
+2? circonscription de l?H�rault
+. Elle est engag�e de longue date dans les mobilisations sociales et politiques locales, et intervient r�guli�rement sur des sujets li�s aux services publics, � la pr�carit�, � l?�cologie et aux libert�s publiques.
+Sa candidature incarne une volont� de
+f�d�rer les forces de transformation sociale et �cologique
+autour d'un projet de rupture avec la gestion municipale sortante. Le ralliement de Cause Commune, de la REV et de figures comme Julia Mignacca marque une �tape cl� dans la construction de ce p�le de gauche assum�.
+Une strat�gie de rassemblement pour la transformation sociale
+Pour les municipales de 2026, la liste
+Faire mieux pour Montpellier
+marque un tournant. Si elle s'appuie sur le socle programmatique de La France insoumise, elle revendique d�sormais une
+dynamique de rassemblement large
+avec les forces citoyennes (Cause Commune) et l'�cologie radicale (la REV, Julia Mignacca).
+� Montpellier, cette strat�gie se traduit par :
+la construction d'un
+p�le de rupture
+capable de s'opposer frontalement � la majorit� socialiste sortante ;
+le refus de la m�tropolisation in�galitaire et de la gestion lib�rale de la ville ;
+l'affirmation d'un projet municipal ancr� dans les luttes sociales et l'�cologie populaire.
+Positionnement politique local
+La liste se situe dans une
+opposition frontale � la municipalit� socialiste actuelle
+. Les forces qui la composent d�noncent une gestion jug�e au service des int�r�ts priv�s et de la sp�culation immobili�re, au d�triment des services publics et du cadre de vie.
+Parmi les critiques structurantes figurent :
+la gouvernance m�tropolitaine, jug�e opaque et d�connect�e des besoins des habitant�es ;
+la b�tonisation et la gentrification des quartiers populaires ;
+l'instrumentalisation des enjeux �cologiques sans r�elle volont� de transformation sociale.
+La liste revendique ainsi la construction d?une
+alternative municipale citoyenne
+, s?appuyant sur les quartiers populaires, les communes de la m�tropole et les mobilisations sociales.
+Axes programmatiques du rassemblement
+Le programme de la liste, enrichi par les contributions de Cause Commune et de la REV, s'articule autour de plusieurs axes cl�s :
+D�mocratie locale et pouvoir citoyen
+: transformation radicale de la gouvernance pour redonner le pouvoir aux habitant�es (Cause Commune) ;
+�cologie radicale et antisp�cisme
+: d�fense du vivant, sortie du modelo extractiviste et justice climatique (la REV) ;
+Justice sociale et services publics
+: d�fense des services publics, lutte contre la pr�carit� et gratuit� des besoins essentiels ;
+Logement et lutte contre la sp�culation
+: encadrement strict des lloyers, arr�t des grands projets immobiliers inutiles et droit au logement pour toutes et tous.
+Une articulation entre enjeux locaux et nationaux
+Faire mieux pour Montpellier
+assume une lecture politique selon laquelle les politiques municipales sont le premier levier de r�sistance aux politiques n�olib�rales. La candidature de Nathalie Oziol s'inscrit dans cette volont� de faire de Montpellier une ville pionni�re du changement social et �cologique.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+alimentation
+bien �tre animal
+changement climatique
+culture
+d�chets
+d�mocratie
+enfance et �ducation
+environnement
+gestion de l'eau
+logement
+sant�
+solidarit�
+sport
+s�curit�
+transport et mobilit�s
+�mancipation et justice sociale
+solidarit�
+d�mocratie
+Paix et relations internationales : une ville engag�e dans le monde
+Les villes ont un r�le � jouer dans la politique internationale : elles peuvent refuser les partenariats avec des r�gimes violant le droit international et devenir des espaces de solidarit� concr�te. Nathalie Oziol propose une politique de coop�ration d�centralis�e fond�e sur la paix et les droits humains.
+Les axes forts :
+Suspension du partenariat avec Tib�riade
+: suspendre les accords avec la ville isra�lienne de Tib�riade tant que le droit international n'est pas respect� � Gaza et en Cisjordanie, en conditionnant tout partenariat au respect des droits humains.
+Montpellier ville pour la paix
+: adoption d'une charte municipale en faveur du d�sarmement, de la diplomatie et de la r�solution non-violente des conflits.
+Revitalisation des partenariats existants
+: renforcer les coop�rations avec Louisville, Heidelberg, Yaound� et d'autres villes partenaires autour de projets concrets.
+Maison des relations internationales populaire
+: transformer cet espace en lieu d'�ducation populaire aux enjeux internationaux, ouvert � toutes et tous.
+Bureau municipal de solidarit� internationale
+: structure d�di�e pour coordonner et soutenir les actions de solidarit� avec les peuples en lutte.
+Soutien aux associations de solidarit�
+: financement p�renne des associations montpelli�raines engag�es dans la coop�ration internationale et l'aide humanitaire.
+Valorisation des cultures du monde
+: programmation culturelle internationale, soutien aux langues minoritaires et aux expressions culturelles des communaut�s pr�sentes � Montpellier.
+d�mocratie
+D�mocratie citoyenne : le pouvoir aux habitant�es
+La d�mocratie repr�sentative � Montpellier est en crise : faible participation, d�cisions prises sans concertation r�elle, �lu�es coup�es des habitant�es. Nathalie Oziol veut une r�volution d�mocratique locale, inspir�e des pratiques participatives les plus avanc�es.
+Les axes forts :
+Assembl�e citoyenne
+: cr�ation d'une assembl�e tir�e au sort, repr�sentative de la diversit� montpelli�raine, avec pouvoir d�lib�ratif r�el sur les grandes orientations.
+R�f�rendum d'initiative citoyenne (RIC) local
+: m�canisme permettant aux habitant�es de proposer et d'imposer un vote sur tout sujet municipal, avec un seuil de signatures raisonnable.
+Droit de r�vocation des �lu�es
+: possibilit� pour les citoyen�nes de destituer un�e �lu�e en cours de mandat par voie p�titionnaire.
+Conventions citoyennes par tirage au sort
+: pour chaque grand sujet (mobilit�s, alimentation, r�novation urbaine), une convention citoyenne d�lib�rative avec suivi des recommandations.
+Droit de p�tition effectif
+: toute p�tition atteignant un seuil minimal d�clenchera automatiquement une discussion au conseil municipal.
+Vote � 16 ans
+: extension du droit de vote aux jeunes de 16 ans pour les scrutins municipaux et les consultations locales.
+Transparence des d�penses m�diatiques
+: publication des budgets de communication et d'achat publicitaire de la Ville.
+Renforcement de la mairie centrale
+: r�affirmer le r�le de la mairie comme institution d�mocratique face aux op�rateurs priv�s.
+Conseils de quartier � pouvoir r�el
+: �lection directe des membres, budget propre,
+[... truncated ...]
+
 --- File: listes_la-france-insoumise_programme_alimentation-agriculture.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/alimentation-agriculture/
 
@@ -2789,6 +3925,72 @@ V�g�talisation de la restauration collective
 : 50 % de repas v�g�tariens dans les cantines scolaires et municipales d'ici 2028, cap vers une alimentation sans produits animaux industriels.
 
 --- File: listes_la-france-insoumise_programme_alimentation-agriculture_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/alimentation-agriculture
+
+TITLE: Alimentation et agriculture : manger bien, manger juste � Faire mieux pour Montpellier
+
+DESCRIPTION: Alimentation et agriculture : manger bien, manger juste
+
+CONTENT:
+
+Retour � la liste
+alimentation
+environnement
+Alimentation et agriculture : manger bien, manger juste
+Une mesure propos�e par Faire mieux pour Montpellier
+L'alimentation est un enjeu de sant� publique, de justice sociale et de transition �cologique. � Montpellier, trop de familles ne mangent pas � leur faim, tandis que la grande distribution et l'agro-industrie imposent leurs logiques. Nathalie Oziol veut une ville qui garantit l'acc�s � une alimentation saine et locale.
+Les axes forts :
+Restaurants populaires bio municipaux
+: cr�ation de cantines de quartier � prix libre ou tr�s bas, avec des produits bio et locaux, ouvertes � toutes et tous.
+Protection des terres agricoles
+: moratoire sur l'artificialisation, classement des terres cultivables p�riurbaines.
+Foncier agricole solidaire
+: cr�ation d'un foncier agricole municipal pour installer des paysan�nes en agriculture biologique.
+Outils de transformation alimentaire
+: l�gumeries, cuisines centrales partag�es, ateliers de conserverie � disposition des producteurs locaux.
+Gouvernance alimentaire d�mocratique
+: conseil municipal de l'alimentation associant producteurs, consommateurs, associations et habitant�es.
+S�curit� alimentaire
+: d�veloppement des �piceries sociales et solidaires, aide alimentaire sans stigmatisation.
+Circuits courts et alimentation locale
+: march�s paysans, achats directs dans la restauration collective, soutien aux AMAP.
+V�g�talisation de la restauration collective
+: 50 % de repas v�g�tariens dans les cantines scolaires et municipales d'ici 2028, cap vers une alimentation sans produits animaux industriels.
+
+--- File: listes_la-france-insoumise_programme_alimentation-agriculture_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/alimentation-agriculture/
+
+TITLE: Alimentation et agriculture : manger bien, manger juste � Faire mieux pour Montpellier
+
+DESCRIPTION: Alimentation et agriculture : manger bien, manger juste
+
+CONTENT:
+
+Retour � la liste
+alimentation
+environnement
+Alimentation et agriculture : manger bien, manger juste
+Une mesure propos�e par Faire mieux pour Montpellier
+L'alimentation est un enjeu de sant� publique, de justice sociale et de transition �cologique. � Montpellier, trop de familles ne mangent pas � leur faim, tandis que la grande distribution et l'agro-industrie imposent leurs logiques. Nathalie Oziol veut une ville qui garantit l'acc�s � une alimentation saine et locale.
+Les axes forts :
+Restaurants populaires bio municipaux
+: cr�ation de cantines de quartier � prix libre ou tr�s bas, avec des produits bio et locaux, ouvertes � toutes et tous.
+Protection des terres agricoles
+: moratoire sur l'artificialisation, classement des terres cultivables p�riurbaines.
+Foncier agricole solidaire
+: cr�ation d'un foncier agricole municipal pour installer des paysan�nes en agriculture biologique.
+Outils de transformation alimentaire
+: l�gumeries, cuisines centrales partag�es, ateliers de conserverie � disposition des producteurs locaux.
+Gouvernance alimentaire d�mocratique
+: conseil municipal de l'alimentation associant producteurs, consommateurs, associations et habitant�es.
+S�curit� alimentaire
+: d�veloppement des �piceries sociales et solidaires, aide alimentaire sans stigmatisation.
+Circuits courts et alimentation locale
+: march�s paysans, achats directs dans la restauration collective, soutien aux AMAP.
+V�g�talisation de la restauration collective
+: 50 % de repas v�g�tariens dans les cantines scolaires et municipales d'ici 2028, cap vers une alimentation sans produits animaux industriels.
+
+--- File: listes_la-france-insoumise_programme_alimentation-agriculture_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/alimentation-agriculture
 
 TITLE: Alimentation et agriculture : manger bien, manger juste � Faire mieux pour Montpellier
@@ -2985,6 +4187,88 @@ Apprentissage du fran�ais
 Institut d'histoire coloniale
 : cr�ation d'un espace de recherche et de m�diation sur l'histoire coloniale de Montpellier et de la France.
 
+--- File: listes_la-france-insoumise_programme_antiracisme_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/antiracisme/
+
+TITLE: Antiracisme : une ville qui prot�ge et lutte contre toutes les discriminations � Faire mieux pour Montpellier
+
+DESCRIPTION: Antiracisme : une ville qui prot�ge et lutte contre toutes les discriminations
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+�mancipation et justice sociale
+Antiracisme : une ville qui prot�ge et lutte contre toutes les discriminations
+Une mesure propos�e par Faire mieux pour Montpellier
+Le racisme et les discriminations persistent � Montpellier comme partout en France : dans l'acc�s au logement, � l'emploi, dans les contr�les policiers, et parfois au sein m�me des services publics. Nathalie Oziol veut une ville qui s'engage pleinement contre toutes les formes de discrimination.
+Les axes forts :
+Fin de l'instrumentalisation de la la�cit�
+: ne pas utiliser le principe de la�cit� pour cibler des pratiques religieuses ou discriminer des habitant�es, notamment les femmes voil�es.
+Constitution de partie civile
+: engager la Ville comme partie civile dans les proc�dures judiciaires concernant des actes racistes visant des habitant�es montpelli�rains.
+Formation de tous les agents publics
+: formation obligatoire et r�guli�re de l'ensemble des agent�es municipaux aux discriminations, � la d�ontologie et � l'�galit� de traitement.
+Service public municipal exemplaire
+: z�ro tol�rance pour les comportements discriminatoires dans les services de la Ville, proc�dures de signalement accessibles.
+Observatoire des discriminations
+: structure ind�pendante de suivi des discriminations � Montpellier, avec publication annuelle d'un rapport public.
+Protection des �tranger�es pr�caires
+: soutien aux sans-papiers, aux demandeur�ses d'asile, acc�s garanti aux services essentiels sans condition de titre de s�jour.
+Dispositifs d'accueil et d'accompagnement
+: cr�ation de structures municipales d'orientation pour les victimes de discrimination.
+Politique municipale d'�ducation et de pr�vention
+: programmes dans les �coles, espaces culturels et associations pour d�construire les pr�jug�s et promouvoir le vivre-ensemble.
+Droits des gens du voyage
+: garantie d'aires d'accueil dignes et fonctionnelles, fin des expulsions arbitraires.
+M�moires de la lutte antiraciste
+: reconnaissance et transmission des luttes historiques contre le colonialisme et le racisme ; soutien aux lieux de m�moire.
+Apprentissage du fran�ais
+: programmes d'alphab�tisation et de cours de fran�ais langue �trang�re accessibles et gratuits pour tous les r�sidents.
+Institut d'histoire coloniale
+: cr�ation d'un espace de recherche et de m�diation sur l'histoire coloniale de Montpellier et de la France.
+
+--- File: listes_la-france-insoumise_programme_antiracisme_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/antiracisme
+
+TITLE: Antiracisme : une ville qui prot�ge et lutte contre toutes les discriminations � Faire mieux pour Montpellier
+
+DESCRIPTION: Antiracisme : une ville qui prot�ge et lutte contre toutes les discriminations
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+�mancipation et justice sociale
+Antiracisme : une ville qui prot�ge et lutte contre toutes les discriminations
+Une mesure propos�e par Faire mieux pour Montpellier
+Le racisme et les discriminations persistent � Montpellier comme partout en France : dans l'acc�s au logement, � l'emploi, dans les contr�les policiers, et parfois au sein m�me des services publics. Nathalie Oziol veut une ville qui s'engage pleinement contre toutes les formes de discrimination.
+Les axes forts :
+Fin de l'instrumentalisation de la la�cit�
+: ne pas utiliser le principe de la�cit� pour cibler des pratiques religieuses ou discriminer des habitant�es, notamment les femmes voil�es.
+Constitution de partie civile
+: engager la Ville comme partie civile dans les proc�dures judiciaires concernant des actes racistes visant des habitant�es montpelli�rains.
+Formation de tous les agents publics
+: formation obligatoire et r�guli�re de l'ensemble des agent�es municipaux aux discriminations, � la d�ontologie et � l'�galit� de traitement.
+Service public municipal exemplaire
+: z�ro tol�rance pour les comportements discriminatoires dans les services de la Ville, proc�dures de signalement accessibles.
+Observatoire des discriminations
+: structure ind�pendante de suivi des discriminations � Montpellier, avec publication annuelle d'un rapport public.
+Protection des �tranger�es pr�caires
+: soutien aux sans-papiers, aux demandeur�ses d'asile, acc�s garanti aux services essentiels sans condition de titre de s�jour.
+Dispositifs d'accueil et d'accompagnement
+: cr�ation de structures municipales d'orientation pour les victimes de discrimination.
+Politique municipale d'�ducation et de pr�vention
+: programmes dans les �coles, espaces culturels et associations pour d�construire les pr�jug�s et promouvoir le vivre-ensemble.
+Droits des gens du voyage
+: garantie d'aires d'accueil dignes et fonctionnelles, fin des expulsions arbitraires.
+M�moires de la lutte antiraciste
+: reconnaissance et transmission des luttes historiques contre le colonialisme et le racisme ; soutien aux lieux de m�moire.
+Apprentissage du fran�ais
+: programmes d'alphab�tisation et de cours de fran�ais langue �trang�re accessibles et gratuits pour tous les r�sidents.
+Institut d'histoire coloniale
+: cr�ation d'un espace de recherche et de m�diation sur l'histoire coloniale de Montpellier et de la France.
+
 --- File: listes_la-france-insoumise_programme_bien-vieillir.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/bien-vieillir/
 
@@ -3091,6 +4375,76 @@ Lutte contre l'isolement
 : visites � domicile, voisinage solidaire organis�, d�tection pr�coce des situations d'isolement par les services municipaux.
 
 --- File: listes_la-france-insoumise_programme_bien-vieillir_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/bien-vieillir
+
+TITLE: Bien vieillir : dignit� et autonomie pour les a�n�es � Faire mieux pour Montpellier
+
+DESCRIPTION: Bien vieillir : dignit� et autonomie pour les a�n�es
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+sant�
+Bien vieillir : dignit� et autonomie pour les a�n�es
+Une mesure propos�e par Faire mieux pour Montpellier
+Le vieillissement de la population est un d�fi auquel Montpellier doit se pr�parer avec ambition. Trop d'a�n�es vivent dans l'isolement, avec des revenus insuffisants et un acc�s aux soins difficile. Nathalie Oziol veut une ville solidaire des personnes �g�es, qui garantit leur autonomie et leur dignit�.
+Les axes forts :
+Solutions de logement pour les seniors
+: d�veloppement des r�sidences seniors non lucratives, des colocations interg�n�rationnelles et de l'habitat participatif pour les personnes �g�es.
+Acc�s aux soins garanti
+: centres de sant� de proximit� incluant des consultations g�riatriques, soins � domicile accessibles, transport vers les soins pris en charge.
+Maintien de l'autonomie
+: soutien aux services d'aide � domicile municipaux ou associatifs, �quipements d'assistance adapt�s, pr�vention des chutes et de la perte d'autonomie.
+Programmes interg�n�rationnels
+: projets de rencontre entre seniors et jeunes dans les �coles, MJC et �quipements culturels.
+Services adapt�s
+: portage de repas � domicile, t�l�assistance accessible, accueil de jour pour les personnes atteintes de troubles cognitifs.
+Participation sociale
+: centres sociaux anim�s pour les seniors, clubs de quartier, ateliers num�riques, sorties culturelles.
+Soutien aux aidant�es
+: reconnaissance du r�le des proches aidants, acc�s � des dispositifs de r�pit, accompagnement psychologique.
+Retraites dignement v�cues
+: plaidoyer pour des retraites suffisantes, action locale pour r�duire le co�t de la vie pour les retrait�es modestes (tarification sociale des services).
+Lutte contre l'isolement
+: visites � domicile, voisinage solidaire organis�, d�tection pr�coce des situations d'isolement par les services municipaux.
+
+--- File: listes_la-france-insoumise_programme_bien-vieillir_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/bien-vieillir/
+
+TITLE: Bien vieillir : dignit� et autonomie pour les a�n�es � Faire mieux pour Montpellier
+
+DESCRIPTION: Bien vieillir : dignit� et autonomie pour les a�n�es
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+sant�
+Bien vieillir : dignit� et autonomie pour les a�n�es
+Une mesure propos�e par Faire mieux pour Montpellier
+Le vieillissement de la population est un d�fi auquel Montpellier doit se pr�parer avec ambition. Trop d'a�n�es vivent dans l'isolement, avec des revenus insuffisants et un acc�s aux soins difficile. Nathalie Oziol veut une ville solidaire des personnes �g�es, qui garantit leur autonomie et leur dignit�.
+Les axes forts :
+Solutions de logement pour les seniors
+: d�veloppement des r�sidences seniors non lucratives, des colocations interg�n�rationnelles et de l'habitat participatif pour les personnes �g�es.
+Acc�s aux soins garanti
+: centres de sant� de proximit� incluant des consultations g�riatriques, soins � domicile accessibles, transport vers les soins pris en charge.
+Maintien de l'autonomie
+: soutien aux services d'aide � domicile municipaux ou associatifs, �quipements d'assistance adapt�s, pr�vention des chutes et de la perte d'autonomie.
+Programmes interg�n�rationnels
+: projets de rencontre entre seniors et jeunes dans les �coles, MJC et �quipements culturels.
+Services adapt�s
+: portage de repas � domicile, t�l�assistance accessible, accueil de jour pour les personnes atteintes de troubles cognitifs.
+Participation sociale
+: centres sociaux anim�s pour les seniors, clubs de quartier, ateliers num�riques, sorties culturelles.
+Soutien aux aidant�es
+: reconnaissance du r�le des proches aidants, acc�s � des dispositifs de r�pit, accompagnement psychologique.
+Retraites dignement v�cues
+: plaidoyer pour des retraites suffisantes, action locale pour r�duire le co�t de la vie pour les retrait�es modestes (tarification sociale des services).
+Lutte contre l'isolement
+: visites � domicile, voisinage solidaire organis�, d�tection pr�coce des situations d'isolement par les services municipaux.
+
+--- File: listes_la-france-insoumise_programme_bien-vieillir_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/bien-vieillir
 
 TITLE: Bien vieillir : dignit� et autonomie pour les a�n�es � Faire mieux pour Montpellier
@@ -3309,6 +4663,98 @@ Commande publique engag�e
 R�duction de 50 % des produits animaux d'ici 2032
 : objectif progressif dans la restauration collective municipale.
 
+--- File: listes_la-france-insoumise_programme_condition-animale_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/condition-animale/
+
+TITLE: Condition animale : une ville qui prend soin du vivant � Faire mieux pour Montpellier
+
+DESCRIPTION: Condition animale : une ville qui prend soin du vivant
+
+CONTENT:
+
+Retour � la liste
+bien �tre animal
+Condition animale : une ville qui prend soin du vivant
+Une mesure propos�e par Faire mieux pour Montpellier
+Les animaux, sauvages ou domestiques, font partie du vivant que la ville doit prot�ger. � Montpellier, les politiques de condition animale restent trop souvent symboliques. Nathalie Oziol veut une vraie politique publique en faveur du bien-�tre animal.
+Les axes forts :
+Responsabilit� politique claire
+: d�signer un�e �lu�e r�f�rent�e explicitement en charge des questions animales, avec budget d�di�.
+Maintien des interdictions de chasse
+: conserver et renforcer l'interdiction de la chasse sur les espaces communaux.
+Interdiction des animaux dans les cirques
+: maintien et application stricte de l'interdiction des cirques avec animaux sauvages.
+Transparence de l'action publique
+: publication annuelle d'un rapport sur les politiques animales de la Ville.
+Protection et soins
+: convention avec des associations de protection animale, financement des soins pour animaux errants.
+St�rilisation des chats errants
+: programme syst�matique de st�rilisation et de gestion des colonies de chats urbains.
+Espaces refuges pour la faune sauvage
+: cr�ation et entretien de zones refuges, haies, mares et prairie dans les parcs publics.
+Pr�vention de l'abandon et lutte contre la maltraitance
+: campagnes de sensibilisation, signalement facilit�, sanctions renforc�es.
+Ville con�ue pour la cohabitation avec le vivant
+: prise en compte des corridors �cologiques dans l'urbanisme, r�duction des obstacles pour la faune.
+Fin des m�thodes l�tales
+: interdire les m�thodes l�tales de gestion des animaux quand des alternatives existent.
+Formation des agents municipaux
+: tous les agent�es en contact avec le public form�es � la protection animale et � la gestion �thique.
+�ducation des jeunes
+: int�gration du respect du vivant dans les programmes �ducatifs municipaux.
+Faciliter la vie quotidienne avec animaux
+: espaces canins, points d'eau, locaux permettant les animaux de compagnie.
+Commande publique engag�e
+: introduire des crit�res de bien-�tre animal dans les march�s publics alimentaires.
+R�duction de 50 % des produits animaux d'ici 2032
+: objectif progressif dans la restauration collective municipale.
+
+--- File: listes_la-france-insoumise_programme_condition-animale_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/condition-animale
+
+TITLE: Condition animale : une ville qui prend soin du vivant � Faire mieux pour Montpellier
+
+DESCRIPTION: Condition animale : une ville qui prend soin du vivant
+
+CONTENT:
+
+Retour � la liste
+bien �tre animal
+Condition animale : une ville qui prend soin du vivant
+Une mesure propos�e par Faire mieux pour Montpellier
+Les animaux, sauvages ou domestiques, font partie du vivant que la ville doit prot�ger. � Montpellier, les politiques de condition animale restent trop souvent symboliques. Nathalie Oziol veut une vraie politique publique en faveur du bien-�tre animal.
+Les axes forts :
+Responsabilit� politique claire
+: d�signer un�e �lu�e r�f�rent�e explicitement en charge des questions animales, avec budget d�di�.
+Maintien des interdictions de chasse
+: conserver et renforcer l'interdiction de la chasse sur les espaces communaux.
+Interdiction des animaux dans les cirques
+: maintien et application stricte de l'interdiction des cirques avec animaux sauvages.
+Transparence de l'action publique
+: publication annuelle d'un rapport sur les politiques animales de la Ville.
+Protection et soins
+: convention avec des associations de protection animale, financement des soins pour animaux errants.
+St�rilisation des chats errants
+: programme syst�matique de st�rilisation et de gestion des colonies de chats urbains.
+Espaces refuges pour la faune sauvage
+: cr�ation et entretien de zones refuges, haies, mares et prairie dans les parcs publics.
+Pr�vention de l'abandon et lutte contre la maltraitance
+: campagnes de sensibilisation, signalement facilit�, sanctions renforc�es.
+Ville con�ue pour la cohabitation avec le vivant
+: prise en compte des corridors �cologiques dans l'urbanisme, r�duction des obstacles pour la faune.
+Fin des m�thodes l�tales
+: interdire les m�thodes l�tales de gestion des animaux quand des alternatives existent.
+Formation des agents municipaux
+: tous les agent�es en contact avec le public form�es � la protection animale et � la gestion �thique.
+�ducation des jeunes
+: int�gration du respect du vivant dans les programmes �ducatifs municipaux.
+Faciliter la vie quotidienne avec animaux
+: espaces canins, points d'eau, locaux permettant les animaux de compagnie.
+Commande publique engag�e
+: introduire des crit�res de bien-�tre animal dans les march�s publics alimentaires.
+R�duction de 50 % des produits animaux d'ici 2032
+: objectif progressif dans la restauration collective municipale.
+
 --- File: listes_la-france-insoumise_programme_culture.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/culture/
 
@@ -3412,6 +4858,74 @@ Accessibilit� culturelle universelle
 : interpr�tation LSF, audiodescription, acc�s PMR dans tous les �quipements culturels.
 
 --- File: listes_la-france-insoumise_programme_culture_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/culture
+
+TITLE: Culture : un service public pour toutes et tous � Faire mieux pour Montpellier
+
+DESCRIPTION: Culture : un service public pour toutes et tous
+
+CONTENT:
+
+Retour � la liste
+culture
+Culture : un service public pour toutes et tous
+Une mesure propos�e par Faire mieux pour Montpellier
+La culture � Montpellier est trop souvent r�serv�e � une �lite ou instrumentalis�e � des fins de communication institutionnelle. Nathalie Oziol veut une politique culturelle ambitieuse, d�mocratique, qui soutient la cr�ation et garantit l'acc�s � toutes et tous.
+Les axes forts :
+Culture comme service public
+: refus de la logique de march� dans l'acc�s � la culture, financement public p�renne des structures culturelles de proximit�.
+D�mocratisation de l'acc�s
+: tarification solidaire dans tous les �quipements culturels municipaux, gratuit� pour les moins de 18 ans et les b�n�ficiaires du RSA.
+Soutien � la cr�ation artistique
+: r�sidences d'artistes, ateliers de fabrique, soutien aux compagnies ind�pendantes et aux artistes locaux.
+Valorisation du patrimoine et de la m�moire
+: entretien et mise en valeur du patrimoine montpelli�rain, reconnaissance des m�moires populaires et coloniales.
+Soutien aux lieux culturels interm�diaires
+: MJC, salles de concert associatives, cin�mas d'art et essai, librairies ind�pendantes ? soutien actif contre les fermetures.
+Lutte contre la pr�carit� des artistes
+: revalorisation des cachets, respect des droits sociaux, refus des prestations gratuites dans les structures publiques.
+�ducation artistique � l'�cole
+: partenariats �cole-compagnies, pr�sence d'artistes en r�sidence dans les �tablissements scolaires.
+Festivals et �v�nements populaires
+: soutien aux festivals accessibles, implant�s dans les quartiers, avec mixit� sociale r�elle.
+Accessibilit� culturelle universelle
+: interpr�tation LSF, audiodescription, acc�s PMR dans tous les �quipements culturels.
+
+--- File: listes_la-france-insoumise_programme_culture_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/culture/
+
+TITLE: Culture : un service public pour toutes et tous � Faire mieux pour Montpellier
+
+DESCRIPTION: Culture : un service public pour toutes et tous
+
+CONTENT:
+
+Retour � la liste
+culture
+Culture : un service public pour toutes et tous
+Une mesure propos�e par Faire mieux pour Montpellier
+La culture � Montpellier est trop souvent r�serv�e � une �lite ou instrumentalis�e � des fins de communication institutionnelle. Nathalie Oziol veut une politique culturelle ambitieuse, d�mocratique, qui soutient la cr�ation et garantit l'acc�s � toutes et tous.
+Les axes forts :
+Culture comme service public
+: refus de la logique de march� dans l'acc�s � la culture, financement public p�renne des structures culturelles de proximit�.
+D�mocratisation de l'acc�s
+: tarification solidaire dans tous les �quipements culturels municipaux, gratuit� pour les moins de 18 ans et les b�n�ficiaires du RSA.
+Soutien � la cr�ation artistique
+: r�sidences d'artistes, ateliers de fabrique, soutien aux compagnies ind�pendantes et aux artistes locaux.
+Valorisation du patrimoine et de la m�moire
+: entretien et mise en valeur du patrimoine montpelli�rain, reconnaissance des m�moires populaires et coloniales.
+Soutien aux lieux culturels interm�diaires
+: MJC, salles de concert associatives, cin�mas d'art et essai, librairies ind�pendantes ? soutien actif contre les fermetures.
+Lutte contre la pr�carit� des artistes
+: revalorisation des cachets, respect des droits sociaux, refus des prestations gratuites dans les structures publiques.
+�ducation artistique � l'�cole
+: partenariats �cole-compagnies, pr�sence d'artistes en r�sidence dans les �tablissements scolaires.
+Festivals et �v�nements populaires
+: soutien aux festivals accessibles, implant�s dans les quartiers, avec mixit� sociale r�elle.
+Accessibilit� culturelle universelle
+: interpr�tation LSF, audiodescription, acc�s PMR dans tous les �quipements culturels.
+
+--- File: listes_la-france-insoumise_programme_culture_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/culture
 
 TITLE: Culture : un service public pour toutes et tous � Faire mieux pour Montpellier
@@ -3584,6 +5098,98 @@ Panneaux d'affichage libres
 : augmenter les surfaces d'expression citoyenne dans les espaces publics.
 
 --- File: listes_la-france-insoumise_programme_democratie-citoyenne_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/democratie-citoyenne
+
+TITLE: D�mocratie citoyenne : le pouvoir aux habitant�es � Faire mieux pour Montpellier
+
+DESCRIPTION: D�mocratie citoyenne : le pouvoir aux habitant�es
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+D�mocratie citoyenne : le pouvoir aux habitant�es
+Une mesure propos�e par Faire mieux pour Montpellier
+La d�mocratie repr�sentative � Montpellier est en crise : faible participation, d�cisions prises sans concertation r�elle, �lu�es coup�es des habitant�es. Nathalie Oziol veut une r�volution d�mocratique locale, inspir�e des pratiques participatives les plus avanc�es.
+Les axes forts :
+Assembl�e citoyenne
+: cr�ation d'une assembl�e tir�e au sort, repr�sentative de la diversit� montpelli�raine, avec pouvoir d�lib�ratif r�el sur les grandes orientations.
+R�f�rendum d'initiative citoyenne (RIC) local
+: m�canisme permettant aux habitant�es de proposer et d'imposer un vote sur tout sujet municipal, avec un seuil de signatures raisonnable.
+Droit de r�vocation des �lu�es
+: possibilit� pour les citoyen�nes de destituer un�e �lu�e en cours de mandat par voie p�titionnaire.
+Conventions citoyennes par tirage au sort
+: pour chaque grand sujet (mobilit�s, alimentation, r�novation urbaine), une convention citoyenne d�lib�rative avec suivi des recommandations.
+Droit de p�tition effectif
+: toute p�tition atteignant un seuil minimal d�clenchera automatiquement une discussion au conseil municipal.
+Vote � 16 ans
+: extension du droit de vote aux jeunes de 16 ans pour les scrutins municipaux et les consultations locales.
+Transparence des d�penses m�diatiques
+: publication des budgets de communication et d'achat publicitaire de la Ville.
+Renforcement de la mairie centrale
+: r�affirmer le r�le de la mairie comme institution d�mocratique face aux op�rateurs priv�s.
+Conseils de quartier � pouvoir r�el
+: �lection directe des membres, budget propre, droit de saisine du conseil municipal.
+Ateliers populaires obligatoires
+: tout grand projet d'urbanisme, de voirie ou d'�quipement doit �tre soumis � concertation pr�alable avec les habitant�es.
+Exemplarit� des �lu�es
+: publication des agendas, d�clarations de conflits d'int�r�ts, limite du cumul des fonctions et r�mun�rations.
+Respect des droits de l'opposition
+: acc�s garanti aux commissions, temps de parole prot�g�, acc�s aux donn�es et aux services municipaux.
+Logiciel transparent d'attribution des salles
+: fin des attributions discr�tionnaires, outil num�rique public et �quitable.
+Crit�res d'attribution transparents
+: subventions aux associations, march�s publics : tout est public et justifi�.
+Panneaux d'affichage libres
+: augmenter les surfaces d'expression citoyenne dans les espaces publics.
+
+--- File: listes_la-france-insoumise_programme_democratie-citoyenne_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/democratie-citoyenne/
+
+TITLE: D�mocratie citoyenne : le pouvoir aux habitant�es � Faire mieux pour Montpellier
+
+DESCRIPTION: D�mocratie citoyenne : le pouvoir aux habitant�es
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+D�mocratie citoyenne : le pouvoir aux habitant�es
+Une mesure propos�e par Faire mieux pour Montpellier
+La d�mocratie repr�sentative � Montpellier est en crise : faible participation, d�cisions prises sans concertation r�elle, �lu�es coup�es des habitant�es. Nathalie Oziol veut une r�volution d�mocratique locale, inspir�e des pratiques participatives les plus avanc�es.
+Les axes forts :
+Assembl�e citoyenne
+: cr�ation d'une assembl�e tir�e au sort, repr�sentative de la diversit� montpelli�raine, avec pouvoir d�lib�ratif r�el sur les grandes orientations.
+R�f�rendum d'initiative citoyenne (RIC) local
+: m�canisme permettant aux habitant�es de proposer et d'imposer un vote sur tout sujet municipal, avec un seuil de signatures raisonnable.
+Droit de r�vocation des �lu�es
+: possibilit� pour les citoyen�nes de destituer un�e �lu�e en cours de mandat par voie p�titionnaire.
+Conventions citoyennes par tirage au sort
+: pour chaque grand sujet (mobilit�s, alimentation, r�novation urbaine), une convention citoyenne d�lib�rative avec suivi des recommandations.
+Droit de p�tition effectif
+: toute p�tition atteignant un seuil minimal d�clenchera automatiquement une discussion au conseil municipal.
+Vote � 16 ans
+: extension du droit de vote aux jeunes de 16 ans pour les scrutins municipaux et les consultations locales.
+Transparence des d�penses m�diatiques
+: publication des budgets de communication et d'achat publicitaire de la Ville.
+Renforcement de la mairie centrale
+: r�affirmer le r�le de la mairie comme institution d�mocratique face aux op�rateurs priv�s.
+Conseils de quartier � pouvoir r�el
+: �lection directe des membres, budget propre, droit de saisine du conseil municipal.
+Ateliers populaires obligatoires
+: tout grand projet d'urbanisme, de voirie ou d'�quipement doit �tre soumis � concertation pr�alable avec les habitant�es.
+Exemplarit� des �lu�es
+: publication des agendas, d�clarations de conflits d'int�r�ts, limite du cumul des fonctions et r�mun�rations.
+Respect des droits de l'opposition
+: acc�s garanti aux commissions, temps de parole prot�g�, acc�s aux donn�es et aux services municipaux.
+Logiciel transparent d'attribution des salles
+: fin des attributions discr�tionnaires, outil num�rique public et �quitable.
+Crit�res d'attribution transparents
+: subventions aux associations, march�s publics : tout est public et justifi�.
+Panneaux d'affichage libres
+: augmenter les surfaces d'expression citoyenne dans les espaces publics.
+
+--- File: listes_la-france-insoumise_programme_democratie-citoyenne_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/democratie-citoyenne
 
 TITLE: D�mocratie citoyenne : le pouvoir aux habitant�es � Faire mieux pour Montpellier
@@ -3829,6 +5435,106 @@ Soutien aux personnes LGBTI+ en rupture
 Affirmation des droits et visibilit� LGBTI+
 : soutien � la Pride, aux associations, aux �v�nements culturels promouvant les droits LGBTI+.
 
+--- File: listes_la-france-insoumise_programme_droits-nouveaux_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/droits-nouveaux/
+
+TITLE: Droits nouveaux : f�minisme, LGBTI+ et �mancipation � Faire mieux pour Montpellier
+
+DESCRIPTION: Droits nouveaux : f�minisme, LGBTI+ et �mancipation
+
+CONTENT:
+
+Retour � la liste
+�mancipation et justice sociale
+solidarit�
+sant�
+Droits nouveaux : f�minisme, LGBTI+ et �mancipation
+Une mesure propos�e par Faire mieux pour Montpellier
+Les violences sexistes et sexuelles, les discriminations contre les personnes LGBTI+ et les in�galit�s de genre persistent dans l'espace public, au travail et dans les institutions. Nathalie Oziol propose une politique municipale f�ministe et inclusive, qui d�passe les d�clarations d'intention.
+Les axes forts :
+Dispositif municipal d'accueil des victimes
+: guichet d�di� aux victimes de violences conjugales, sexuelles ou discriminations, op�rationnel 7j/7.
+Engagement aux c�t�s des victimes
+: la Ville se constitue partie civile pour soutenir les victimes de violences et de discriminations dans leurs d�marches judiciaires.
+Formation de tous les agents
+: formation obligatoire sur le sexisme, les LGBTIphobies et les violences intrafamiliales pour l'ensemble du personnel municipal.
+R�f�rent�es discrimination dans chaque service
+: interlocuteur�rice identifi�e dans chaque direction municipale pour traiter les signalements.
+Politique de pr�vention et d'�ducation
+: programmes d'�ducation � l'�galit�, � la vie affective et sexuelle, et � la lutte contre les st�r�otypes, dans les �coles et structures municipales.
+Employeur public exemplaire
+: �galit� salariale, lutte contre le harc�lement, facilitation du temps partiel choisi, promotion des femmes aux postes de direction.
+Acc�s � la sant� sexuelle et reproductive
+: soutien aux centres de sant� pratiquant IVG et contraception, information accessible � toutes les femmes.
+Visibilit� �mancip�e dans la culture
+: programmation culturelle int�grant les repr�sentations f�ministes, LGBTI+ et les luttes pour l'�galit�.
+Lutte contre le harc�lement professionnel
+: proc�dures claires, protection des lanceur�ses d'alerte, sanctions effectives.
+H�bergement d'urgence pour les victimes
+: places d�di�es aux femmes victimes de violences et aux personnes LGBTI+ en rupture familiale.
+Action contre les violences conjugales et sexuelles
+: financement des associations sp�cialis�es, coordination avec les forces de l'ordre et la justice.
+Soutien aux survivant�es en emploi
+: dispositifs pour maintenir ou retrouver un emploi apr�s une situation de violence.
+Espace public adapt� aux femmes
+: �clairage, transports s�curis�s, signalement facilit� des comportements mena�ants.
+Visibilit� des femmes dans l'espace public
+: nommage de rues et places en hommage � des femmes, ?uvres d'art f�ministes dans l'espace public.
+Soutien aux personnes LGBTI+ en rupture
+: accompagnement vers le logement, l'emploi et le soin pour les personnes rejet�es par leur famille.
+Affirmation des droits et visibilit� LGBTI+
+: soutien � la Pride, aux associations, aux �v�nements culturels promouvant les droits LGBTI+.
+
+--- File: listes_la-france-insoumise_programme_droits-nouveaux_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/droits-nouveaux
+
+TITLE: Droits nouveaux : f�minisme, LGBTI+ et �mancipation � Faire mieux pour Montpellier
+
+DESCRIPTION: Droits nouveaux : f�minisme, LGBTI+ et �mancipation
+
+CONTENT:
+
+Retour � la liste
+�mancipation et justice sociale
+solidarit�
+sant�
+Droits nouveaux : f�minisme, LGBTI+ et �mancipation
+Une mesure propos�e par Faire mieux pour Montpellier
+Les violences sexistes et sexuelles, les discriminations contre les personnes LGBTI+ et les in�galit�s de genre persistent dans l'espace public, au travail et dans les institutions. Nathalie Oziol propose une politique municipale f�ministe et inclusive, qui d�passe les d�clarations d'intention.
+Les axes forts :
+Dispositif municipal d'accueil des victimes
+: guichet d�di� aux victimes de violences conjugales, sexuelles ou discriminations, op�rationnel 7j/7.
+Engagement aux c�t�s des victimes
+: la Ville se constitue partie civile pour soutenir les victimes de violences et de discriminations dans leurs d�marches judiciaires.
+Formation de tous les agents
+: formation obligatoire sur le sexisme, les LGBTIphobies et les violences intrafamiliales pour l'ensemble du personnel municipal.
+R�f�rent�es discrimination dans chaque service
+: interlocuteur�rice identifi�e dans chaque direction municipale pour traiter les signalements.
+Politique de pr�vention et d'�ducation
+: programmes d'�ducation � l'�galit�, � la vie affective et sexuelle, et � la lutte contre les st�r�otypes, dans les �coles et structures municipales.
+Employeur public exemplaire
+: �galit� salariale, lutte contre le harc�lement, facilitation du temps partiel choisi, promotion des femmes aux postes de direction.
+Acc�s � la sant� sexuelle et reproductive
+: soutien aux centres de sant� pratiquant IVG et contraception, information accessible � toutes les femmes.
+Visibilit� �mancip�e dans la culture
+: programmation culturelle int�grant les repr�sentations f�ministes, LGBTI+ et les luttes pour l'�galit�.
+Lutte contre le harc�lement professionnel
+: proc�dures claires, protection des lanceur�ses d'alerte, sanctions effectives.
+H�bergement d'urgence pour les victimes
+: places d�di�es aux femmes victimes de violences et aux personnes LGBTI+ en rupture familiale.
+Action contre les violences conjugales et sexuelles
+: financement des associations sp�cialis�es, coordination avec les forces de l'ordre et la justice.
+Soutien aux survivant�es en emploi
+: dispositifs pour maintenir ou retrouver un emploi apr�s une situation de violence.
+Espace public adapt� aux femmes
+: �clairage, transports s�curis�s, signalement facilit� des comportements mena�ants.
+Visibilit� des femmes dans l'espace public
+: nommage de rues et places en hommage � des femmes, ?uvres d'art f�ministes dans l'espace public.
+Soutien aux personnes LGBTI+ en rupture
+: accompagnement vers le logement, l'emploi et le soin pour les personnes rejet�es par leur famille.
+Affirmation des droits et visibilit� LGBTI+
+: soutien � la Pride, aux associations, aux �v�nements culturels promouvant les droits LGBTI+.
+
 --- File: listes_la-france-insoumise_programme_economie-emploi-local.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/economie-emploi-local/
 
@@ -3968,6 +5674,98 @@ Ren�gociation du cadre budg�taire
 : action sur les emprunts toxiques et les contrats d�savantageux pour d�gager des marges de man?uvre.
 
 --- File: listes_la-france-insoumise_programme_economie-emploi-local_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/economie-emploi-local
+
+TITLE: �conomie et emploi local : une �conomie au service des habitant�es � Faire mieux pour Montpellier
+
+DESCRIPTION: �conomie et emploi local : une �conomie au service des habitant�es
+
+CONTENT:
+
+Retour � la liste
+�mancipation et justice sociale
+�conomie et emploi local : une �conomie au service des habitant�es
+Une mesure propos�e par Faire mieux pour Montpellier
+L'�conomie montpelli�raine est marqu�e par des in�galit�s criantes : grande distribution omnipr�sente, commerce de proximit� fragilis�, emploi pr�caire en hausse. Nathalie Oziol veut une �conomie locale ancr�e dans les quartiers, respectueuse des travailleur�ses et en transition �cologique.
+Les axes forts :
+Blocage de la grande distribution
+: moratoire sur toute nouvelle grande surface commerciale ou extension, priorit� aux commerces de proximit�.
+Commerce de proximit� servant les quartiers
+: soutien � l'installation de commerces essentiels dans les d�serts commerciaux, loyers ma�tris�s via foncier public.
+Plan m�tropolitain � 10 000 emplois durables �
+: lancement d'un plan d'emploi concert� avec les acteurs �conomiques locaux, ciblant les secteurs de la transition �cologique.
+Ma�trise du foncier commercial
+: acquisition de locaux commerciaux strat�giques pour �viter la sp�culation et maintenir la diversit� des activit�s.
+H�tels productifs municipaux
+: espaces mutualis�s pour les artisan�es, les TPE et les structures de l'ESS, � loyer accessible.
+Commande publique levier
+: clauses sociales et environnementales syst�matiques dans les march�s publics, priorit� aux entreprises locales et � l'ESS.
+Soutien � la conversion �cologique
+: accompagnement technique et financier des entreprises locales qui engagent leur transition.
+�conomie coop�rative et participative
+: soutien aux SCOP, SCIC, coop�ratives d'habitants et entreprises � gouvernance d�mocratique.
+Services municipaux de l'emploi
+: guichet unique pour l'orientation, la formation et le retour � l'emploi, en lien avec les branches professionnelles locales.
+Insertion des femmes
+: dispositifs sp�cifiques pour l'emploi des femmes victimes de violence ou en rupture professionnelle.
+Conseils artisanaux municipaux
+: repr�sentation des artisan�es dans les instances de d�cision �conomique locale.
+Lutte contre la pr�carit� au travail
+: action municipale contre le temps partiel subi, le travail dissimul�, les bas salaires dans les march�s publics.
+Restaurants coop�ratifs
+: soutien aux cantines associatives et coop�ratives proposant des repas � prix juste.
+Observatoire municipal des comptes
+: suivi public des donn�es �conomiques locales, transparence sur les aides accord�es aux entreprises.
+Ren�gociation du cadre budg�taire
+: action sur les emprunts toxiques et les contrats d�savantageux pour d�gager des marges de man?uvre.
+
+--- File: listes_la-france-insoumise_programme_economie-emploi-local_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/economie-emploi-local/
+
+TITLE: �conomie et emploi local : une �conomie au service des habitant�es � Faire mieux pour Montpellier
+
+DESCRIPTION: �conomie et emploi local : une �conomie au service des habitant�es
+
+CONTENT:
+
+Retour � la liste
+�mancipation et justice sociale
+�conomie et emploi local : une �conomie au service des habitant�es
+Une mesure propos�e par Faire mieux pour Montpellier
+L'�conomie montpelli�raine est marqu�e par des in�galit�s criantes : grande distribution omnipr�sente, commerce de proximit� fragilis�, emploi pr�caire en hausse. Nathalie Oziol veut une �conomie locale ancr�e dans les quartiers, respectueuse des travailleur�ses et en transition �cologique.
+Les axes forts :
+Blocage de la grande distribution
+: moratoire sur toute nouvelle grande surface commerciale ou extension, priorit� aux commerces de proximit�.
+Commerce de proximit� servant les quartiers
+: soutien � l'installation de commerces essentiels dans les d�serts commerciaux, loyers ma�tris�s via foncier public.
+Plan m�tropolitain � 10 000 emplois durables �
+: lancement d'un plan d'emploi concert� avec les acteurs �conomiques locaux, ciblant les secteurs de la transition �cologique.
+Ma�trise du foncier commercial
+: acquisition de locaux commerciaux strat�giques pour �viter la sp�culation et maintenir la diversit� des activit�s.
+H�tels productifs municipaux
+: espaces mutualis�s pour les artisan�es, les TPE et les structures de l'ESS, � loyer accessible.
+Commande publique levier
+: clauses sociales et environnementales syst�matiques dans les march�s publics, priorit� aux entreprises locales et � l'ESS.
+Soutien � la conversion �cologique
+: accompagnement technique et financier des entreprises locales qui engagent leur transition.
+�conomie coop�rative et participative
+: soutien aux SCOP, SCIC, coop�ratives d'habitants et entreprises � gouvernance d�mocratique.
+Services municipaux de l'emploi
+: guichet unique pour l'orientation, la formation et le retour � l'emploi, en lien avec les branches professionnelles locales.
+Insertion des femmes
+: dispositifs sp�cifiques pour l'emploi des femmes victimes de violence ou en rupture professionnelle.
+Conseils artisanaux municipaux
+: repr�sentation des artisan�es dans les instances de d�cision �conomique locale.
+Lutte contre la pr�carit� au travail
+: action municipale contre le temps partiel subi, le travail dissimul�, les bas salaires dans les march�s publics.
+Restaurants coop�ratifs
+: soutien aux cantines associatives et coop�ratives proposant des repas � prix juste.
+Observatoire municipal des comptes
+: suivi public des donn�es �conomiques locales, transparence sur les aides accord�es aux entreprises.
+Ren�gociation du cadre budg�taire
+: action sur les emprunts toxiques et les contrats d�savantageux pour d�gager des marges de man?uvre.
+
+--- File: listes_la-france-insoumise_programme_economie-emploi-local_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/economie-emploi-local
 
 TITLE: �conomie et emploi local : une �conomie au service des habitant�es � Faire mieux pour Montpellier
@@ -4217,6 +6015,108 @@ Classes vertes pour toutes et tous
 Semaines sans �crans
 : exp�rimentation annuelle de semaines d�connect�es, avec alternatives culturelles et sportives.
 
+--- File: listes_la-france-insoumise_programme_education-enfance_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/education-enfance/
+
+TITLE: �ducation et petite enfance : l'�cole pour toutes et tous � Faire mieux pour Montpellier
+
+DESCRIPTION: �ducation et petite enfance : l'�cole pour toutes et tous
+
+CONTENT:
+
+Retour � la liste
+enfance et �ducation
+alimentation
+�ducation et petite enfance : l'�cole pour toutes et tous
+Une mesure propos�e par Faire mieux pour Montpellier
+L'�cole publique � Montpellier souffre de sous-investissement, de fermetures de classes et d'une s�gr�gation scolaire persistante. Nathalie Oziol veut une politique �ducative ambitieuse qui place l'�galit� au c?ur des priorit�s municipales.
+Les axes forts :
+Fournitures scolaires gratuites
+: prise en charge par la Ville de l'ensemble du mat�riel scolaire pour tous les �l�ves du primaire.
+Petit-d�jeuner � l'�cole
+: instaurer un accueil matinal avec petit-d�jeuner dans toutes les �coles municipales.
+Cantine gratuite
+: g�n�raliser la gratuit� de la cantine, en commen�ant par les familles les plus modestes.
+Jardins scolaires
+: d�veloppement de potagers p�dagogiques dans chaque �cole, li�s � l'alimentation des cantines.
+Lutte contre la s�gr�gation scolaire
+: politique active de mixit� sociale dans la sectorisation et les structures.
+Lutte contre le d�crochage
+: rep�rage pr�coce et accompagnement individualis� des enfants en difficult�.
+Z�ro fermeture de classe
+: engager la Ville aux c�t�s des �quipes �ducatives pour maintenir tous les postes et classes.
+Repas �cologiques et gratuits
+: cantines avec 80 % de produits bio et locaux, repas v�g�tariens hebdomadaires, gratuit� progressive.
+Fin de la pr�carit� des agents municipaux
+: titularisation des ATSEM et agents d'entretien, am�lioration des conditions de travail.
+�quipes �ducatives stables
+: plaidoyer pour mettre fin au mouvement permanent des enseignant�es dans les REP.
+Association des personnels
+: coconstruction des politiques �ducatives avec les �quipes de terrain.
+Pr�vention des violences �ducatives
+: formation des agents, protocoles clairs, espaces de parole pour les enfants.
+Petite enfance publique
+: d�velopper les cr�ches et haltes-garderies municipales, r�duire les listes d'attente.
+Cong� parental soutenu
+: aide concr�te aux familles pendant les premi�res ann�es de l'enfant.
+Apprentissage en plein air
+: classes dehors, sorties nature r�guli�res, connexion au vivant d�s le plus jeune �ge.
+Classes vertes pour toutes et tous
+: financement municipal pour que chaque enfant parte en classe verte, sans reste � charge.
+Semaines sans �crans
+: exp�rimentation annuelle de semaines d�connect�es, avec alternatives culturelles et sportives.
+
+--- File: listes_la-france-insoumise_programme_education-enfance_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/education-enfance
+
+TITLE: �ducation et petite enfance : l'�cole pour toutes et tous � Faire mieux pour Montpellier
+
+DESCRIPTION: �ducation et petite enfance : l'�cole pour toutes et tous
+
+CONTENT:
+
+Retour � la liste
+enfance et �ducation
+alimentation
+�ducation et petite enfance : l'�cole pour toutes et tous
+Une mesure propos�e par Faire mieux pour Montpellier
+L'�cole publique � Montpellier souffre de sous-investissement, de fermetures de classes et d'une s�gr�gation scolaire persistante. Nathalie Oziol veut une politique �ducative ambitieuse qui place l'�galit� au c?ur des priorit�s municipales.
+Les axes forts :
+Fournitures scolaires gratuites
+: prise en charge par la Ville de l'ensemble du mat�riel scolaire pour tous les �l�ves du primaire.
+Petit-d�jeuner � l'�cole
+: instaurer un accueil matinal avec petit-d�jeuner dans toutes les �coles municipales.
+Cantine gratuite
+: g�n�raliser la gratuit� de la cantine, en commen�ant par les familles les plus modestes.
+Jardins scolaires
+: d�veloppement de potagers p�dagogiques dans chaque �cole, li�s � l'alimentation des cantines.
+Lutte contre la s�gr�gation scolaire
+: politique active de mixit� sociale dans la sectorisation et les structures.
+Lutte contre le d�crochage
+: rep�rage pr�coce et accompagnement individualis� des enfants en difficult�.
+Z�ro fermeture de classe
+: engager la Ville aux c�t�s des �quipes �ducatives pour maintenir tous les postes et classes.
+Repas �cologiques et gratuits
+: cantines avec 80 % de produits bio et locaux, repas v�g�tariens hebdomadaires, gratuit� progressive.
+Fin de la pr�carit� des agents municipaux
+: titularisation des ATSEM et agents d'entretien, am�lioration des conditions de travail.
+�quipes �ducatives stables
+: plaidoyer pour mettre fin au mouvement permanent des enseignant�es dans les REP.
+Association des personnels
+: coconstruction des politiques �ducatives avec les �quipes de terrain.
+Pr�vention des violences �ducatives
+: formation des agents, protocoles clairs, espaces de parole pour les enfants.
+Petite enfance publique
+: d�velopper les cr�ches et haltes-garderies municipales, r�duire les listes d'attente.
+Cong� parental soutenu
+: aide concr�te aux familles pendant les premi�res ann�es de l'enfant.
+Apprentissage en plein air
+: classes dehors, sorties nature r�guli�res, connexion au vivant d�s le plus jeune �ge.
+Classes vertes pour toutes et tous
+: financement municipal pour que chaque enfant parte en classe verte, sans reste � charge.
+Semaines sans �crans
+: exp�rimentation annuelle de semaines d�connect�es, avec alternatives culturelles et sportives.
+
 --- File: listes_la-france-insoumise_programme_energies-eau-dechets.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/energies-eau-dechets/
 
@@ -4369,6 +6269,82 @@ Garantie d'acc�s � l'eau
 R�cup�ration des eaux de pluie
 : �quipements publics et aide aux particuliers pour la collecte et l'usage des eaux pluviales.
 
+--- File: listes_la-france-insoumise_programme_energies-eau-dechets_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/energies-eau-dechets/
+
+TITLE: �nergies, eau et d�chets : des biens communs sous contr�le public � Faire mieux pour Montpellier
+
+DESCRIPTION: �nergies, eau et d�chets : des biens communs sous contr�le public
+
+CONTENT:
+
+Retour � la liste
+environnement
+d�chets
+gestion de l'eau
+�nergies, eau et d�chets : des biens communs sous contr�le public
+Une mesure propos�e par Faire mieux pour Montpellier
+L'eau, l'�nergie et la gestion des d�chets sont des biens communs que les logiques marchandes ont trop souvent privatis�s ou gaspill�s. Nathalie Oziol veut une ville qui reprend le contr�le de ces ressources vitales et acc�l�re la transition vers un mod�le sobre et public.
+Les axes forts :
+R�gie municipale d'�nergie
+: cr�ation d'une entreprise municipale de production et distribution d'�lectricit� renouvelable (solaire, �olien), avec tarifs solidaires.
+Efficacit� �nerg�tique des b�timents publics
+: plan pluriannuel de r�novation de tous les b�timents municipaux, avec objectif de neutralit� carbone en 2035.
+Sortie des �nergies fossiles
+: abandon progressif du gaz et du fioul dans le patrimoine municipal, remplacement par des �nergies propres.
+R�seaux de chaleur urbains
+: d�veloppement des chaufferies biomasse et g�othermie pour alimenter les quartiers.
+Convention citoyenne sur les d�chets
+: processus participatif pour co-construire une politique de r�duction � la source et de tri am�lior�.
+R�duction � la source
+: soutien � la r�paration, au r�emploi, aux ressourceries ; lutte contre le gaspillage alimentaire dans la restauration collective.
+�ducation aux d�chets
+: programmes scolaires et associatifs sur la r�duction, le compostage, le tri.
+Recyclage des mat�riaux de construction
+: fili�re locale de valorisation des gravats et mat�riaux de d�construction.
+Garantie d'acc�s � l'eau
+: aucune coupure pour les m�nages en difficult�, tarification progressive avec premi�res tranches gratuites.
+R�cup�ration des eaux de pluie
+: �quipements publics et aide aux particuliers pour la collecte et l'usage des eaux pluviales.
+
+--- File: listes_la-france-insoumise_programme_energies-eau-dechets_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/energies-eau-dechets
+
+TITLE: �nergies, eau et d�chets : des biens communs sous contr�le public � Faire mieux pour Montpellier
+
+DESCRIPTION: �nergies, eau et d�chets : des biens communs sous contr�le public
+
+CONTENT:
+
+Retour � la liste
+environnement
+d�chets
+gestion de l'eau
+�nergies, eau et d�chets : des biens communs sous contr�le public
+Une mesure propos�e par Faire mieux pour Montpellier
+L'eau, l'�nergie et la gestion des d�chets sont des biens communs que les logiques marchandes ont trop souvent privatis�s ou gaspill�s. Nathalie Oziol veut une ville qui reprend le contr�le de ces ressources vitales et acc�l�re la transition vers un mod�le sobre et public.
+Les axes forts :
+R�gie municipale d'�nergie
+: cr�ation d'une entreprise municipale de production et distribution d'�lectricit� renouvelable (solaire, �olien), avec tarifs solidaires.
+Efficacit� �nerg�tique des b�timents publics
+: plan pluriannuel de r�novation de tous les b�timents municipaux, avec objectif de neutralit� carbone en 2035.
+Sortie des �nergies fossiles
+: abandon progressif du gaz et du fioul dans le patrimoine municipal, remplacement par des �nergies propres.
+R�seaux de chaleur urbains
+: d�veloppement des chaufferies biomasse et g�othermie pour alimenter les quartiers.
+Convention citoyenne sur les d�chets
+: processus participatif pour co-construire une politique de r�duction � la source et de tri am�lior�.
+R�duction � la source
+: soutien � la r�paration, au r�emploi, aux ressourceries ; lutte contre le gaspillage alimentaire dans la restauration collective.
+�ducation aux d�chets
+: programmes scolaires et associatifs sur la r�duction, le compostage, le tri.
+Recyclage des mat�riaux de construction
+: fili�re locale de valorisation des gravats et mat�riaux de d�construction.
+Garantie d'acc�s � l'eau
+: aucune coupure pour les m�nages en difficult�, tarification progressive avec premi�res tranches gratuites.
+R�cup�ration des eaux de pluie
+: �quipements publics et aide aux particuliers pour la collecte et l'usage des eaux pluviales.
+
 --- File: listes_la-france-insoumise_programme_handicap.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/handicap/
 
@@ -4481,6 +6457,80 @@ Maison du handicap
 : espace de ressources, d'orientation et d'accompagnement pour les personnes handicap�es et leurs proches.
 
 --- File: listes_la-france-insoumise_programme_handicap_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/handicap
+
+TITLE: Handicap : une ville pleinement accessible � Faire mieux pour Montpellier
+
+DESCRIPTION: Handicap : une ville pleinement accessible
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+sant�
+Handicap : une ville pleinement accessible
+Une mesure propos�e par Faire mieux pour Montpellier
+Les personnes en situation de handicap font face � des obstacles quotidiens � Montpellier : espaces publics inaccessibles, logements inadapt�s, emploi difficile d'acc�s, et trop souvent invisibilit� dans les politiques publiques. Nathalie Oziol veut une ville o� le handicap est pris en compte dans chaque d�cision.
+Les axes forts :
+Accessibilit� dans toutes les politiques
+: principe d'accessibilit� universelle int�gr� d�s la conception de tout �quipement, service ou espace public municipal.
+Lutte contre les discriminations
+: proc�dures de signalement et de sanction pour les discriminations li�es au handicap dans les services publics et le milieu associatif.
+Logement adapt�
+: d�veloppement de logements adapt�s aux diff�rents types de handicap, aides � l'adaptation du domicile existant.
+Acc�s � l'emploi
+: clauses d'insertion des personnes handicap�es dans les march�s publics, soutien aux ESAT et aux entreprises adapt�es.
+Services sp�cialis�s
+: renforcement des services d'accompagnement � domicile, des transports adapt�s et des structures d'accueil sp�cialis�es.
+Participation citoyenne inclusive
+: garantir que les personnes en situation de handicap puissent participer pleinement aux instances de d�mocratie locale.
+�ducation inclusive
+: accompagnement renforc� des AESH, accessibilit� des �coles, refus des scolarisations � temps partiel subies.
+Accessibilit� num�rique
+: tous les outils num�riques municipaux compatibles avec les technologies d'assistance.
+Culture et sport accessibles
+: �quipements culturels et sportifs accessibles, programmes adapt�s, tarification solidaire.
+Maison du handicap
+: espace de ressources, d'orientation et d'accompagnement pour les personnes handicap�es et leurs proches.
+
+--- File: listes_la-france-insoumise_programme_handicap_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/handicap/
+
+TITLE: Handicap : une ville pleinement accessible � Faire mieux pour Montpellier
+
+DESCRIPTION: Handicap : une ville pleinement accessible
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+sant�
+Handicap : une ville pleinement accessible
+Une mesure propos�e par Faire mieux pour Montpellier
+Les personnes en situation de handicap font face � des obstacles quotidiens � Montpellier : espaces publics inaccessibles, logements inadapt�s, emploi difficile d'acc�s, et trop souvent invisibilit� dans les politiques publiques. Nathalie Oziol veut une ville o� le handicap est pris en compte dans chaque d�cision.
+Les axes forts :
+Accessibilit� dans toutes les politiques
+: principe d'accessibilit� universelle int�gr� d�s la conception de tout �quipement, service ou espace public municipal.
+Lutte contre les discriminations
+: proc�dures de signalement et de sanction pour les discriminations li�es au handicap dans les services publics et le milieu associatif.
+Logement adapt�
+: d�veloppement de logements adapt�s aux diff�rents types de handicap, aides � l'adaptation du domicile existant.
+Acc�s � l'emploi
+: clauses d'insertion des personnes handicap�es dans les march�s publics, soutien aux ESAT et aux entreprises adapt�es.
+Services sp�cialis�s
+: renforcement des services d'accompagnement � domicile, des transports adapt�s et des structures d'accueil sp�cialis�es.
+Participation citoyenne inclusive
+: garantir que les personnes en situation de handicap puissent participer pleinement aux instances de d�mocratie locale.
+�ducation inclusive
+: accompagnement renforc� des AESH, accessibilit� des �coles, refus des scolarisations � temps partiel subies.
+Accessibilit� num�rique
+: tous les outils num�riques municipaux compatibles avec les technologies d'assistance.
+Culture et sport accessibles
+: �quipements culturels et sportifs accessibles, programmes adapt�s, tarification solidaire.
+Maison du handicap
+: espace de ressources, d'orientation et d'accompagnement pour les personnes handicap�es et leurs proches.
+
+--- File: listes_la-france-insoumise_programme_handicap_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/handicap
 
 TITLE: Handicap : une ville pleinement accessible � Faire mieux pour Montpellier
@@ -4701,6 +6751,98 @@ Refus de la commercialisation du sport
 Fin de l'instrumentalisation de la la�cit�
 : garantir un traitement �gal pour toutes les convictions dans l'espace public.
 
+--- File: listes_la-france-insoumise_programme_jeunesses_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/jeunesses/
+
+TITLE: Jeunesses : �mancipation et dignit� pour toutes et tous � Faire mieux pour Montpellier
+
+DESCRIPTION: Jeunesses : �mancipation et dignit� pour toutes et tous
+
+CONTENT:
+
+Retour � la liste
+enfance et �ducation
+sant�
+solidarit�
+Jeunesses : �mancipation et dignit� pour toutes et tous
+Une mesure propos�e par Faire mieux pour Montpellier
+Les jeunes de Montpellier font face � une pr�carit� croissante : loyers inaccessibles, alimentation insuffisante, sant� mentale en crise et discriminations persistantes. Nathalie Oziol veut une ville qui investit r�ellement dans sa jeunesse.
+Les axes forts :
+Logement cl� de l'autonomie
+: priorit� aux jeunes dans les attributions de logements sociaux, soutien aux colocations solidaires et aux foyers de jeunes travailleurs.
+Z�ro sans-abri jeune
+: dispositifs sp�cifiques de mise � l'abri et d'accompagnement pour les jeunes en rupture.
+Acc�s � l'alimentation digne
+: �piceries solidaires, colis alimentaires et repas subventionn�s pour les �tudiant�es et jeunes pr�caires.
+R�ponse aux besoins mat�riels de base
+: aide aux transports, aux fournitures, aux �quipements num�riques.
+Mobilit� sans contrainte
+: transport gratuit ou tr�s fortement r�duit pour les jeunes montpelli�rains.
+Sant� mentale prioritaire
+: cr�ation de maisons de sant� jeunes, consultation psy de premier recours gratuite, formation des acteurs de terrain.
+Espaces sant� jeunes
+: d�ploiement de dispositifs de sant� sexuelle, contraception, d�pistage, directement dans les quartiers.
+Acc�s garanti � la culture
+: pass culture municipal abond�, tarif z�ro pour les moins de 18 ans dans les �quipements municipaux.
+M�diath�ques plus accessibles
+: horaires �largis, animation jeunesse renforc�e, num�rique inclusif.
+�ducation populaire
+: soutien aux associations d'�ducation populaire, aux MJC et aux maisons de quartier.
+Culture dans tous les temps de vie
+: projets artistiques dans les coll�ges, lyc�es et espaces informels.
+Sport accessible
+: �quipements ouverts et gratuits, encadrement associatif soutenu.
+Refus de la commercialisation du sport
+: maintenir des pratiques sportives populaires en dehors des logiques marchandes.
+Fin de l'instrumentalisation de la la�cit�
+: garantir un traitement �gal pour toutes les convictions dans l'espace public.
+
+--- File: listes_la-france-insoumise_programme_jeunesses_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/jeunesses
+
+TITLE: Jeunesses : �mancipation et dignit� pour toutes et tous � Faire mieux pour Montpellier
+
+DESCRIPTION: Jeunesses : �mancipation et dignit� pour toutes et tous
+
+CONTENT:
+
+Retour � la liste
+enfance et �ducation
+sant�
+solidarit�
+Jeunesses : �mancipation et dignit� pour toutes et tous
+Une mesure propos�e par Faire mieux pour Montpellier
+Les jeunes de Montpellier font face � une pr�carit� croissante : loyers inaccessibles, alimentation insuffisante, sant� mentale en crise et discriminations persistantes. Nathalie Oziol veut une ville qui investit r�ellement dans sa jeunesse.
+Les axes forts :
+Logement cl� de l'autonomie
+: priorit� aux jeunes dans les attributions de logements sociaux, soutien aux colocations solidaires et aux foyers de jeunes travailleurs.
+Z�ro sans-abri jeune
+: dispositifs sp�cifiques de mise � l'abri et d'accompagnement pour les jeunes en rupture.
+Acc�s � l'alimentation digne
+: �piceries solidaires, colis alimentaires et repas subventionn�s pour les �tudiant�es et jeunes pr�caires.
+R�ponse aux besoins mat�riels de base
+: aide aux transports, aux fournitures, aux �quipements num�riques.
+Mobilit� sans contrainte
+: transport gratuit ou tr�s fortement r�duit pour les jeunes montpelli�rains.
+Sant� mentale prioritaire
+: cr�ation de maisons de sant� jeunes, consultation psy de premier recours gratuite, formation des acteurs de terrain.
+Espaces sant� jeunes
+: d�ploiement de dispositifs de sant� sexuelle, contraception, d�pistage, directement dans les quartiers.
+Acc�s garanti � la culture
+: pass culture municipal abond�, tarif z�ro pour les moins de 18 ans dans les �quipements municipaux.
+M�diath�ques plus accessibles
+: horaires �largis, animation jeunesse renforc�e, num�rique inclusif.
+�ducation populaire
+: soutien aux associations d'�ducation populaire, aux MJC et aux maisons de quartier.
+Culture dans tous les temps de vie
+: projets artistiques dans les coll�ges, lyc�es et espaces informels.
+Sport accessible
+: �quipements ouverts et gratuits, encadrement associatif soutenu.
+Refus de la commercialisation du sport
+: maintenir des pratiques sportives populaires en dehors des logiques marchandes.
+Fin de l'instrumentalisation de la la�cit�
+: garantir un traitement �gal pour toutes les convictions dans l'espace public.
+
 --- File: listes_la-france-insoumise_programme_logement.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/logement/
 
@@ -4853,6 +6995,82 @@ Accessibilit� universelle
 Participation des habitant�es
 : r�tablir la concertation r�elle dans les attributions et les projets de r�habilitation.
 
+--- File: listes_la-france-insoumise_programme_logement_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/logement/
+
+TITLE: Logement : un droit, pas une marchandise � Faire mieux pour Montpellier
+
+DESCRIPTION: Logement : un droit, pas une marchandise
+
+CONTENT:
+
+Retour � la liste
+logement
+Logement : un droit, pas une marchandise
+Une mesure propos�e par Faire mieux pour Montpellier
+� Montpellier, la crise du logement est une r�alit� quotidienne : loyers sp�culatifs, logements indignes, expulsions, et un march� domin� par les int�r�ts des propri�taires et des plateformes touristiques. Nathalie Oziol propose de faire du logement un droit effectif, g�r� par la puissance publique.
+Les axes forts :
+Bureau municipal des droits au logement
+: cr�ation d'un guichet unique pour accompagner les habitant�es dans leurs d�marches et d�fendre leurs droits face aux propri�taires et bailleurs.
+Protection des locataires
+: lutte contre les abus, les expulsions abusives et les marchands de sommeil ; action en justice au nom de la commune.
+R�quisition des logements vacants
+: r�quisitionner les logements vides depuis plus de deux ans pour les remettre dans le circuit social.
+Lutte contre la sp�culation et les meubl�s touristiques
+: encadrement strict des locations Airbnb-type, taxation des r�sidences secondaires, plafonnement des loyers.
+Production de logements accessibles
+: relancer massivement la construction de logements sociaux et tr�s sociaux, priorit� aux m�nages en attente.
+Garanties municipales
+: mise en place de garanties de loyer pour les m�nages modestes, facilitant l'acc�s sans caution bancaire.
+Accession populaire � la propri�t�
+: soutenir les coop�ratives d'habitants et les formules d'accession sociale.
+H�bergement d'urgence
+: renforcement des capacit�s d'accueil pour les personnes sans-abri et les victimes de violences.
+R�novation thermique
+: plan ambitieux de r�habilitation �nerg�tique du parc social et priv�, avec aide aux propri�taires modestes.
+Accessibilit� universelle
+: mise aux normes des logements et des parties communes pour les personnes en situation de handicap.
+Participation des habitant�es
+: r�tablir la concertation r�elle dans les attributions et les projets de r�habilitation.
+
+--- File: listes_la-france-insoumise_programme_logement_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/logement
+
+TITLE: Logement : un droit, pas une marchandise � Faire mieux pour Montpellier
+
+DESCRIPTION: Logement : un droit, pas une marchandise
+
+CONTENT:
+
+Retour � la liste
+logement
+Logement : un droit, pas une marchandise
+Une mesure propos�e par Faire mieux pour Montpellier
+� Montpellier, la crise du logement est une r�alit� quotidienne : loyers sp�culatifs, logements indignes, expulsions, et un march� domin� par les int�r�ts des propri�taires et des plateformes touristiques. Nathalie Oziol propose de faire du logement un droit effectif, g�r� par la puissance publique.
+Les axes forts :
+Bureau municipal des droits au logement
+: cr�ation d'un guichet unique pour accompagner les habitant�es dans leurs d�marches et d�fendre leurs droits face aux propri�taires et bailleurs.
+Protection des locataires
+: lutte contre les abus, les expulsions abusives et les marchands de sommeil ; action en justice au nom de la commune.
+R�quisition des logements vacants
+: r�quisitionner les logements vides depuis plus de deux ans pour les remettre dans le circuit social.
+Lutte contre la sp�culation et les meubl�s touristiques
+: encadrement strict des locations Airbnb-type, taxation des r�sidences secondaires, plafonnement des loyers.
+Production de logements accessibles
+: relancer massivement la construction de logements sociaux et tr�s sociaux, priorit� aux m�nages en attente.
+Garanties municipales
+: mise en place de garanties de loyer pour les m�nages modestes, facilitant l'acc�s sans caution bancaire.
+Accession populaire � la propri�t�
+: soutenir les coop�ratives d'habitants et les formules d'accession sociale.
+H�bergement d'urgence
+: renforcement des capacit�s d'accueil pour les personnes sans-abri et les victimes de violences.
+R�novation thermique
+: plan ambitieux de r�habilitation �nerg�tique du parc social et priv�, avec aide aux propri�taires modestes.
+Accessibilit� universelle
+: mise aux normes des logements et des parties communes pour les personnes en situation de handicap.
+Participation des habitant�es
+: r�tablir la concertation r�elle dans les attributions et les projets de r�habilitation.
+
 --- File: listes_la-france-insoumise_programme_paix-international.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/paix-international/
 
@@ -4947,6 +7165,68 @@ Valorisation des cultures du monde
 : programmation culturelle internationale, soutien aux langues minoritaires et aux expressions culturelles des communaut�s pr�sentes � Montpellier.
 
 --- File: listes_la-france-insoumise_programme_paix-international_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/paix-international
+
+TITLE: Paix et relations internationales : une ville engag�e dans le monde � Faire mieux pour Montpellier
+
+DESCRIPTION: Paix et relations internationales : une ville engag�e dans le monde
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+d�mocratie
+Paix et relations internationales : une ville engag�e dans le monde
+Une mesure propos�e par Faire mieux pour Montpellier
+Les villes ont un r�le � jouer dans la politique internationale : elles peuvent refuser les partenariats avec des r�gimes violant le droit international et devenir des espaces de solidarit� concr�te. Nathalie Oziol propose une politique de coop�ration d�centralis�e fond�e sur la paix et les droits humains.
+Les axes forts :
+Suspension du partenariat avec Tib�riade
+: suspendre les accords avec la ville isra�lienne de Tib�riade tant que le droit international n'est pas respect� � Gaza et en Cisjordanie, en conditionnant tout partenariat au respect des droits humains.
+Montpellier ville pour la paix
+: adoption d'une charte municipale en faveur du d�sarmement, de la diplomatie et de la r�solution non-violente des conflits.
+Revitalisation des partenariats existants
+: renforcer les coop�rations avec Louisville, Heidelberg, Yaound� et d'autres villes partenaires autour de projets concrets.
+Maison des relations internationales populaire
+: transformer cet espace en lieu d'�ducation populaire aux enjeux internationaux, ouvert � toutes et tous.
+Bureau municipal de solidarit� internationale
+: structure d�di�e pour coordonner et soutenir les actions de solidarit� avec les peuples en lutte.
+Soutien aux associations de solidarit�
+: financement p�renne des associations montpelli�raines engag�es dans la coop�ration internationale et l'aide humanitaire.
+Valorisation des cultures du monde
+: programmation culturelle internationale, soutien aux langues minoritaires et aux expressions culturelles des communaut�s pr�sentes � Montpellier.
+
+--- File: listes_la-france-insoumise_programme_paix-international_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/paix-international/
+
+TITLE: Paix et relations internationales : une ville engag�e dans le monde � Faire mieux pour Montpellier
+
+DESCRIPTION: Paix et relations internationales : une ville engag�e dans le monde
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+d�mocratie
+Paix et relations internationales : une ville engag�e dans le monde
+Une mesure propos�e par Faire mieux pour Montpellier
+Les villes ont un r�le � jouer dans la politique internationale : elles peuvent refuser les partenariats avec des r�gimes violant le droit international et devenir des espaces de solidarit� concr�te. Nathalie Oziol propose une politique de coop�ration d�centralis�e fond�e sur la paix et les droits humains.
+Les axes forts :
+Suspension du partenariat avec Tib�riade
+: suspendre les accords avec la ville isra�lienne de Tib�riade tant que le droit international n'est pas respect� � Gaza et en Cisjordanie, en conditionnant tout partenariat au respect des droits humains.
+Montpellier ville pour la paix
+: adoption d'une charte municipale en faveur du d�sarmement, de la diplomatie et de la r�solution non-violente des conflits.
+Revitalisation des partenariats existants
+: renforcer les coop�rations avec Louisville, Heidelberg, Yaound� et d'autres villes partenaires autour de projets concrets.
+Maison des relations internationales populaire
+: transformer cet espace en lieu d'�ducation populaire aux enjeux internationaux, ouvert � toutes et tous.
+Bureau municipal de solidarit� internationale
+: structure d�di�e pour coordonner et soutenir les actions de solidarit� avec les peuples en lutte.
+Soutien aux associations de solidarit�
+: financement p�renne des associations montpelli�raines engag�es dans la coop�ration internationale et l'aide humanitaire.
+Valorisation des cultures du monde
+: programmation culturelle internationale, soutien aux langues minoritaires et aux expressions culturelles des communaut�s pr�sentes � Montpellier.
+
+--- File: listes_la-france-insoumise_programme_paix-international_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/paix-international
 
 TITLE: Paix et relations internationales : une ville engag�e dans le monde � Faire mieux pour Montpellier
@@ -5149,6 +7429,92 @@ Paillade sud
 Piscines gratuites l'�t�
 : acc�s libre et gratuit aux piscines municipales pendant les vagues de chaleur.
 
+--- File: listes_la-france-insoumise_programme_quartiers-populaires_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/quartiers-populaires/
+
+TITLE: Quartiers populaires : rendre le pouvoir aux habitant�es � Faire mieux pour Montpellier
+
+DESCRIPTION: Quartiers populaires : rendre le pouvoir aux habitant�es
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+d�mocratie
+Quartiers populaires : rendre le pouvoir aux habitant�es
+Une mesure propos�e par Faire mieux pour Montpellier
+Les quartiers populaires de Montpellier ? Mosson, Figuerolles, Celleneuve, Croix d'Argent ? sont trop souvent oubli�s des politiques municipales, rel�gu�s � des logiques de r�novation impos�e sans concertation. Nathalie Oziol propose de redonner la main aux habitant�es.
+Les axes forts :
+Services publics de proximit�
+: d�ploiement de maisons de services publics dans chaque quartier, pour rapprocher l'administration des habitant�es.
+Pouvoir aux r�sident�es
+: conseils de quartier � pouvoir r�el, budget participatif par quartier, droit d'initiative.
+Z�ro logement indigne
+: plan d'action pour �radiquer l'habitat insalubre, avec relogement garanti sur site.
+Attributions de logement transparentes
+: commission ind�pendante, crit�res publics, fin des logiques de client�lisme.
+Relogement sans d�placement
+: refus des politiques de dispersion des habitant�es lors des r�habilitations.
+Mobilit� vraiment accessible
+: lignes de bus adapt�es aux horaires de travail, tarifs solidaires, v�los en libre-service dans les quartiers.
+�coles r�nov�es et �galit� �ducative
+: investissement prioritaire dans les �coles des quartiers, d�doublement des classes.
+Emploi local et utile
+: clauses d'insertion dans les march�s publics, cr�ation d'emplois de proximit� (m�diation, propret�, animation).
+S�curit� par la pr�sence humaine
+: concierges de quartier, m�diateurs, �clairage adapt� ? la pr�vention avant la r�pression.
+Espaces verts et respirables
+: v�g�talisation des cours d'�cole et des places, �lots de fra�cheur, acc�s � des espaces naturels.
+Culture, sport, solidarit� comme droits
+: �quipements sportifs de qualit�, centres culturels de proximit�, �piceries solidaires.
+Paillade sud
+: r�vision profonde des projets en cours, concertation r�elle avec les habitant�es du sud de la Mosson.
+Piscines gratuites l'�t�
+: acc�s libre et gratuit aux piscines municipales pendant les vagues de chaleur.
+
+--- File: listes_la-france-insoumise_programme_quartiers-populaires_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/quartiers-populaires
+
+TITLE: Quartiers populaires : rendre le pouvoir aux habitant�es � Faire mieux pour Montpellier
+
+DESCRIPTION: Quartiers populaires : rendre le pouvoir aux habitant�es
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+d�mocratie
+Quartiers populaires : rendre le pouvoir aux habitant�es
+Une mesure propos�e par Faire mieux pour Montpellier
+Les quartiers populaires de Montpellier ? Mosson, Figuerolles, Celleneuve, Croix d'Argent ? sont trop souvent oubli�s des politiques municipales, rel�gu�s � des logiques de r�novation impos�e sans concertation. Nathalie Oziol propose de redonner la main aux habitant�es.
+Les axes forts :
+Services publics de proximit�
+: d�ploiement de maisons de services publics dans chaque quartier, pour rapprocher l'administration des habitant�es.
+Pouvoir aux r�sident�es
+: conseils de quartier � pouvoir r�el, budget participatif par quartier, droit d'initiative.
+Z�ro logement indigne
+: plan d'action pour �radiquer l'habitat insalubre, avec relogement garanti sur site.
+Attributions de logement transparentes
+: commission ind�pendante, crit�res publics, fin des logiques de client�lisme.
+Relogement sans d�placement
+: refus des politiques de dispersion des habitant�es lors des r�habilitations.
+Mobilit� vraiment accessible
+: lignes de bus adapt�es aux horaires de travail, tarifs solidaires, v�los en libre-service dans les quartiers.
+�coles r�nov�es et �galit� �ducative
+: investissement prioritaire dans les �coles des quartiers, d�doublement des classes.
+Emploi local et utile
+: clauses d'insertion dans les march�s publics, cr�ation d'emplois de proximit� (m�diation, propret�, animation).
+S�curit� par la pr�sence humaine
+: concierges de quartier, m�diateurs, �clairage adapt� ? la pr�vention avant la r�pression.
+Espaces verts et respirables
+: v�g�talisation des cours d'�cole et des places, �lots de fra�cheur, acc�s � des espaces naturels.
+Culture, sport, solidarit� comme droits
+: �quipements sportifs de qualit�, centres culturels de proximit�, �piceries solidaires.
+Paillade sud
+: r�vision profonde des projets en cours, concertation r�elle avec les habitant�es du sud de la Mosson.
+Piscines gratuites l'�t�
+: acc�s libre et gratuit aux piscines municipales pendant les vagues de chaleur.
+
 --- File: listes_la-france-insoumise_programme_sante.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/sante/
 
@@ -5258,6 +7624,78 @@ Acc�s � l'IVG et � la contraception
 : soutien aux centres de planification familiale, information accessible dans tous les quartiers.
 
 --- File: listes_la-france-insoumise_programme_sante_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/sante
+
+TITLE: Sant� : la sant� pour toutes et tous, pas pour les plus riches � Faire mieux pour Montpellier
+
+DESCRIPTION: Sant� : la sant� pour toutes et tous, pas pour les plus riches
+
+CONTENT:
+
+Retour � la liste
+sant�
+Sant� : la sant� pour toutes et tous, pas pour les plus riches
+Une mesure propos�e par Faire mieux pour Montpellier
+Montpellier souffre d'in�galit�s de sant� profondes : d�serts m�dicaux dans les quartiers populaires, reste � charge insupportable pour les m�nages modestes, et une pr�vention insuffisante. Nathalie Oziol veut une politique de sant� publique ambitieuse, ancr�e dans les quartiers.
+Les axes forts :
+Maisons de sant� municipales
+: cr�ation de centres de sant� municipaux dans chaque quartier, avec m�decins g�n�ralistes, infirmier�es et sp�cialistes accessibles sans avance de frais.
+Soins pr�ventifs garantis
+: acc�s gratuit aux d�pistages, vaccinations et bilans de sant� pour toutes et tous.
+Acc�s aux m�dicaments
+: soutien aux pharmacies associatives et coop�ratives, aide � l'acc�s aux m�dicaments pour les m�nages modestes.
+�ducation � la sant�
+: programmes d'information et de pr�vention dans les �coles, les centres sociaux et les MJC.
+Lutte contre les in�galit�s de sant�
+: action sp�cifique dans les quartiers o� l'acc�s aux soins est le plus difficile, avec des �quipes mobiles de sant�.
+Soutien aux populations vuln�rables
+: soins dentaires, ophtalmologiques et psychiatriques accessibles aux personnes pr�caires, sans condition.
+Dignit� des personnels de sant�
+: soutien aux professionnel�les de sant� de premi�re ligne, revalorisation des conditions de travail dans les structures municipales.
+Sant� mentale
+: d�ploiement de services de soutien psychologique accessibles, notamment pour les jeunes et les personnes en situation de pr�carit�.
+Sant� environnementale
+: lutte contre les pollutions atmosph�riques, sonores et chimiques dans les quartiers, avec des plans d'action concrets.
+Acc�s � l'IVG et � la contraception
+: soutien aux centres de planification familiale, information accessible dans tous les quartiers.
+
+--- File: listes_la-france-insoumise_programme_sante_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/sante/
+
+TITLE: Sant� : la sant� pour toutes et tous, pas pour les plus riches � Faire mieux pour Montpellier
+
+DESCRIPTION: Sant� : la sant� pour toutes et tous, pas pour les plus riches
+
+CONTENT:
+
+Retour � la liste
+sant�
+Sant� : la sant� pour toutes et tous, pas pour les plus riches
+Une mesure propos�e par Faire mieux pour Montpellier
+Montpellier souffre d'in�galit�s de sant� profondes : d�serts m�dicaux dans les quartiers populaires, reste � charge insupportable pour les m�nages modestes, et une pr�vention insuffisante. Nathalie Oziol veut une politique de sant� publique ambitieuse, ancr�e dans les quartiers.
+Les axes forts :
+Maisons de sant� municipales
+: cr�ation de centres de sant� municipaux dans chaque quartier, avec m�decins g�n�ralistes, infirmier�es et sp�cialistes accessibles sans avance de frais.
+Soins pr�ventifs garantis
+: acc�s gratuit aux d�pistages, vaccinations et bilans de sant� pour toutes et tous.
+Acc�s aux m�dicaments
+: soutien aux pharmacies associatives et coop�ratives, aide � l'acc�s aux m�dicaments pour les m�nages modestes.
+�ducation � la sant�
+: programmes d'information et de pr�vention dans les �coles, les centres sociaux et les MJC.
+Lutte contre les in�galit�s de sant�
+: action sp�cifique dans les quartiers o� l'acc�s aux soins est le plus difficile, avec des �quipes mobiles de sant�.
+Soutien aux populations vuln�rables
+: soins dentaires, ophtalmologiques et psychiatriques accessibles aux personnes pr�caires, sans condition.
+Dignit� des personnels de sant�
+: soutien aux professionnel�les de sant� de premi�re ligne, revalorisation des conditions de travail dans les structures municipales.
+Sant� mentale
+: d�ploiement de services de soutien psychologique accessibles, notamment pour les jeunes et les personnes en situation de pr�carit�.
+Sant� environnementale
+: lutte contre les pollutions atmosph�riques, sonores et chimiques dans les quartiers, avec des plans d'action concrets.
+Acc�s � l'IVG et � la contraception
+: soutien aux centres de planification familiale, information accessible dans tous les quartiers.
+
+--- File: listes_la-france-insoumise_programme_sante_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/sante
 
 TITLE: Sant� : la sant� pour toutes et tous, pas pour les plus riches � Faire mieux pour Montpellier
@@ -5441,6 +7879,80 @@ Sport sant�
 Soutien � la vie associative
 : simplification des d�marches, acc�s aux locaux, financement pluriannuel pour les associations d'int�r�t g�n�ral.
 
+--- File: listes_la-france-insoumise_programme_sport-associations_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/sport-associations/
+
+TITLE: Sport et vie associative : le sport pour toutes et tous � Faire mieux pour Montpellier
+
+DESCRIPTION: Sport et vie associative : le sport pour toutes et tous
+
+CONTENT:
+
+Retour � la liste
+sport
+d�mocratie
+Sport et vie associative : le sport pour toutes et tous
+Une mesure propos�e par Faire mieux pour Montpellier
+Le sport � Montpellier est trop souvent r�serv� � celles et ceux qui peuvent se le payer. Entre �quipements mal entretenus, tarifs des clubs inaccessibles et sous-financement du mouvement associatif, des milliers d'habitant�es restent � l'�cart. Nathalie Oziol veut un sport populaire, �mancipateur et accessible.
+Les axes forts :
+D�mocratisation de l'acc�s au sport
+: tarification solidaire dans tous les �quipements sportifs municipaux, gratuit� pour les moins de 18 ans.
+Sport populaire et �mancipateur
+: soutien aux pratiques sportives qui renforcent le collectif, l'�galit� et la sant� plut�t que la performance marchande.
+�quipements accessibles � toutes et tous
+: mise aux normes des installations pour les personnes en situation de handicap, acc�s universel garanti.
+Lutte contre les discriminations dans le sport
+: protocoles anti-discrimination dans toutes les associations sportives subventionn�es, formation des encadrant�es.
+Refus de la commercialisation du sport
+: pr�server les clubs associatifs et les pratiques amateurs des logiques de profit et de privatisation.
+Soutien aux associations sportives locales
+: financement p�renne, mise � disposition de cr�neaux et d'�quipements, accompagnement administratif.
+Sport et citoyennet�
+: d�velopper les projets sportifs qui favorisent l'engagement civique, la mixit� sociale et le vivre-ensemble.
+Gouvernance d�mocratique du sport
+: associer les clubs, les sportif�ves et les habitant�es aux d�cisions sur les �quipements et les politiques sportives municipales.
+Sport sant�
+: programmes gratuits de sport adapt� pour les seniors, les personnes en situation de handicap et les publics �loign�s de la pratique sportive.
+Soutien � la vie associative
+: simplification des d�marches, acc�s aux locaux, financement pluriannuel pour les associations d'int�r�t g�n�ral.
+
+--- File: listes_la-france-insoumise_programme_sport-associations_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/sport-associations
+
+TITLE: Sport et vie associative : le sport pour toutes et tous � Faire mieux pour Montpellier
+
+DESCRIPTION: Sport et vie associative : le sport pour toutes et tous
+
+CONTENT:
+
+Retour � la liste
+sport
+d�mocratie
+Sport et vie associative : le sport pour toutes et tous
+Une mesure propos�e par Faire mieux pour Montpellier
+Le sport � Montpellier est trop souvent r�serv� � celles et ceux qui peuvent se le payer. Entre �quipements mal entretenus, tarifs des clubs inaccessibles et sous-financement du mouvement associatif, des milliers d'habitant�es restent � l'�cart. Nathalie Oziol veut un sport populaire, �mancipateur et accessible.
+Les axes forts :
+D�mocratisation de l'acc�s au sport
+: tarification solidaire dans tous les �quipements sportifs municipaux, gratuit� pour les moins de 18 ans.
+Sport populaire et �mancipateur
+: soutien aux pratiques sportives qui renforcent le collectif, l'�galit� et la sant� plut�t que la performance marchande.
+�quipements accessibles � toutes et tous
+: mise aux normes des installations pour les personnes en situation de handicap, acc�s universel garanti.
+Lutte contre les discriminations dans le sport
+: protocoles anti-discrimination dans toutes les associations sportives subventionn�es, formation des encadrant�es.
+Refus de la commercialisation du sport
+: pr�server les clubs associatifs et les pratiques amateurs des logiques de profit et de privatisation.
+Soutien aux associations sportives locales
+: financement p�renne, mise � disposition de cr�neaux et d'�quipements, accompagnement administratif.
+Sport et citoyennet�
+: d�velopper les projets sportifs qui favorisent l'engagement civique, la mixit� sociale et le vivre-ensemble.
+Gouvernance d�mocratique du sport
+: associer les clubs, les sportif�ves et les habitant�es aux d�cisions sur les �quipements et les politiques sportives municipales.
+Sport sant�
+: programmes gratuits de sport adapt� pour les seniors, les personnes en situation de handicap et les publics �loign�s de la pratique sportive.
+Soutien � la vie associative
+: simplification des d�marches, acc�s aux locaux, financement pluriannuel pour les associations d'int�r�t g�n�ral.
+
 --- File: listes_la-france-insoumise_programme_surete.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/surete/
 
@@ -5532,6 +8044,66 @@ Approches communautaires
 : soutien aux initiatives de voisinage, aux rondes citoyennes et aux espaces d'�coute anim�s par les associations.
 
 --- File: listes_la-france-insoumise_programme_surete_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/surete
+
+TITLE: S�ret� : la pr�vention plut�t que la r�pression � Faire mieux pour Montpellier
+
+DESCRIPTION: S�ret� : la pr�vention plut�t que la r�pression
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+S�ret� : la pr�vention plut�t que la r�pression
+Une mesure propos�e par Faire mieux pour Montpellier
+La s�curit� � Montpellier ne se r�sume pas � la pr�sence polici�re ou � la vid�osurveillance. Nathalie Oziol propose une approche fond�e sur la pr�vention, la pr�sence humaine et l'implication des habitant�es ? une s�ret� r�elle, pas s�curitaire.
+Les axes forts :
+Pr�vention avant la r�pression
+: r�orientation des moyens vers la pr�vention sociale, l'�ducation et la m�diation plut�t que vers les dispositifs punitifs.
+M�diation de proximit�
+: d�ploiement de m�diateur�rices dans les quartiers, actif�ves en journ�e et en soir�e pour pr�venir les conflits avant qu'ils n'�clatent.
+Police municipale r�orient�e
+: refondre les missions de la police municipale vers la pr�vention, la relation avec les habitant�es et le soutien aux victimes ? moins de r�pression, plus de pr�sence utile.
+Concierges de quartier
+: red�ploiement des budgets s�curitaires vers des postes de pr�sence humaine dans les quartiers populaires (gardien�nes d'immeuble, agents de m�diation).
+Lutte contre les discriminations polici�res
+: formation des agents � la d�ontologie, proc�dure de recours accessible, contr�le citoyen.
+Habitant�es acteurs de leur s�curit�
+: concertation r�guli�re avec les r�sident�es pour d�finir ensemble les priorit�s de s�curit� de leur quartier.
+Approches communautaires
+: soutien aux initiatives de voisinage, aux rondes citoyennes et aux espaces d'�coute anim�s par les associations.
+
+--- File: listes_la-france-insoumise_programme_surete_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/surete/
+
+TITLE: S�ret� : la pr�vention plut�t que la r�pression � Faire mieux pour Montpellier
+
+DESCRIPTION: S�ret� : la pr�vention plut�t que la r�pression
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+S�ret� : la pr�vention plut�t que la r�pression
+Une mesure propos�e par Faire mieux pour Montpellier
+La s�curit� � Montpellier ne se r�sume pas � la pr�sence polici�re ou � la vid�osurveillance. Nathalie Oziol propose une approche fond�e sur la pr�vention, la pr�sence humaine et l'implication des habitant�es ? une s�ret� r�elle, pas s�curitaire.
+Les axes forts :
+Pr�vention avant la r�pression
+: r�orientation des moyens vers la pr�vention sociale, l'�ducation et la m�diation plut�t que vers les dispositifs punitifs.
+M�diation de proximit�
+: d�ploiement de m�diateur�rices dans les quartiers, actif�ves en journ�e et en soir�e pour pr�venir les conflits avant qu'ils n'�clatent.
+Police municipale r�orient�e
+: refondre les missions de la police municipale vers la pr�vention, la relation avec les habitant�es et le soutien aux victimes ? moins de r�pression, plus de pr�sence utile.
+Concierges de quartier
+: red�ploiement des budgets s�curitaires vers des postes de pr�sence humaine dans les quartiers populaires (gardien�nes d'immeuble, agents de m�diation).
+Lutte contre les discriminations polici�res
+: formation des agents � la d�ontologie, proc�dure de recours accessible, contr�le citoyen.
+Habitant�es acteurs de leur s�curit�
+: concertation r�guli�re avec les r�sident�es pour d�finir ensemble les priorit�s de s�curit� de leur quartier.
+Approches communautaires
+: soutien aux initiatives de voisinage, aux rondes citoyennes et aux espaces d'�coute anim�s par les associations.
+
+--- File: listes_la-france-insoumise_programme_surete_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/surete
 
 TITLE: S�ret� : la pr�vention plut�t que la r�pression � Faire mieux pour Montpellier
@@ -5729,6 +8301,90 @@ Bus dans les zones blanches
 Gares et terminus dignes
 : r�habilitation des terminus de bus et am�lioration des espaces d'attente.
 
+--- File: listes_la-france-insoumise_programme_transports-mobilites_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/transports-mobilites/
+
+TITLE: Transports et mobilit�s : se d�placer sans se ruiner ni polluer � Faire mieux pour Montpellier
+
+DESCRIPTION: Transports et mobilit�s : se d�placer sans se ruiner ni polluer
+
+CONTENT:
+
+Retour � la liste
+transport et mobilit�s
+Transports et mobilit�s : se d�placer sans se ruiner ni polluer
+Une mesure propos�e par Faire mieux pour Montpellier
+Montpellier est une ville o� la voiture reste souvent la seule option faute d'alternatives r�elles, p�nalisant les plus pr�caires et acc�l�rant la crise climatique. Nathalie Oziol propose une r�volution des mobilit�s, fond�e sur les transports en commun, le v�lo et la gratuit�.
+Les axes forts :
+Moratoire sur les projets autoroutiers inutiles
+: suspension de tout nouveau projet d'infrastructure routi�re non justifi� par des besoins de service.
+Transports en commun massivement renforc�s
+: fr�quences augment�es, amplitude horaire �largie, nouvelles lignes dans les zones mal desservies.
+R�seaux adapt�s aux besoins r�els
+: concertation avec les habitant�es pour repenser les trac�s et horaires selon les usages quotidiens.
+Nouveau financement des transports
+: plaidoyer pour un versement mobilit� augment� et une contribution des grandes entreprises.
+V�lo comme pilier des mobilit�s
+: r�seau cyclable s�curis� et continu sur toute la ville, stationnements s�curis�s, v�los cargo en libre-service.
+Accessibilit� universelle
+: mise aux normes de tous les arr�ts, v�hicules et quais pour les personnes en situation de handicap.
+Coordination territoriale
+: articulation des r�seaux Tam, H�rault Transport et SNCF pour des correspondances fluides.
+Cap vers la gratuit�
+: gratuit� totale des transports en commun pour les moins de 18 ans et les plus modestes, gratuit� progressive pour tous.
+Campagne de partage de la route
+: �ducation � la cohabitation entre pi�tons, cyclistes et automobilistes.
+V�hicules �lectriques partag�s
+: d�veloppement de flottes d'autopartage �lectrique dans les quartiers mal desservis.
+Convention citoyenne sur la voiture
+: d�bat public sur la place de l'automobile � Montpellier � l'horizon 2030.
+Bus dans les zones blanches
+: extension des lignes dans les communes et quartiers p�riph�riques actuellement non desservis.
+Gares et terminus dignes
+: r�habilitation des terminus de bus et am�lioration des espaces d'attente.
+
+--- File: listes_la-france-insoumise_programme_transports-mobilites_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/transports-mobilites
+
+TITLE: Transports et mobilit�s : se d�placer sans se ruiner ni polluer � Faire mieux pour Montpellier
+
+DESCRIPTION: Transports et mobilit�s : se d�placer sans se ruiner ni polluer
+
+CONTENT:
+
+Retour � la liste
+transport et mobilit�s
+Transports et mobilit�s : se d�placer sans se ruiner ni polluer
+Une mesure propos�e par Faire mieux pour Montpellier
+Montpellier est une ville o� la voiture reste souvent la seule option faute d'alternatives r�elles, p�nalisant les plus pr�caires et acc�l�rant la crise climatique. Nathalie Oziol propose une r�volution des mobilit�s, fond�e sur les transports en commun, le v�lo et la gratuit�.
+Les axes forts :
+Moratoire sur les projets autoroutiers inutiles
+: suspension de tout nouveau projet d'infrastructure routi�re non justifi� par des besoins de service.
+Transports en commun massivement renforc�s
+: fr�quences augment�es, amplitude horaire �largie, nouvelles lignes dans les zones mal desservies.
+R�seaux adapt�s aux besoins r�els
+: concertation avec les habitant�es pour repenser les trac�s et horaires selon les usages quotidiens.
+Nouveau financement des transports
+: plaidoyer pour un versement mobilit� augment� et une contribution des grandes entreprises.
+V�lo comme pilier des mobilit�s
+: r�seau cyclable s�curis� et continu sur toute la ville, stationnements s�curis�s, v�los cargo en libre-service.
+Accessibilit� universelle
+: mise aux normes de tous les arr�ts, v�hicules et quais pour les personnes en situation de handicap.
+Coordination territoriale
+: articulation des r�seaux Tam, H�rault Transport et SNCF pour des correspondances fluides.
+Cap vers la gratuit�
+: gratuit� totale des transports en commun pour les moins de 18 ans et les plus modestes, gratuit� progressive pour tous.
+Campagne de partage de la route
+: �ducation � la cohabitation entre pi�tons, cyclistes et automobilistes.
+V�hicules �lectriques partag�s
+: d�veloppement de flottes d'autopartage �lectrique dans les quartiers mal desservis.
+Convention citoyenne sur la voiture
+: d�bat public sur la place de l'automobile � Montpellier � l'horizon 2030.
+Bus dans les zones blanches
+: extension des lignes dans les communes et quartiers p�riph�riques actuellement non desservis.
+Gares et terminus dignes
+: r�habilitation des terminus de bus et am�lioration des espaces d'attente.
+
 --- File: listes_la-france-insoumise_programme_urbanisme-ecologie.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/urbanisme-ecologie/
 
@@ -5865,6 +8521,96 @@ D�mocratie urbaine
 : ateliers populaires obligatoires pour tout grand projet, avec droit de veto des habitant�es.
 
 --- File: listes_la-france-insoumise_programme_urbanisme-ecologie_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/urbanisme-ecologie
+
+TITLE: Urbanisme et �cologie : une ville � hauteur humaine � Faire mieux pour Montpellier
+
+DESCRIPTION: Urbanisme et �cologie : une ville � hauteur humaine
+
+CONTENT:
+
+Retour � la liste
+environnement
+changement climatique
+Urbanisme et �cologie : une ville � hauteur humaine
+Une mesure propos�e par Faire mieux pour Montpellier
+Montpellier continue d'artificialiser ses terres agricoles et de b�tonner ses p�riph�ries, au d�triment des habitant�es et du vivant. Face � l'urgence climatique et � la crise de sens, Nathalie Oziol propose un urbanisme d�mocratique, sobre et �cologique.
+Les axes forts :
+Urbanisme fond� sur les besoins r�els
+: refus des grands projets inutiles et impos�s, priorisation des �quipements de proximit�.
+Refus du logement indigne dans les permis
+: conditions de qualit� minimales exig�es pour toute nouvelle construction.
+Apaisement de la circulation
+: r�duction du trafic motoris� par quartier, rues apais�es et zones � faibles �missions r�elles.
+Accessibilit� des espaces publics
+: garantir que chaque habitant�e, quel que soit son �ge ou son handicap, puisse se d�placer librement en ville.
+Espaces publics dignes et non hostiles
+: supprimer les mobiliers urbains anti-SDF, concevoir des lieux accueillants pour tous.
+Lutte contre la pollution lumineuse
+: r�duction de l'�clairage nocturne inutile, protection de la biodiversit� et du sommeil des habitant�es.
+Urbanisme � �chelle humaine
+: limiter la hauteur et la densit� des constructions dans les quartiers r�sidentiels, pr�server le tissu existant.
+Reconqu�te des parcs et places publiques
+: v�g�talisation, fontaines, ombrage, espaces de convivialit� gratuits.
+Rafra�chissement urbain
+: lutte contre les �lots de chaleur par la v�g�talisation, les surfaces perm�ables et les brumisateurs.
+Compensation environnementale renforc�e
+: toute destruction de v�g�tation compens�e � la surface.
+Adaptation des �coles au climat
+: cours d'�cole v�g�talis�es, protections solaires, eau fra�che disponible.
+D�simperm�abilisation des sols
+: r�duction des surfaces b�tonn�es, favoriser l'infiltration naturelle des eaux.
+Protection des terres agricoles
+: moratoire sur tout nouveau projet artificialisant des terres cultivables.
+D�mocratie urbaine
+: ateliers populaires obligatoires pour tout grand projet, avec droit de veto des habitant�es.
+
+--- File: listes_la-france-insoumise_programme_urbanisme-ecologie_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/urbanisme-ecologie/
+
+TITLE: Urbanisme et �cologie : une ville � hauteur humaine � Faire mieux pour Montpellier
+
+DESCRIPTION: Urbanisme et �cologie : une ville � hauteur humaine
+
+CONTENT:
+
+Retour � la liste
+environnement
+changement climatique
+Urbanisme et �cologie : une ville � hauteur humaine
+Une mesure propos�e par Faire mieux pour Montpellier
+Montpellier continue d'artificialiser ses terres agricoles et de b�tonner ses p�riph�ries, au d�triment des habitant�es et du vivant. Face � l'urgence climatique et � la crise de sens, Nathalie Oziol propose un urbanisme d�mocratique, sobre et �cologique.
+Les axes forts :
+Urbanisme fond� sur les besoins r�els
+: refus des grands projets inutiles et impos�s, priorisation des �quipements de proximit�.
+Refus du logement indigne dans les permis
+: conditions de qualit� minimales exig�es pour toute nouvelle construction.
+Apaisement de la circulation
+: r�duction du trafic motoris� par quartier, rues apais�es et zones � faibles �missions r�elles.
+Accessibilit� des espaces publics
+: garantir que chaque habitant�e, quel que soit son �ge ou son handicap, puisse se d�placer librement en ville.
+Espaces publics dignes et non hostiles
+: supprimer les mobiliers urbains anti-SDF, concevoir des lieux accueillants pour tous.
+Lutte contre la pollution lumineuse
+: r�duction de l'�clairage nocturne inutile, protection de la biodiversit� et du sommeil des habitant�es.
+Urbanisme � �chelle humaine
+: limiter la hauteur et la densit� des constructions dans les quartiers r�sidentiels, pr�server le tissu existant.
+Reconqu�te des parcs et places publiques
+: v�g�talisation, fontaines, ombrage, espaces de convivialit� gratuits.
+Rafra�chissement urbain
+: lutte contre les �lots de chaleur par la v�g�talisation, les surfaces perm�ables et les brumisateurs.
+Compensation environnementale renforc�e
+: toute destruction de v�g�tation compens�e � la surface.
+Adaptation des �coles au climat
+: cours d'�cole v�g�talis�es, protections solaires, eau fra�che disponible.
+D�simperm�abilisation des sols
+: r�duction des surfaces b�tonn�es, favoriser l'infiltration naturelle des eaux.
+Protection des terres agricoles
+: moratoire sur tout nouveau projet artificialisant des terres cultivables.
+D�mocratie urbaine
+: ateliers populaires obligatoires pour tout grand projet, avec droit de veto des habitant�es.
+
+--- File: listes_la-france-insoumise_programme_urbanisme-ecologie_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-france-insoumise/programme/urbanisme-ecologie
 
 TITLE: Urbanisme et �cologie : une ville � hauteur humaine � Faire mieux pour Montpellier
@@ -6491,6 +9237,316 @@ Institutions participatives lisibles
 Rendre la d�cision publique compr�hensible, acce
 [... truncated ...]
 
+--- File: listes_les-ecologistes_4.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes
+
+TITLE: Printemps montpelli�rain � Jean-Louis Roum�gas
+
+DESCRIPTION: Pr�sentation de la liste Printemps montpelli�rain et de sa t�te de liste Jean-Louis Roum�gas qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Printemps montpelli�rain
+T�te de liste�: Jean-Louis Roum�gas
+Les �cologistes
+L'Apr�s 34
+Assembl�e des quartiers
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Derni�res actualit�s
+Les �cologistes
+(anciennement Europe �cologie ? Les Verts) constituent un mouvement politique national structur� autour des enjeux �cologiques, sociaux et d�mocratiques. Le mouvement d�fend une transformation �cologique de la soci�t� articul�e � la justice sociale, � la d�mocratie locale et � la planification �cologique.
+� Montpellier, Les �cologistes disposent d?un ancrage ancien, � la fois militant et institutionnel, et ont particip� � diff�rentes configurations �lectorales et majorit�s municipales au cours des derni�res d�cennies.
+Pour les �lections municipales de 2026, Les �cologistes ont annonc� la constitution d?une
+liste �cologiste autonome
+, intitul�e
+� Printemps montpelli�rain �
+et conduite par
+Jean?Louis Roum�gas
+.
+Jean?Louis Roum�gas et l?�cologie politique � Montpellier
+Jean?Louis Roum�gas est une figure historique de l?�cologie politique locale et nationale. Ancien d�put�, il est engag� depuis de nombreuses ann�es sur les questions environnementales, d�mocratiques et sociales.
+Sa d�signation comme t�te de liste pour les municipales de 2026 s?inscrit dans la volont� d?une partie des �cologistes montpelli�rains de
+r�affirmer une identit� politique �cologiste propre
+, distincte des logiques de coalition domin�es par d?autres forces de gauche.
+Une liste �cologiste autonome
+Pour 2026, Les �cologistes � Montpellier ont fait le choix strat�gique de pr�senter une
+liste autonome
+, sans int�gration dans une coalition conduite par le Parti socialiste.
+Ce choix est pr�sent� par ses promoteurs comme :
+une volont� de
+clarifier le projet �cologiste
+aupr�s des �lecteur�rices ;
+un refus d?une �cologie r�duite � un r�le d?appoint dans des majorit�s de gestion ;
+une mani�re de replacer l?�cologie politique au centre du d�bat municipal.
+Cette orientation distingue la liste conduite par Jean?Louis Roum�gas d?autres configurations locales dans lesquelles des �cologistes ont fait le choix de participer � des majorit�s socialistes.
+Tensions et divergences internes au sein des �cologistes
+La pr�paration des municipales de 2026 � Montpellier s?inscrit dans un contexte de
+d�saccords internes
+au sein du mouvement �cologiste local.
+D�saccords strat�giques
+Plusieurs courants et sensibilit�s s?opposent sur la strat�gie � adopter vis?�?vis de la municipalit� socialiste actuellement en place :
+une partie des �cologistes d�fend une
+autonomie politique claire
+, estimant que l?�cologie ne peut �tre pleinement mise en ?uvre dans une majorit� domin�e par le Parti socialiste ;
+une autre partie privil�gie une
+logique d?alliance avec le maire Micha�l Delafosse
+, consid�rant cette participation comme un moyen d?influer de l?int�rieur sur les politiques municipales.
+Le cas de Manu Reynaud et de ses soutiens
+Ces divergences se sont notamment cristallis�es autour de
+Manu Reynaud
+, figure �cologiste locale, et de ses soutiens, qui ont fait le choix de
+se ranger du c�t� de la majorit� municipale conduite par Micha�l Delafosse et le Parti socialiste
+.
+Ce positionnement a �t� per�u par d?autres �cologistes comme une
+rupture politique
+avec l?orientation d?autonomie d�fendue par la liste Roum�gas. Il illustre des d�saccords profonds sur :
+le rapport aux partis de gouvernement ;
+la capacit� de la municipalit� actuelle � porter une v�ritable transformation �cologique ;
+la place de l?�cologie dans l?�quilibre des forces de gauche � Montpellier.
+Ces tensions ont contribu� � structurer le paysage �cologiste local en vue de 2026, avec des �cologistes pr�sents � la fois dans la majorit� municipale sortante et dans une opposition �cologiste autonome.
+Positionnement politique local
+La liste �cologiste conduite par Jean?Louis Roum�gas se positionne comme une
+alternative � la municipalit� socialiste actuelle
+, tout en se distinguant des autres forces de gauche par une centralit� donn�e aux enjeux �cologiques.
+Les critiques formul�es portent notamment sur :
+le rythme et l?ampleur de la transition �cologique locale ;
+les choix d?am�nagement urbain et de m�tropolisation ;
+la coh�rence entre discours �cologiques et d�cisions concr�tes.
+Axes programmatiques g�n�ralement mis en avant
+Sans programme municipal d�finitivement arr�t� � ce stade, les prises de position publiques des �cologistes et de Jean?Louis Roum�gas permettent d?identifier plusieurs axes r�currents :
+Transition �cologique locale
+: r�duction de l?empreinte carbone de la ville, adaptation au changement climatique, protection de la biodiversit� ;
+Urbanisme et am�nagement
+: critique de l?artificialisation des sols, r�flexion sur la densit� urbaine et les usages de la ville ;
+D�mocratie locale
+: participation citoyenne, transparence des d�cisions, renforcement du r�le des habitant�es ;
+Justice sociale
+: articulation entre �cologie et conditions de vie, lutte contre les in�galit�s environnementales.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+alimentation
+changement climatique
+culture
+d�chets
+d�mocratie
+enfance et �ducation
+environnement
+gestion de l'eau
+logement
+sant�
+solidarit�
+s�curit�
+transport et mobilit�s
+�mancipation et justice sociale
+d�mocratie
+D�mocratie locale : donner le pouvoir aux habitant�es
+Institutions participatives lisibles
+Rendre la d�cision publique compr�hensible, accessible et contr�lable.
+Dispositifs :
+Parlements de quartier (�lu�es).
+R�f�rendums locaux (consultatifs / d�cisionnels selon seuils).
+Comit� de suivi ind�pendant.
+P�tition citoyenne pour inscrire un point � l'ordre du jour du Conseil municipal (seuil � d�battre, ex. 1 500 signatures).
+Garanties :
+publicit� des s�ances, comptes-rendus lisibles, r�ponses motiv�es de la Ville, calendrier de mise en ?uvre.
+Plateforme num�rique de d�mocratie continue
+Faciliter l'� aller-retour � citoyen�nes ? Ville ? parlements de quartier.
+Dispositifs :
+�changes directs avec �lu�es, services et parlements de quartier.
+Num�ro de suivi pour chaque demande ; statut d'avancement en temps r�el.
+Consultations et votes en ligne.
+Garanties :
+accessibilit� (langage clair, mode faible connexion, m�diation en lieux physiques), open data, archivage public.
+Pouvoir aux quartiers
+Rapprocher la d�cision des bassins de vie, donner une vraie l�gitimit� aux instances de quartiers.
+Dispositifs :
+Concertation pour passer de 8 � 22?23 quartiers lisibles.
+Budgets participatifs � la hauteur des besoins de chaque quartier.
+Observatoire citoyen de l'action locale.
+Garanties :
+r�gles anti-captation, parit� / diversit�, bilan annuel � ce qui a �t� fait / ajustements �.
+Des lieux pour faire vivre la d�mocratie locale
+Disposer dans chaque quartier d'un lieu identifi� pour se r�unir, s'informer et participer.
+Appui sur des lieux existants ou maisons de la citoyennet�, horaires lisibles, affichage des projets en cours et retours r�guliers aux habitant�es.
+Conventions citoyennes th�matiques
+D�cider en connaissance sur des sujets structurants.
+Dispositifs :
+50 % volontaires / 50 % tirage au sort.
+1 th�me = 1 convention.
+Restitution, d�bat et prise de d�cision en Conseil municipal ou par r�f�rendum local.
+Garanties :
+expertise contradictoire et vulgaris�e, publication des analyses, engagements dat�s.
+Co-construction exigeante
+Du diagnostic partag� � la d�cision valid�e par la population.
+Dispositifs :
+Parlements de quartier (�lu�es) + assembl�es citoyennes.
+R�f�rendums avant Conseil municipal.
+Garanties :
+transparence des co�ts / impacts / alternatives, �valuation partag�e a posteriori.
+culture
+Culture : accessible � tou�tes, ancr�e dans les quartiers
+Une culture vraiment accessible
+La culture ne doit pas �tre un privil�
+[... truncated ...]
+
+--- File: listes_les-ecologistes_5.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/
+
+TITLE: Printemps montpelli�rain � Jean-Louis Roum�gas
+
+DESCRIPTION: Pr�sentation de la liste Printemps montpelli�rain et de sa t�te de liste Jean-Louis Roum�gas qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Printemps montpelli�rain
+T�te de liste�: Jean-Louis Roum�gas
+Les �cologistes
+L'Apr�s 34
+Assembl�e des quartiers
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Derni�res actualit�s
+Les �cologistes
+(anciennement Europe �cologie ? Les Verts) constituent un mouvement politique national structur� autour des enjeux �cologiques, sociaux et d�mocratiques. Le mouvement d�fend une transformation �cologique de la soci�t� articul�e � la justice sociale, � la d�mocratie locale et � la planification �cologique.
+� Montpellier, Les �cologistes disposent d?un ancrage ancien, � la fois militant et institutionnel, et ont particip� � diff�rentes configurations �lectorales et majorit�s municipales au cours des derni�res d�cennies.
+Pour les �lections municipales de 2026, Les �cologistes ont annonc� la constitution d?une
+liste �cologiste autonome
+, intitul�e
+� Printemps montpelli�rain �
+et conduite par
+Jean?Louis Roum�gas
+.
+Jean?Louis Roum�gas et l?�cologie politique � Montpellier
+Jean?Louis Roum�gas est une figure historique de l?�cologie politique locale et nationale. Ancien d�put�, il est engag� depuis de nombreuses ann�es sur les questions environnementales, d�mocratiques et sociales.
+Sa d�signation comme t�te de liste pour les municipales de 2026 s?inscrit dans la volont� d?une partie des �cologistes montpelli�rains de
+r�affirmer une identit� politique �cologiste propre
+, distincte des logiques de coalition domin�es par d?autres forces de gauche.
+Une liste �cologiste autonome
+Pour 2026, Les �cologistes � Montpellier ont fait le choix strat�gique de pr�senter une
+liste autonome
+, sans int�gration dans une coalition conduite par le Parti socialiste.
+Ce choix est pr�sent� par ses promoteurs comme :
+une volont� de
+clarifier le projet �cologiste
+aupr�s des �lecteur�rices ;
+un refus d?une �cologie r�duite � un r�le d?appoint dans des majorit�s de gestion ;
+une mani�re de replacer l?�cologie politique au centre du d�bat municipal.
+Cette orientation distingue la liste conduite par Jean?Louis Roum�gas d?autres configurations locales dans lesquelles des �cologistes ont fait le choix de participer � des majorit�s socialistes.
+Tensions et divergences internes au sein des �cologistes
+La pr�paration des municipales de 2026 � Montpellier s?inscrit dans un contexte de
+d�saccords internes
+au sein du mouvement �cologiste local.
+D�saccords strat�giques
+Plusieurs courants et sensibilit�s s?opposent sur la strat�gie � adopter vis?�?vis de la municipalit� socialiste actuellement en place :
+une partie des �cologistes d�fend une
+autonomie politique claire
+, estimant que l?�cologie ne peut �tre pleinement mise en ?uvre dans une majorit� domin�e par le Parti socialiste ;
+une autre partie privil�gie une
+logique d?alliance avec le maire Micha�l Delafosse
+, consid�rant cette participation comme un moyen d?influer de l?int�rieur sur les politiques municipales.
+Le cas de Manu Reynaud et de ses soutiens
+Ces divergences se sont notamment cristallis�es autour de
+Manu Reynaud
+, figure �cologiste locale, et de ses soutiens, qui ont fait le choix de
+se ranger du c�t� de la majorit� municipale conduite par Micha�l Delafosse et le Parti socialiste
+.
+Ce positionnement a �t� per�u par d?autres �cologistes comme une
+rupture politique
+avec l?orientation d?autonomie d�fendue par la liste Roum�gas. Il illustre des d�saccords profonds sur :
+le rapport aux partis de gouvernement ;
+la capacit� de la municipalit� actuelle � porter une v�ritable transformation �cologique ;
+la place de l?�cologie dans l?�quilibre des forces de gauche � Montpellier.
+Ces tensions ont contribu� � structurer le paysage �cologiste local en vue de 2026, avec des �cologistes pr�sents � la fois dans la majorit� municipale sortante et dans une opposition �cologiste autonome.
+Positionnement politique local
+La liste �cologiste conduite par Jean?Louis Roum�gas se positionne comme une
+alternative � la municipalit� socialiste actuelle
+, tout en se distinguant des autres forces de gauche par une centralit� donn�e aux enjeux �cologiques.
+Les critiques formul�es portent notamment sur :
+le rythme et l?ampleur de la transition �cologique locale ;
+les choix d?am�nagement urbain et de m�tropolisation ;
+la coh�rence entre discours �cologiques et d�cisions concr�tes.
+Axes programmatiques g�n�ralement mis en avant
+Sans programme municipal d�finitivement arr�t� � ce stade, les prises de position publiques des �cologistes et de Jean?Louis Roum�gas permettent d?identifier plusieurs axes r�currents :
+Transition �cologique locale
+: r�duction de l?empreinte carbone de la ville, adaptation au changement climatique, protection de la biodiversit� ;
+Urbanisme et am�nagement
+: critique de l?artificialisation des sols, r�flexion sur la densit� urbaine et les usages de la ville ;
+D�mocratie locale
+: participation citoyenne, transparence des d�cisions, renforcement du r�le des habitant�es ;
+Justice sociale
+: articulation entre �cologie et conditions de vie, lutte contre les in�galit�s environnementales.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+alimentation
+changement climatique
+culture
+d�chets
+d�mocratie
+enfance et �ducation
+environnement
+gestion de l'eau
+logement
+sant�
+solidarit�
+s�curit�
+transport et mobilit�s
+�mancipation et justice sociale
+d�mocratie
+D�mocratie locale : donner le pouvoir aux habitant�es
+Institutions participatives lisibles
+Rendre la d�cision publique compr�hensible, accessible et contr�lable.
+Dispositifs :
+Parlements de quartier (�lu�es).
+R�f�rendums locaux (consultatifs / d�cisionnels selon seuils).
+Comit� de suivi ind�pendant.
+P�tition citoyenne pour inscrire un point � l'ordre du jour du Conseil municipal (seuil � d�battre, ex. 1 500 signatures).
+Garanties :
+publicit� des s�ances, comptes-rendus lisibles, r�ponses motiv�es de la Ville, calendrier de mise en ?uvre.
+Plateforme num�rique de d�mocratie continue
+Faciliter l'� aller-retour � citoyen�nes ? Ville ? parlements de quartier.
+Dispositifs :
+�changes directs avec �lu�es, services et parlements de quartier.
+Num�ro de suivi pour chaque demande ; statut d'avancement en temps r�el.
+Consultations et votes en ligne.
+Garanties :
+accessibilit� (langage clair, mode faible connexion, m�diation en lieux physiques), open data, archivage public.
+Pouvoir aux quartiers
+Rapprocher la d�cision des bassins de vie, donner une vraie l�gitimit� aux instances de quartiers.
+Dispositifs :
+Concertation pour passer de 8 � 22?23 quartiers lisibles.
+Budgets participatifs � la hauteur des besoins de chaque quartier.
+Observatoire citoyen de l'action locale.
+Garanties :
+r�gles anti-captation, parit� / diversit�, bilan annuel � ce qui a �t� fait / ajustements �.
+Des lieux pour faire vivre la d�mocratie locale
+Disposer dans chaque quartier d'un lieu identifi� pour se r�unir, s'informer et participer.
+Appui sur des lieux existants ou maisons de la citoyennet�, horaires lisibles, affichage des projets en cours et retours r�guliers aux habitant�es.
+Conventions citoyennes th�matiques
+D�cider en connaissance sur des sujets structurants.
+Dispositifs :
+50 % volontaires / 50 % tirage au sort.
+1 th�me = 1 convention.
+Restitution, d�bat et prise de d�cision en Conseil municipal ou par r�f�rendum local.
+Garanties :
+expertise contradictoire et vulgaris�e, publication des analyses, engagements dat�s.
+Co-construction exigeante
+Du diagnostic partag� � la d�cision valid�e par la population.
+Dispositifs :
+Parlements de quartier (�lu�es) + assembl�es citoyennes.
+R�f�rendums avant Conseil municipal.
+Garanties :
+transparence des co�ts / impacts / alternatives, �valuation partag�e a posteriori.
+culture
+Culture : accessible � tou�tes, ancr�e dans les quartiers
+Une culture vraiment accessible
+La culture ne doit pas �tre un privil
+[... truncated ...]
+
 --- File: listes_les-ecologistes_programme_alimentation-saine-locale-solidaire.txt ---
 URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/alimentation-saine-locale-solidaire/
 
@@ -6699,6 +9755,110 @@ Journ�e sans soda
 Sensibiliser aux dangers du sucre, mobiliser les �coles, le p�riscolaire, les quartiers et les associations.
 Alternatives propos�es : eaux aromatis�es, jus frais, infusions, eau du robinet.
 
+--- File: listes_les-ecologistes_programme_alimentation-saine-locale-solidaire_4.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/alimentation-saine-locale-solidaire/
+
+TITLE: Alimentation : manger sain, local et solidaire � Printemps montpelli�rain
+
+DESCRIPTION: Alimentation : manger sain, local et solidaire
+
+CONTENT:
+
+Retour � la liste
+alimentation
+sant�
+solidarit�
+Alimentation : manger sain, local et solidaire
+Une mesure propos�e par Printemps montpelli�rain
+L'ordonnance verte : un panier bio gratuit par semaine pour les femmes enceintes
+Pendant la grossesse, les femmes enceintes et leur enfant � na�tre sont encore trop expos�s aux perturbateurs endocriniens pr�sents dans l'alimentation, les emballages, l'air int�rieur.
+Dispositifs :
+Chaque femme enceinte pourra recevoir un panier/semaine gratuit de l�gumes bio et locaux, sans condition de revenus, sur ordonnance ou avec un certificat de grossesse.
+Garanties :
+moins d'exposition aux perturbateurs endocriniens ; alimentation saine, locale et non transform�e ; protection des femmes enceintes et de leurs b�b�s.
+Des �piceries municipales � prix co�tant
+Beaucoup de familles n'ont pas les moyens d'acheter des produits de qualit�. R�sultat : malbouffe, renoncements, in�galit�s.
+Dispositifs :
+Cr�ation d'une centrale d'achat municipale + 10 �piceries � vente sans marge �, r�parties dans diff�rents quartiers.
+Produits locaux, r�gionaux et bio, achet�s directement chez l'agriculteur, vendus au prix co�tant.
+Tarif social pour les foyers modestes.
+Pourquoi :
+rendre le bon accessible, soutenir les producteurs, all�ger le budget alimentaire, encourager les circuits courts.
+Soutenir les circuits courts et l'ESS
+Dispositifs :
+Soutien aux caisses alimentaires, AMAP, magasins de producteurs, march�s de proximit�, conserveries et ateliers ESS.
+Renforcement du circuit de distribution de la Caisse Alimentaire Commune.
+Office Agricole M�tropolitain + cantines 100 % bio/local
+Aujourd'hui seulement 30 % de bio/local dans les cantines.
+Objectif :
+tendre vers 100 % de produits bio et/ou locaux dans les cantines scolaires.
+Pourquoi :
+pr�server la sant� des enfants, d�velopper les circuits courts, soutenir une agriculture durable.
+Fin du plastique dans les cantines
+La loi EGAlim interdit le plastique depuis 2025 ? mais il est encore utilis� � Montpellier. La chaleur + le plastique = microparticules dans les aliments, risques cancer, diab�te, maladies cardiaques.
+Dispositifs :
+Remplacement total par de l'inox (ou de la c�ramique) : durable, s�r, conforme � la loi.
+�ducation au go�t d�s le p�riscolaire
+Les enfants sont expos�s � la junk food d�s le plus jeune �ge.
+Dispositifs :
+Ateliers d�couverte sensorielle, saisonnalit�, �quilibre alimentaire.
+D�fis � sans soda �.
+Journ�e sans soda
+Sensibiliser aux dangers du sucre, mobiliser les �coles, le p�riscolaire, les quartiers et les associations.
+Alternatives propos�es : eaux aromatis�es, jus frais, infusions, eau du robinet.
+
+--- File: listes_les-ecologistes_programme_alimentation-saine-locale-solidaire_5.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/alimentation-saine-locale-solidaire
+
+TITLE: Alimentation : manger sain, local et solidaire � Printemps montpelli�rain
+
+DESCRIPTION: Alimentation : manger sain, local et solidaire
+
+CONTENT:
+
+Retour � la liste
+alimentation
+sant�
+solidarit�
+Alimentation : manger sain, local et solidaire
+Une mesure propos�e par Printemps montpelli�rain
+L'ordonnance verte : un panier bio gratuit par semaine pour les femmes enceintes
+Pendant la grossesse, les femmes enceintes et leur enfant � na�tre sont encore trop expos�s aux perturbateurs endocriniens pr�sents dans l'alimentation, les emballages, l'air int�rieur.
+Dispositifs :
+Chaque femme enceinte pourra recevoir un panier/semaine gratuit de l�gumes bio et locaux, sans condition de revenus, sur ordonnance ou avec un certificat de grossesse.
+Garanties :
+moins d'exposition aux perturbateurs endocriniens ; alimentation saine, locale et non transform�e ; protection des femmes enceintes et de leurs b�b�s.
+Des �piceries municipales � prix co�tant
+Beaucoup de familles n'ont pas les moyens d'acheter des produits de qualit�. R�sultat : malbouffe, renoncements, in�galit�s.
+Dispositifs :
+Cr�ation d'une centrale d'achat municipale + 10 �piceries � vente sans marge �, r�parties dans diff�rents quartiers.
+Produits locaux, r�gionaux et bio, achet�s directement chez l'agriculteur, vendus au prix co�tant.
+Tarif social pour les foyers modestes.
+Pourquoi :
+rendre le bon accessible, soutenir les producteurs, all�ger le budget alimentaire, encourager les circuits courts.
+Soutenir les circuits courts et l'ESS
+Dispositifs :
+Soutien aux caisses alimentaires, AMAP, magasins de producteurs, march�s de proximit�, conserveries et ateliers ESS.
+Renforcement du circuit de distribution de la Caisse Alimentaire Commune.
+Office Agricole M�tropolitain + cantines 100 % bio/local
+Aujourd'hui seulement 30 % de bio/local dans les cantines.
+Objectif :
+tendre vers 100 % de produits bio et/ou locaux dans les cantines scolaires.
+Pourquoi :
+pr�server la sant� des enfants, d�velopper les circuits courts, soutenir une agriculture durable.
+Fin du plastique dans les cantines
+La loi EGAlim interdit le plastique depuis 2025 ? mais il est encore utilis� � Montpellier. La chaleur + le plastique = microparticules dans les aliments, risques cancer, diab�te, maladies cardiaques.
+Dispositifs :
+Remplacement total par de l'inox (ou de la c�ramique) : durable, s�r, conforme � la loi.
+�ducation au go�t d�s le p�riscolaire
+Les enfants sont expos�s � la junk food d�s le plus jeune �ge.
+Dispositifs :
+Ateliers d�couverte sensorielle, saisonnalit�, �quilibre alimentaire.
+D�fis � sans soda �.
+Journ�e sans soda
+Sensibiliser aux dangers du sucre, mobiliser les �coles, le p�riscolaire, les quartiers et les associations.
+Alternatives propos�es : eaux aromatis�es, jus frais, infusions, eau du robinet.
+
 --- File: listes_les-ecologistes_programme_culture-accessible-quartiers.txt ---
 URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/culture-accessible-quartiers/
 
@@ -6766,6 +9926,50 @@ Programmation qui valorise les artistes montpelli�rains et les cultures du mon
 Espaces de cr�ation accessibles dans tous les quartiers.
 
 --- File: listes_les-ecologistes_programme_culture-accessible-quartiers_3.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/culture-accessible-quartiers
+
+TITLE: Culture : accessible � tou�tes, ancr�e dans les quartiers � Printemps montpelli�rain
+
+DESCRIPTION: Culture : accessible � tou�tes, ancr�e dans les quartiers
+
+CONTENT:
+
+Retour � la liste
+culture
+Culture : accessible � tou�tes, ancr�e dans les quartiers
+Une mesure propos�e par Printemps montpelli�rain
+Une culture vraiment accessible
+La culture ne doit pas �tre un privil�ge. Cela implique des politiques tarifaires ambitieuses, des �quipements de proximit� et une programmation qui refl�te la diversit� de la ville.
+M�diath�ques : gratuit� r�elle, pas de tartufferie
+La gratuit� d'acc�s aux m�diath�ques est une bonne mesure. Elle va dans le sens de l'�galit�. Mais une vraie politique culturelle ne se limite pas � supprimer des frais d'inscription : il faut aussi des horaires adapt�s, des collections renouvel�es, des animateurs en nombre suffisant, et une pr�sence dans tous les quartiers.
+Culture de proximit� et soutien aux artistes locaux
+Soutien aux lieux culturels de proximit� (associations, salles de spectacle, ateliers d'artistes).
+Programmation qui valorise les artistes montpelli�rains et les cultures du monde pr�sentes dans la ville.
+Espaces de cr�ation accessibles dans tous les quartiers.
+
+--- File: listes_les-ecologistes_programme_culture-accessible-quartiers_4.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/culture-accessible-quartiers/
+
+TITLE: Culture : accessible � tou�tes, ancr�e dans les quartiers � Printemps montpelli�rain
+
+DESCRIPTION: Culture : accessible � tou�tes, ancr�e dans les quartiers
+
+CONTENT:
+
+Retour � la liste
+culture
+Culture : accessible � tou�tes, ancr�e dans les quartiers
+Une mesure propos�e par Printemps montpelli�rain
+Une culture vraiment accessible
+La culture ne doit pas �tre un privil�ge. Cela implique des politiques tarifaires ambitieuses, des �quipements de proximit� et une programmation qui refl�te la diversit� de la ville.
+M�diath�ques : gratuit� r�elle, pas de tartufferie
+La gratuit� d'acc�s aux m�diath�ques est une bonne mesure. Elle va dans le sens de l'�galit�. Mais une vraie politique culturelle ne se limite pas � supprimer des frais d'inscription : il faut aussi des horaires adapt�s, des collections renouvel�es, des animateurs en nombre suffisant, et une pr�sence dans tous les quartiers.
+Culture de proximit� et soutien aux artistes locaux
+Soutien aux lieux culturels de proximit� (associations, salles de spectacle, ateliers d'artistes).
+Programmation qui valorise les artistes montpelli�rains et les cultures du monde pr�sentes dans la ville.
+Espaces de cr�ation accessibles dans tous les quartiers.
+
+--- File: listes_les-ecologistes_programme_culture-accessible-quartiers_5.txt ---
 URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/culture-accessible-quartiers
 
 TITLE: Culture : accessible � tou�tes, ancr�e dans les quartiers � Printemps montpelli�rain
@@ -7015,6 +10219,120 @@ R�f�rendums avant Conseil municipal.
 Garanties :
 transparence des co�ts / impacts / alternatives, �valuation partag�e a posteriori.
 
+--- File: listes_les-ecologistes_programme_democratie-locale-participative_4.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/democratie-locale-participative/
+
+TITLE: D�mocratie locale : donner le pouvoir aux habitant�es � Printemps montpelli�rain
+
+DESCRIPTION: D�mocratie locale : donner le pouvoir aux habitant�es
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+D�mocratie locale : donner le pouvoir aux habitant�es
+Une mesure propos�e par Printemps montpelli�rain
+Institutions participatives lisibles
+Rendre la d�cision publique compr�hensible, accessible et contr�lable.
+Dispositifs :
+Parlements de quartier (�lu�es).
+R�f�rendums locaux (consultatifs / d�cisionnels selon seuils).
+Comit� de suivi ind�pendant.
+P�tition citoyenne pour inscrire un point � l'ordre du jour du Conseil municipal (seuil � d�battre, ex. 1 500 signatures).
+Garanties :
+publicit� des s�ances, comptes-rendus lisibles, r�ponses motiv�es de la Ville, calendrier de mise en ?uvre.
+Plateforme num�rique de d�mocratie continue
+Faciliter l'� aller-retour � citoyen�nes ? Ville ? parlements de quartier.
+Dispositifs :
+�changes directs avec �lu�es, services et parlements de quartier.
+Num�ro de suivi pour chaque demande ; statut d'avancement en temps r�el.
+Consultations et votes en ligne.
+Garanties :
+accessibilit� (langage clair, mode faible connexion, m�diation en lieux physiques), open data, archivage public.
+Pouvoir aux quartiers
+Rapprocher la d�cision des bassins de vie, donner une vraie l�gitimit� aux instances de quartiers.
+Dispositifs :
+Concertation pour passer de 8 � 22?23 quartiers lisibles.
+Budgets participatifs � la hauteur des besoins de chaque quartier.
+Observatoire citoyen de l'action locale.
+Garanties :
+r�gles anti-captation, parit� / diversit�, bilan annuel � ce qui a �t� fait / ajustements �.
+Des lieux pour faire vivre la d�mocratie locale
+Disposer dans chaque quartier d'un lieu identifi� pour se r�unir, s'informer et participer.
+Appui sur des lieux existants ou maisons de la citoyennet�, horaires lisibles, affichage des projets en cours et retours r�guliers aux habitant�es.
+Conventions citoyennes th�matiques
+D�cider en connaissance sur des sujets structurants.
+Dispositifs :
+50 % volontaires / 50 % tirage au sort.
+1 th�me = 1 convention.
+Restitution, d�bat et prise de d�cision en Conseil municipal ou par r�f�rendum local.
+Garanties :
+expertise contradictoire et vulgaris�e, publication des analyses, engagements dat�s.
+Co-construction exigeante
+Du diagnostic partag� � la d�cision valid�e par la population.
+Dispositifs :
+Parlements de quartier (�lu�es) + assembl�es citoyennes.
+R�f�rendums avant Conseil municipal.
+Garanties :
+transparence des co�ts / impacts / alternatives, �valuation partag�e a posteriori.
+
+--- File: listes_les-ecologistes_programme_democratie-locale-participative_5.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/democratie-locale-participative
+
+TITLE: D�mocratie locale : donner le pouvoir aux habitant�es � Printemps montpelli�rain
+
+DESCRIPTION: D�mocratie locale : donner le pouvoir aux habitant�es
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+D�mocratie locale : donner le pouvoir aux habitant�es
+Une mesure propos�e par Printemps montpelli�rain
+Institutions participatives lisibles
+Rendre la d�cision publique compr�hensible, accessible et contr�lable.
+Dispositifs :
+Parlements de quartier (�lu�es).
+R�f�rendums locaux (consultatifs / d�cisionnels selon seuils).
+Comit� de suivi ind�pendant.
+P�tition citoyenne pour inscrire un point � l'ordre du jour du Conseil municipal (seuil � d�battre, ex. 1 500 signatures).
+Garanties :
+publicit� des s�ances, comptes-rendus lisibles, r�ponses motiv�es de la Ville, calendrier de mise en ?uvre.
+Plateforme num�rique de d�mocratie continue
+Faciliter l'� aller-retour � citoyen�nes ? Ville ? parlements de quartier.
+Dispositifs :
+�changes directs avec �lu�es, services et parlements de quartier.
+Num�ro de suivi pour chaque demande ; statut d'avancement en temps r�el.
+Consultations et votes en ligne.
+Garanties :
+accessibilit� (langage clair, mode faible connexion, m�diation en lieux physiques), open data, archivage public.
+Pouvoir aux quartiers
+Rapprocher la d�cision des bassins de vie, donner une vraie l�gitimit� aux instances de quartiers.
+Dispositifs :
+Concertation pour passer de 8 � 22?23 quartiers lisibles.
+Budgets participatifs � la hauteur des besoins de chaque quartier.
+Observatoire citoyen de l'action locale.
+Garanties :
+r�gles anti-captation, parit� / diversit�, bilan annuel � ce qui a �t� fait / ajustements �.
+Des lieux pour faire vivre la d�mocratie locale
+Disposer dans chaque quartier d'un lieu identifi� pour se r�unir, s'informer et participer.
+Appui sur des lieux existants ou maisons de la citoyennet�, horaires lisibles, affichage des projets en cours et retours r�guliers aux habitant�es.
+Conventions citoyennes th�matiques
+D�cider en connaissance sur des sujets structurants.
+Dispositifs :
+50 % volontaires / 50 % tirage au sort.
+1 th�me = 1 convention.
+Restitution, d�bat et prise de d�cision en Conseil municipal ou par r�f�rendum local.
+Garanties :
+expertise contradictoire et vulgaris�e, publication des analyses, engagements dat�s.
+Co-construction exigeante
+Du diagnostic partag� � la d�cision valid�e par la population.
+Dispositifs :
+Parlements de quartier (�lu�es) + assembl�es citoyennes.
+R�f�rendums avant Conseil municipal.
+Garanties :
+transparence des co�ts / impacts / alternatives, �valuation partag�e a posteriori.
+
 --- File: listes_les-ecologistes_programme_jeunesse-citoyennete-autonomie.txt ---
 URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/jeunesse-citoyennete-autonomie/
 
@@ -7124,6 +10442,78 @@ Horaires �tendus de 7h � 19h pour les structures de garde p�riscolaire.
 Repas de la cantine gratuits.
 
 --- File: listes_les-ecologistes_programme_jeunesse-citoyennete-autonomie_3.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/jeunesse-citoyennete-autonomie
+
+TITLE: Jeunesse : proximit�, �galit� et autonomie � Printemps montpelli�rain
+
+DESCRIPTION: Jeunesse : proximit�, �galit� et autonomie
+
+CONTENT:
+
+Retour � la liste
+enfance et �ducation
+�mancipation et justice sociale
+Jeunesse : proximit�, �galit� et autonomie
+Une mesure propos�e par Printemps montpelli�rain
+Parcours citoyen de la jeunesse
+Un parcours citoyen continu de l'adolescence � l'entr�e dans la vie adulte, mettant l'accent sur les droits et la participation civique.
+Centres de loisirs et d'activit�s pour les 11?17 ans
+Les �quipements existants couvrent mal les coll�giens et lyc�ens. Il faut des espaces d�di�s avec des programmes adapt�s.
+Dispositifs :
+Ages 11?14 : activit�s �ducatives et de loisirs.
+Ages 15?17 : programmes � th�mes choisis par les jeunes eux-m�mes (voyages, musique, sport, projets?).
+Centres de loisirs ouverts aux adolescents, notamment l'�t�.
+Emploi et exp�rience professionnelle
+Banque municipale de stages
+pour les �l�ves de 3e et 2nde : r�duire les in�galit�s li�es au r�seau familial.
+Agence d'alternance
+en partenariat avec les acteurs de l'emploi local.
+Service civique
+pour les 15?17 ans : missions de solidarit� et d'engagement environnemental.
+BAFA gratuit
+avec placement municipal � la cl�.
+Emplois saisonniers au sein des services municipaux, accessibles et formateurs.
+Accueil p�riscolaire �largi
+Horaires �tendus de 7h � 19h pour les structures de garde p�riscolaire.
+Repas de la cantine gratuits.
+
+--- File: listes_les-ecologistes_programme_jeunesse-citoyennete-autonomie_4.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/jeunesse-citoyennete-autonomie/
+
+TITLE: Jeunesse : proximit�, �galit� et autonomie � Printemps montpelli�rain
+
+DESCRIPTION: Jeunesse : proximit�, �galit� et autonomie
+
+CONTENT:
+
+Retour � la liste
+enfance et �ducation
+�mancipation et justice sociale
+Jeunesse : proximit�, �galit� et autonomie
+Une mesure propos�e par Printemps montpelli�rain
+Parcours citoyen de la jeunesse
+Un parcours citoyen continu de l'adolescence � l'entr�e dans la vie adulte, mettant l'accent sur les droits et la participation civique.
+Centres de loisirs et d'activit�s pour les 11?17 ans
+Les �quipements existants couvrent mal les coll�giens et lyc�ens. Il faut des espaces d�di�s avec des programmes adapt�s.
+Dispositifs :
+Ages 11?14 : activit�s �ducatives et de loisirs.
+Ages 15?17 : programmes � th�mes choisis par les jeunes eux-m�mes (voyages, musique, sport, projets?).
+Centres de loisirs ouverts aux adolescents, notamment l'�t�.
+Emploi et exp�rience professionnelle
+Banque municipale de stages
+pour les �l�ves de 3e et 2nde : r�duire les in�galit�s li�es au r�seau familial.
+Agence d'alternance
+en partenariat avec les acteurs de l'emploi local.
+Service civique
+pour les 15?17 ans : missions de solidarit� et d'engagement environnemental.
+BAFA gratuit
+avec placement municipal � la cl�.
+Emplois saisonniers au sein des services municipaux, accessibles et formateurs.
+Accueil p�riscolaire �largi
+Horaires �tendus de 7h � 19h pour les structures de garde p�riscolaire.
+Repas de la cantine gratuits.
+
+--- File: listes_les-ecologistes_programme_jeunesse-citoyennete-autonomie_5.txt ---
 URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/jeunesse-citoyennete-autonomie
 
 TITLE: Jeunesse : proximit�, �galit� et autonomie � Printemps montpelli�rain
@@ -7403,6 +10793,128 @@ Priorit� au logement social et tr�s social dans la programmation.
 Mobiliser le foncier public et des outils anti-sp�culation pour l'accession sociale (ex : dissociation foncier/b�ti).
 Transformer quand c'est pertinent (bureaux ? logements), plut�t que d'�taler.
 
+--- File: listes_les-ecologistes_programme_logement-se-loger-dignement_4.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/logement-se-loger-dignement/
+
+TITLE: Logement : Se loger dignement, � un prix supportable � Printemps montpelli�rain
+
+DESCRIPTION: Logement : Se loger dignement, � un prix supportable
+
+CONTENT:
+
+Retour � la liste
+logement
+solidarit�
+Logement : Se loger dignement, � un prix supportable
+Une mesure propos�e par Printemps montpelli�rain
+�radiquer le sans-abrisme : � Z�ro personne � la rue �
+Dormir dehors n'est pas une fatalit� : c'est un �chec collectif. Des familles, des femmes seules, des jeunes, des personnes malades passent de solutions pr�caires en solutions pr�caires, ou restent � la rue.
+Dispositifs :
+Strat�gie municipale
+Logement d'abord
+: acc�s rapide � un logement stable + accompagnement.
+�quipes � aller-vers � renforc�es (social + sant� + m�diation), pr�sence r�guli�re et coordination.
+D�veloppement de solutions p�rennes : interm�diation locative, pensions de famille, r�sidences sociales, baux s�curis�s.
+Pr�vention des ruptures (impay�s, expulsions, sorties de l'ASE, hospitalisations, violences).
+Garanties :
+priorit� absolue aux plus vuln�rables ; sorties durables de la rue, pas des rotations d'urgence ; dignit�, s�curit�, efficacit�.
+Plan d'urgence : � Z�ro enfant � la rue �
+Quand l'h�bergement d�borde, ce sont d'abord les familles qui trinquent : nuits dehors, instabilit�, enfants d�scolaris�s.
+Dispositifs :
+Cellule municipale d'urgence logement (coordination associations / CCAS / bailleurs).
+Mise � l'abri imm�diate et digne quand c'est n�cessaire, avec solutions adapt�es aux familles.
+Parcours � mise � l'abri ? stabilisation ? logement � : pas de remise � la rue.
+Stop au logement trop cher : encadrement des loyers + observatoire local
+Les loyers explosent, les revenus ne suivent pas : on renonce, on s'�loigne, on s'endette.
+Dispositifs :
+Mettre en place l'encadrement des loyers (l� o� c'est possible) et un observatoire local des loyers r�els.
+Accompagnement des locataires : information, m�diation, recours.
+Meubl�s touristiques : prot�ger l'habitat permanent
+Quand des logements basculent en location touristique, l'offre pour vivre � l'ann�e diminue et les prix montent.
+Dispositifs :
+R�gles strictes, enregistrement, contr�les et sanctions effectives en cas de fraude.
+Limitation de la transformation de logements en meubl�s touristiques l� o� l'habitat permanent est sous tension.
+R�novation �nerg�tique : priorit� aux passoires et aux copropri�t�s en difficult�
+Les passoires �nerg�tiques ruinent les m�nages et rendent le logement invivable l'�t�.
+Dispositifs :
+Cr�ation d'un p�le � R�novation thermique � au sein de la r�gie publique de l'�nergie : diagnostic, aides, dossiers, accompagnement de bout en bout.
+Priorit� aux m�nages modestes et copropri�t�s fragiles.
+Travaux anti-surchauffe : protections solaires, ventilation, ombrage.
+Objectif : 10 000 dossiers � traiter par an.
+Permis de louer + lutte contre l'habitat indigne
+Insalubrit�, logements dangereux, surloyers : un scandale social et sanitaire.
+Dispositifs :
+Permis de louer dans les secteurs concern�s.
+Contr�les renforc�s, proc�dure rapide, astreintes et sanctions.
+Accompagnement et relogement des m�nages quand c'est n�cessaire.
+Produire du logement vraiment abordable : social, tr�s social, accession sociale
+On construit, mais trop souvent pas pour celles et ceux qui vivent et travaillent ici.
+Dispositifs :
+Priorit� au logement social et tr�s social dans la programmation.
+Mobiliser le foncier public et des outils anti-sp�culation pour l'accession sociale (ex : dissociation foncier/b�ti).
+Transformer quand c'est pertinent (bureaux ? logements), plut�t que d'�taler.
+
+--- File: listes_les-ecologistes_programme_logement-se-loger-dignement_5.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/logement-se-loger-dignement
+
+TITLE: Logement : Se loger dignement, � un prix supportable � Printemps montpelli�rain
+
+DESCRIPTION: Logement : Se loger dignement, � un prix supportable
+
+CONTENT:
+
+Retour � la liste
+logement
+solidarit�
+Logement : Se loger dignement, � un prix supportable
+Une mesure propos�e par Printemps montpelli�rain
+�radiquer le sans-abrisme : � Z�ro personne � la rue �
+Dormir dehors n'est pas une fatalit� : c'est un �chec collectif. Des familles, des femmes seules, des jeunes, des personnes malades passent de solutions pr�caires en solutions pr�caires, ou restent � la rue.
+Dispositifs :
+Strat�gie municipale
+Logement d'abord
+: acc�s rapide � un logement stable + accompagnement.
+�quipes � aller-vers � renforc�es (social + sant� + m�diation), pr�sence r�guli�re et coordination.
+D�veloppement de solutions p�rennes : interm�diation locative, pensions de famille, r�sidences sociales, baux s�curis�s.
+Pr�vention des ruptures (impay�s, expulsions, sorties de l'ASE, hospitalisations, violences).
+Garanties :
+priorit� absolue aux plus vuln�rables ; sorties durables de la rue, pas des rotations d'urgence ; dignit�, s�curit�, efficacit�.
+Plan d'urgence : � Z�ro enfant � la rue �
+Quand l'h�bergement d�borde, ce sont d'abord les familles qui trinquent : nuits dehors, instabilit�, enfants d�scolaris�s.
+Dispositifs :
+Cellule municipale d'urgence logement (coordination associations / CCAS / bailleurs).
+Mise � l'abri imm�diate et digne quand c'est n�cessaire, avec solutions adapt�es aux familles.
+Parcours � mise � l'abri ? stabilisation ? logement � : pas de remise � la rue.
+Stop au logement trop cher : encadrement des loyers + observatoire local
+Les loyers explosent, les revenus ne suivent pas : on renonce, on s'�loigne, on s'endette.
+Dispositifs :
+Mettre en place l'encadrement des loyers (l� o� c'est possible) et un observatoire local des loyers r�els.
+Accompagnement des locataires : information, m�diation, recours.
+Meubl�s touristiques : prot�ger l'habitat permanent
+Quand des logements basculent en location touristique, l'offre pour vivre � l'ann�e diminue et les prix montent.
+Dispositifs :
+R�gles strictes, enregistrement, contr�les et sanctions effectives en cas de fraude.
+Limitation de la transformation de logements en meubl�s touristiques l� o� l'habitat permanent est sous tension.
+R�novation �nerg�tique : priorit� aux passoires et aux copropri�t�s en difficult�
+Les passoires �nerg�tiques ruinent les m�nages et rendent le logement invivable l'�t�.
+Dispositifs :
+Cr�ation d'un p�le � R�novation thermique � au sein de la r�gie publique de l'�nergie : diagnostic, aides, dossiers, accompagnement de bout en bout.
+Priorit� aux m�nages modestes et copropri�t�s fragiles.
+Travaux anti-surchauffe : protections solaires, ventilation, ombrage.
+Objectif : 10 000 dossiers � traiter par an.
+Permis de louer + lutte contre l'habitat indigne
+Insalubrit�, logements dangereux, surloyers : un scandale social et sanitaire.
+Dispositifs :
+Permis de louer dans les secteurs concern�s.
+Contr�les renforc�s, proc�dure rapide, astreintes et sanctions.
+Accompagnement et relogement des m�nages quand c'est n�cessaire.
+Produire du logement vraiment abordable : social, tr�s social, accession sociale
+On construit, mais trop souvent pas pour celles et ceux qui vivent et travaillent ici.
+Dispositifs :
+Priorit� au logement social et tr�s social dans la programmation.
+Mobiliser le foncier public et des outils anti-sp�culation pour l'accession sociale (ex : dissociation foncier/b�ti).
+Transformer quand c'est pertinent (bureaux ? logements), plut�t que d'�taler.
+
 --- File: listes_les-ecologistes_programme_mobilites-ecologiques-accessibles.txt ---
 URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/mobilites-ecologiques-accessibles/
 
@@ -7557,6 +11069,108 @@ Garanties :
 plus d'enfants � pied/� v�lo, moins de stress, plus de s�curit� ; une ville plus accessible pour les seniors et les personnes � mobilit� r�duite.
 
 --- File: listes_les-ecologistes_programme_mobilites-ecologiques-accessibles_3.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/mobilites-ecologiques-accessibles
+
+TITLE: Mobilit�s : droit � la mobilit�, quartiers prot�g�s, alternatives fiables � Printemps montpelli�rain
+
+DESCRIPTION: Mobilit�s : droit � la mobilit�, quartiers prot�g�s, alternatives fiables
+
+CONTENT:
+
+Retour � la liste
+transport et mobilit�s
+Mobilit�s : droit � la mobilit�, quartiers prot�g�s, alternatives fiables
+Une mesure propos�e par Printemps montpelli�rain
+4 boulevards : circulation � en p�tales � + r�ouverture de l'avenue Albert Dubout
+Le trafic de transit traverse des quartiers entiers : bruit, pollution, danger, rues � coup�es � et invivables.
+Dispositifs :
+Rouvrir l'avenue Albert Dubout et r�organiser la circulation � en p�tales � : desserte locale oui, transit de traverse non.
+Apaiser les vitesses, s�curiser les travers�es, redonner de l'espace aux pi�ton�nes et v�los.
+Garanties :
+moins de voitures de transit dans les quartiers riverains ; moins de bruit et de pollution, plus de s�curit� et de qualit� de vie.
+Un r�seau v�lo vraiment s�curis� + stationnements s�rs + aide au v�lo pour les -25 ans
+Des am�nagements en morceaux et des carrefours dangereux : le v�lo reste r�serv� aux plus aguerri�es.
+Dispositifs :
+Construire un r�seau cyclable continu, lisible, prot�g� (pas des tron�ons isol�s).
+S�curiser les � points noirs � et g�n�raliser les stationnements v�los s�curis�s (gares, campus, �quipements, commerces).
+Mettre en place un pr�t / une aide au v�lo pour les moins de 25 ans.
+Garanties :
+moins d'accidents, plus de trajets du quotidien � v�lo (y compris enfants et seniors) ; le v�lo devient une option r�elle.
+Transports en commun : la gratuit� ne suffit pas ? plus d'offre, plus de maillage
+Sans fr�quence, r�gularit� et amplitude, on garde la voiture par contrainte.
+Dispositifs :
+Augmenter l'offre : plus de rames et de bus, plus de conducteurs�trices, plus de fr�quence.
+�tendre l'amplitude (soir / nuit) et am�liorer la fiabilit� (temps d'attente, correspondances).
+Cr�er un maillage � quartiers ? emplois ? universit�s ? gares �, pas seulement p�riph�rie ? centre.
+Garanties :
+moins d'attente, plus de trajets possibles sans voiture ; une mobilit� utile au quotidien pour celles et ceux qui bossent t�t / tard.
+Aux entr�es de ville : parkings-relais multimodaux, s�rs et gratuits
+Sans alternative simple � l'entr�e de la ville, on subit les bouchons et on sature les quartiers denses.
+Dispositifs :
+Cr�er des parkings-relais multimodaux (voiture ? tram / bus / v�lo), s�rs et gratuits.
+Organiser des parcours lisibles : on laisse la voiture et on continue facilement.
+Garanties :
+moins de voitures dans le centre et les quartiers denses ; du temps gagn�, de la pollution en moins.
+Rues aux �coles + plan pi�ton/PMR
+Autour des �coles, la pression automobile met les enfants en danger. Dans de nombreux quartiers, marcher est difficile (trottoirs �troits, discontinus, obstacles).
+Dispositifs :
+D�ployer des rues aux �coles : circulation limit�e aux heures cl�s, s�curisation des travers�es, espace pi�ton �largi.
+Plan pi�ton/PMR : trottoirs continus, abaiss�s, travers�es prot�g�es, bancs, ombrage.
+Garanties :
+plus d'enfants � pied/� v�lo, moins de stress, plus de s�curit� ; une ville plus accessible pour les seniors et les personnes � mobilit� r�duite.
+
+--- File: listes_les-ecologistes_programme_mobilites-ecologiques-accessibles_4.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/mobilites-ecologiques-accessibles/
+
+TITLE: Mobilit�s : droit � la mobilit�, quartiers prot�g�s, alternatives fiables � Printemps montpelli�rain
+
+DESCRIPTION: Mobilit�s : droit � la mobilit�, quartiers prot�g�s, alternatives fiables
+
+CONTENT:
+
+Retour � la liste
+transport et mobilit�s
+Mobilit�s : droit � la mobilit�, quartiers prot�g�s, alternatives fiables
+Une mesure propos�e par Printemps montpelli�rain
+4 boulevards : circulation � en p�tales � + r�ouverture de l'avenue Albert Dubout
+Le trafic de transit traverse des quartiers entiers : bruit, pollution, danger, rues � coup�es � et invivables.
+Dispositifs :
+Rouvrir l'avenue Albert Dubout et r�organiser la circulation � en p�tales � : desserte locale oui, transit de traverse non.
+Apaiser les vitesses, s�curiser les travers�es, redonner de l'espace aux pi�ton�nes et v�los.
+Garanties :
+moins de voitures de transit dans les quartiers riverains ; moins de bruit et de pollution, plus de s�curit� et de qualit� de vie.
+Un r�seau v�lo vraiment s�curis� + stationnements s�rs + aide au v�lo pour les -25 ans
+Des am�nagements en morceaux et des carrefours dangereux : le v�lo reste r�serv� aux plus aguerri�es.
+Dispositifs :
+Construire un r�seau cyclable continu, lisible, prot�g� (pas des tron�ons isol�s).
+S�curiser les � points noirs � et g�n�raliser les stationnements v�los s�curis�s (gares, campus, �quipements, commerces).
+Mettre en place un pr�t / une aide au v�lo pour les moins de 25 ans.
+Garanties :
+moins d'accidents, plus de trajets du quotidien � v�lo (y compris enfants et seniors) ; le v�lo devient une option r�elle.
+Transports en commun : la gratuit� ne suffit pas ? plus d'offre, plus de maillage
+Sans fr�quence, r�gularit� et amplitude, on garde la voiture par contrainte.
+Dispositifs :
+Augmenter l'offre : plus de rames et de bus, plus de conducteurs�trices, plus de fr�quence.
+�tendre l'amplitude (soir / nuit) et am�liorer la fiabilit� (temps d'attente, correspondances).
+Cr�er un maillage � quartiers ? emplois ? universit�s ? gares �, pas seulement p�riph�rie ? centre.
+Garanties :
+moins d'attente, plus de trajets possibles sans voiture ; une mobilit� utile au quotidien pour celles et ceux qui bossent t�t / tard.
+Aux entr�es de ville : parkings-relais multimodaux, s�rs et gratuits
+Sans alternative simple � l'entr�e de la ville, on subit les bouchons et on sature les quartiers denses.
+Dispositifs :
+Cr�er des parkings-relais multimodaux (voiture ? tram / bus / v�lo), s�rs et gratuits.
+Organiser des parcours lisibles : on laisse la voiture et on continue facilement.
+Garanties :
+moins de voitures dans le centre et les quartiers denses ; du temps gagn�, de la pollution en moins.
+Rues aux �coles + plan pi�ton/PMR
+Autour des �coles, la pression automobile met les enfants en danger. Dans de nombreux quartiers, marcher est difficile (trottoirs �troits, discontinus, obstacles).
+Dispositifs :
+D�ployer des rues aux �coles : circulation limit�e aux heures cl�s, s�curisation des travers�es, espace pi�ton �largi.
+Plan pi�ton/PMR : trottoirs continus, abaiss�s, travers�es prot�g�es, bancs, ombrage.
+Garanties :
+plus d'enfants � pied/� v�lo, moins de stress, plus de s�curit� ; une ville plus accessible pour les seniors et les personnes � mobilit� r�duite.
+
+--- File: listes_les-ecologistes_programme_mobilites-ecologiques-accessibles_5.txt ---
 URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/mobilites-ecologiques-accessibles
 
 TITLE: Mobilit�s : droit � la mobilit�, quartiers prot�g�s, alternatives fiables � Printemps montpelli�rain
@@ -7879,6 +11493,142 @@ Br�ler du plastique, c'est lib�rer dans l'air des substances toxiques que no
 Position :
 abandon imm�diat de ce projet et mise en place d'un plan local ambitieux de r�duction et de valorisation des d�chets, fond� sur la r�duction, le tri, le r�emploi et l'�conomie circulaire.
 
+--- File: listes_les-ecologistes_programme_sante-service-public-prevention_4.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/sante-service-public-prevention/
+
+TITLE: Sant� : un droit, pas un privil�ge ? proximit�, pr�vention, sant� environnementale � Printemps montpelli�rain
+
+DESCRIPTION: Sant� : un droit, pas un privil�ge ? proximit�, pr�vention, sant� environnementale
+
+CONTENT:
+
+Retour � la liste
+sant�
+solidarit�
+d�chets
+Sant� : un droit, pas un privil�ge ? proximit�, pr�vention, sant� environnementale
+Une mesure propos�e par Printemps montpelli�rain
+Un service public municipal de sant� : des centres de sant� de proximit� dans les quartiers
+Des milliers de personnes renoncent aux soins : manque de m�decins, d�lais, co�t, absence de suivi. Les in�galit�s territoriales se creusent.
+Dispositifs :
+Cr�er / renforcer des centres de sant� municipaux (m�decine g�n�rale, infirmier�es, sages-femmes selon besoins, pr�vention) avec tiers payant et tarifs sans d�passements.
+Priorit� aux quartiers sous-dot�s et aux publics qui renoncent le plus.
+Amplitudes horaires adapt�es (soir / samedi quand c'est pertinent) + coordination avec l'h�pital et la m�decine de ville.
+Pr�venir plut�t que r�parer : plan municipal de pr�vention
+On arrive trop tard : diab�te, hypertension, sant� bucco-dentaire, d�pistages. La pr�vention manque, surtout l� o� la vie est plus dure.
+Dispositifs :
+Campagnes de d�pistage et de pr�vention � hors les murs � : march�s, quartiers, �v�nements, lieux de vie.
+Parcours de pr�vention dans les centres municipaux : d�pistages, vaccination, sant� bucco-dentaire, addictions (orientation), nutrition, sant� sexuelle.
+Aller-vers : rep�rage et suivi des personnes sans m�decin traitant.
+Sant� mentale : une priorit� municipale, notamment pour les jeunes
+Anxi�t�, d�pression, isolement : les d�lais explosent, les familles sont d�munies, les jeunes d�crochent.
+Dispositifs :
+Points d'accueil et d'�coute de proximit� (jeunes, parents, �tudiant�es), avec orientation rapide.
+Renforcer l'acc�s � des consultations (psychologues / infirmier�es psy en lien avec les structures existantes).
+Actions anti-isolement : lieux ressources, pr�vention en milieu scolaire et associatif.
+Soutenir Human Sant� et p�renniser ces structures
+Des centres de sant� comme Human Sant� r�pondent � un besoin vital mais leur mod�le est fragilis� par des financements pr�caires.
+Dispositifs :
+Soutenir Human Sant� et inscrire durablement le financement de ces centres dans la LFSS.
+Construire une alliance municipale : appui administratif, conventions, travail en r�seau (CCAS, pr�vention, sant� mentale, acc�s aux droits).
+D�velopper ce type de structures dans la ville : centres pluridisciplinaires, m�diation, pr�vention � aller-vers �.
+Lutter contre les addictions : r�duction des risques + bus de sant�
+Les addictions (drogues, alcool, m�dicaments) sont un enjeu majeur de sant� publique. La r�ponse ne peut pas �tre seulement r�pressive : il faut soigner, prot�ger, accompagner.
+Dispositifs :
+Un bus de soins et de r�duction des risques : dispositif mobile allant au contact avec des professionnel�les (sant� + social) pour pr�venir les risques, rep�rer et orienter vers les soins, accompagner vers des parcours de sortie de d�pendance.
+Travail en r�seau avec l'h�pital, les structures d'addictologie, les associations, le CCAS.
+Acc�s aux droits et aux soins : guichet unique + m�diation sant�
+M�me quand l'offre existe, beaucoup se perdent : droits incompris, d�marches, isolement, langue, ruptures de parcours.
+Dispositifs :
+Un guichet municipal � droits & sant� � (CCAS / associations / CPAM / ARS) : ouverture de droits, rendez-vous, orientation.
+M�diation sant� : accompagnement des personnes en grande pr�carit�, des seniors isol�s, des jeunes sans suivi.
+Interpr�tariat quand n�cessaire, pour que la sant� ne d�pende pas de la ma�trise du fran�ais.
+Sant� environnementale : air, chaleur, bruit, logements
+Pollution de l'air, canicules, bruit, logements indignes : la sant� se joue aussi dans l'urbanisme, l'habitat et l'espace public.
+Dispositifs :
+Un plan sant�-environnement : protection des �coles et cr�ches, lutte contre les �lots de chaleur, r�duction du bruit, suivi des expositions.
+Lien direct avec le logement : rep�rage humidit� / moisissures / insalubrit�, accompagnement et interventions.
+Dispositif � canicule � renforc� : rep�rage des personnes fragiles, lieux frais accessibles, visites et appels.
+Sant� des femmes : acc�s r�el aux soins et � la pr�vention
+Retards de diagnostic, manque de suivi, in�galit�s d'acc�s (gyn�co, d�pistages), pr�carit� menstruelle, violences.
+Dispositifs :
+Parcours d�di�s : pr�vention, d�pistages, accompagnement dans les centres municipaux.
+Lutte contre la pr�carit� menstruelle : acc�s gratuit dans les lieux municipaux.
+Orientation renforc�e et confidentielle pour les victimes de violences, avec accompagnement.
+Non � l'incin�rateur de d�chets plastiques � Montpellier !
+Un incin�rateur de d�chets plastiques pourrait voir le jour dans le quartier de Croix d'Argent, pr�voyant de br�ler entre 30 000 et 45 000 tonnes de plastiques par an. Ce serait une premi�re en France ? et une bombe sanitaire.
+Br�ler du plastique, c'est lib�rer dans l'air des substances toxiques que nous respirerons chaque jour : furanes, dioxines, m�taux lourds (arsenic, mercure, plomb), polluants �ternels PFAS. Les habitants dans un rayon de deux kilom�tres ? GaroSud, Pr�s d'Ar�nes, Les Grisettes, Les Sabines, Ovalie, Croix d'Argent, Maurin ou encore Lattes ? seront directement expos�s.
+Position :
+abandon imm�diat de ce projet et mise en place d'un plan local ambitieux de r�duction et de valorisation des d�chets, fond� sur la r�duction, le tri, le r�emploi et l'�conomie circulaire.
+
+--- File: listes_les-ecologistes_programme_sante-service-public-prevention_5.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/sante-service-public-prevention
+
+TITLE: Sant� : un droit, pas un privil�ge ? proximit�, pr�vention, sant� environnementale � Printemps montpelli�rain
+
+DESCRIPTION: Sant� : un droit, pas un privil�ge ? proximit�, pr�vention, sant� environnementale
+
+CONTENT:
+
+Retour � la liste
+sant�
+solidarit�
+d�chets
+Sant� : un droit, pas un privil�ge ? proximit�, pr�vention, sant� environnementale
+Une mesure propos�e par Printemps montpelli�rain
+Un service public municipal de sant� : des centres de sant� de proximit� dans les quartiers
+Des milliers de personnes renoncent aux soins : manque de m�decins, d�lais, co�t, absence de suivi. Les in�galit�s territoriales se creusent.
+Dispositifs :
+Cr�er / renforcer des centres de sant� municipaux (m�decine g�n�rale, infirmier�es, sages-femmes selon besoins, pr�vention) avec tiers payant et tarifs sans d�passements.
+Priorit� aux quartiers sous-dot�s et aux publics qui renoncent le plus.
+Amplitudes horaires adapt�es (soir / samedi quand c'est pertinent) + coordination avec l'h�pital et la m�decine de ville.
+Pr�venir plut�t que r�parer : plan municipal de pr�vention
+On arrive trop tard : diab�te, hypertension, sant� bucco-dentaire, d�pistages. La pr�vention manque, surtout l� o� la vie est plus dure.
+Dispositifs :
+Campagnes de d�pistage et de pr�vention � hors les murs � : march�s, quartiers, �v�nements, lieux de vie.
+Parcours de pr�vention dans les centres municipaux : d�pistages, vaccination, sant� bucco-dentaire, addictions (orientation), nutrition, sant� sexuelle.
+Aller-vers : rep�rage et suivi des personnes sans m�decin traitant.
+Sant� mentale : une priorit� municipale, notamment pour les jeunes
+Anxi�t�, d�pression, isolement : les d�lais explosent, les familles sont d�munies, les jeunes d�crochent.
+Dispositifs :
+Points d'accueil et d'�coute de proximit� (jeunes, parents, �tudiant�es), avec orientation rapide.
+Renforcer l'acc�s � des consultations (psychologues / infirmier�es psy en lien avec les structures existantes).
+Actions anti-isolement : lieux ressources, pr�vention en milieu scolaire et associatif.
+Soutenir Human Sant� et p�renniser ces structures
+Des centres de sant� comme Human Sant� r�pondent � un besoin vital mais leur mod�le est fragilis� par des financements pr�caires.
+Dispositifs :
+Soutenir Human Sant� et inscrire durablement le financement de ces centres dans la LFSS.
+Construire une alliance municipale : appui administratif, conventions, travail en r�seau (CCAS, pr�vention, sant� mentale, acc�s aux droits).
+D�velopper ce type de structures dans la ville : centres pluridisciplinaires, m�diation, pr�vention � aller-vers �.
+Lutter contre les addictions : r�duction des risques + bus de sant�
+Les addictions (drogues, alcool, m�dicaments) sont un enjeu majeur de sant� publique. La r�ponse ne peut pas �tre seulement r�pressive : il faut soigner, prot�ger, accompagner.
+Dispositifs :
+Un bus de soins et de r�duction des risques : dispositif mobile allant au contact avec des professionnel�les (sant� + social) pour pr�venir les risques, rep�rer et orienter vers les soins, accompagner vers des parcours de sortie de d�pendance.
+Travail en r�seau avec l'h�pital, les structures d'addictologie, les associations, le CCAS.
+Acc�s aux droits et aux soins : guichet unique + m�diation sant�
+M�me quand l'offre existe, beaucoup se perdent : droits incompris, d�marches, isolement, langue, ruptures de parcours.
+Dispositifs :
+Un guichet municipal � droits & sant� � (CCAS / associations / CPAM / ARS) : ouverture de droits, rendez-vous, orientation.
+M�diation sant� : accompagnement des personnes en grande pr�carit�, des seniors isol�s, des jeunes sans suivi.
+Interpr�tariat quand n�cessaire, pour que la sant� ne d�pende pas de la ma�trise du fran�ais.
+Sant� environnementale : air, chaleur, bruit, logements
+Pollution de l'air, canicules, bruit, logements indignes : la sant� se joue aussi dans l'urbanisme, l'habitat et l'espace public.
+Dispositifs :
+Un plan sant�-environnement : protection des �coles et cr�ches, lutte contre les �lots de chaleur, r�duction du bruit, suivi des expositions.
+Lien direct avec le logement : rep�rage humidit� / moisissures / insalubrit�, accompagnement et interventions.
+Dispositif � canicule � renforc� : rep�rage des personnes fragiles, lieux frais accessibles, visites et appels.
+Sant� des femmes : acc�s r�el aux soins et � la pr�vention
+Retards de diagnostic, manque de suivi, in�galit�s d'acc�s (gyn�co, d�pistages), pr�carit� menstruelle, violences.
+Dispositifs :
+Parcours d�di�s : pr�vention, d�pistages, accompagnement dans les centres municipaux.
+Lutte contre la pr�carit� menstruelle : acc�s gratuit dans les lieux municipaux.
+Orientation renforc�e et confidentielle pour les victimes de violences, avec accompagnement.
+Non � l'incin�rateur de d�chets plastiques � Montpellier !
+Un incin�rateur de d�chets plastiques pourrait voir le jour dans le quartier de Croix d'Argent, pr�voyant de br�ler entre 30 000 et 45 000 tonnes de plastiques par an. Ce serait une premi�re en France ? et une bombe sanitaire.
+Br�ler du plastique, c'est lib�rer dans l'air des substances toxiques que nous respirerons chaque jour : furanes, dioxines, m�taux lourds (arsenic, mercure, plomb), polluants �ternels PFAS. Les habitants dans un rayon de deux kilom�tres ? GaroSud, Pr�s d'Ar�nes, Les Grisettes, Les Sabines, Ovalie, Croix d'Argent, Maurin ou encore Lattes ? seront directement expos�s.
+Position :
+abandon imm�diat de ce projet et mise en place d'un plan local ambitieux de r�duction et de valorisation des d�chets, fond� sur la r�duction, le tri, le r�emploi et l'�conomie circulaire.
+
 --- File: listes_les-ecologistes_programme_tranquillite-mediation-prevention.txt ---
 URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/tranquillite-mediation-prevention/
 
@@ -7949,6 +11699,52 @@ La tranquillit� publique passe par la pr�vention sociale : investir dans la 
 Une ville qui prend soin de ses habitant�es les plus vuln�rables est une ville plus s�re pour tou�tes.
 
 --- File: listes_les-ecologistes_programme_tranquillite-mediation-prevention_3.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/tranquillite-mediation-prevention
+
+TITLE: Tranquillit� : m�diation, pr�vention et pr�sence de proximit� � Printemps montpelli�rain
+
+DESCRIPTION: Tranquillit� : m�diation, pr�vention et pr�sence de proximit�
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+Tranquillit� : m�diation, pr�vention et pr�sence de proximit�
+Une mesure propos�e par Printemps montpelli�rain
+Police municipale de proximit� 24h/24 et 7j/7
+Augmentation du nombre de policier�es municipaux�ales et de m�diateurs�rices de proximit� (objectif : 4 agents pour 1 000 habitants).
+Pr�sence dans les quartiers, agents connus des habitant�es, approche par la d�sescalade et la m�diation.
+Reprendre l'espace public : accompagner sans exclure
+Face aux situations de trouble de l'espace public (comme au square du P�re-Bonnet � Figuerolles), la r�ponse doit �tre � la fois ferme et humaine : pr�sence r�guli�re, accompagnement des personnes en situation de pr�carit�, m�diation de terrain.
+L'objectif n'est pas de fermer l'espace public, mais de le rendre vivable pour tou�tes.
+Pr�vention : s'attaquer aux causes
+La tranquillit� publique passe par la pr�vention sociale : investir dans la jeunesse, lutter contre le d�crochage scolaire, soutenir les structures qui accompagnent les personnes fragiles.
+Une ville qui prend soin de ses habitant�es les plus vuln�rables est une ville plus s�re pour tou�tes.
+
+--- File: listes_les-ecologistes_programme_tranquillite-mediation-prevention_4.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/tranquillite-mediation-prevention/
+
+TITLE: Tranquillit� : m�diation, pr�vention et pr�sence de proximit� � Printemps montpelli�rain
+
+DESCRIPTION: Tranquillit� : m�diation, pr�vention et pr�sence de proximit�
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+Tranquillit� : m�diation, pr�vention et pr�sence de proximit�
+Une mesure propos�e par Printemps montpelli�rain
+Police municipale de proximit� 24h/24 et 7j/7
+Augmentation du nombre de policier�es municipaux�ales et de m�diateurs�rices de proximit� (objectif : 4 agents pour 1 000 habitants).
+Pr�sence dans les quartiers, agents connus des habitant�es, approche par la d�sescalade et la m�diation.
+Reprendre l'espace public : accompagner sans exclure
+Face aux situations de trouble de l'espace public (comme au square du P�re-Bonnet � Figuerolles), la r�ponse doit �tre � la fois ferme et humaine : pr�sence r�guli�re, accompagnement des personnes en situation de pr�carit�, m�diation de terrain.
+L'objectif n'est pas de fermer l'espace public, mais de le rendre vivable pour tou�tes.
+Pr�vention : s'attaquer aux causes
+La tranquillit� publique passe par la pr�vention sociale : investir dans la jeunesse, lutter contre le d�crochage scolaire, soutenir les structures qui accompagnent les personnes fragiles.
+Une ville qui prend soin de ses habitant�es les plus vuln�rables est une ville plus s�re pour tou�tes.
+
+--- File: listes_les-ecologistes_programme_tranquillite-mediation-prevention_5.txt ---
 URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/tranquillite-mediation-prevention
 
 TITLE: Tranquillit� : m�diation, pr�vention et pr�sence de proximit� � Printemps montpelli�rain
@@ -8164,6 +11960,134 @@ Mailler les centralit�s entre elles : liaisons rapides et lisibles, pas unique
 Requalifier les grands axes en boulevards urbains : apais�s, ombrag�s, s�rs.
 
 --- File: listes_les-ecologistes_programme_urbanisme-ecologique-participatif_3.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/urbanisme-ecologique-participatif
+
+TITLE: Urbanisme : une ville qui prot�ge, qui rafra�chit, qui respecte ses quartiers � Printemps montpelli�rain
+
+DESCRIPTION: Urbanisme : une ville qui prot�ge, qui rafra�chit, qui respecte ses quartiers
+
+CONTENT:
+
+Retour � la liste
+environnement
+changement climatique
+gestion de l'eau
+Urbanisme : une ville qui prot�ge, qui rafra�chit, qui respecte ses quartiers
+Une mesure propos�e par Printemps montpelli�rain
+Z�ro artificialisation nette : stop au b�tonnage, priorit� � la ville d�j� l�
+La ville �touffe : surchauffe, ruissellement, perte de nature. Continuer � artificialiser aggrave tout.
+Dispositifs :
+Objectif clair : z�ro artificialisation nette sur le mandat.
+Priorit� � la r�novation, la transformation et la r�habilitation (friches, dents creuses, bureaux vacants) plut�t que l'�talement.
+Stop aux projets qui d�truisent des sols vivants et aggravent l'�lot de chaleur.
+Garanties :
+moins de b�ton, plus de sobri�t� fonci�re ; une ville plus r�siliente face aux canicules et aux pluies extr�mes.
+Trame verte et bleue : relier parcs, jardins, cours d'eau, garrigues
+La nature est fragment�e : le vivant recule, la biodiversit� s'effondre, la ville perd ses respirations.
+Dispositifs :
+Construire une trame verte et bleue continue : corridors �cologiques, alignements d'arbres, renaturation des berges.
+Prot�ger les � petits � espaces de nature du quotidien : squares, jardins, friches � haute valeur �cologique.
+Soutenir jardins partag�s et v�g�talisation (sols vivants d'abord).
+Garanties :
+plus de biodiversit�, plus de fra�cheur, plus de bien-�tre ; une ville plus vivante et plus respirable.
+D�mocratie urbanistique : d�cider avec les habitant�es, pas contre eux
+Des projets arrivent � tout faits �, la d�fiance monte, et la ville se fracture.
+Dispositifs :
+Concertations utiles : conseils de quartier outill�s, ateliers publics, restitutions claires, calendrier public.
+Transparence : objectifs, impacts, alternatives, engagements, suivi.
+Droit d'alerte citoyen sur les projets qui menacent la sant�, le climat ou le cadre de vie.
+Plan � Montpellier ville fra�che � : arbres, ombre, d�simperm�abilisation
+Les canicules deviennent la norme : quartiers min�raux, peu d'ombre, sols imperm�ables, nuits invivables.
+Dispositifs :
+Plan canop�e : planter massivement l� o� �a manque (rues, places, parkings, abords d'�coles).
+D�simperm�abiliser : retirer du bitume, remettre du sol vivant, noues, sols infiltrants.
+Multiplier l'ombre et les �lots de fra�cheur (ombrage, points d'eau, mat�riaux moins chauffants).
+Garanties :
+moins de surchauffe, plus de confort dans l'espace public ; moins de ruissellement, plus d'infiltration.
+R�gles urbanistiques anti-sp�culation : construire moins mais mieux
+Trop souvent, l'urbanisme subit la logique des promoteurs : volumes, densit�s, prix, sans respect des quartiers, des habitant�es et du climat.
+Dispositifs :
+Concertation obligatoire en amont : d�s les premi�res esquisses, avec les riverain�es, les habitant�es et les associations directement concern�es.
+Une charte exigeante : qualit� architecturale, confort d'�t�, pleine terre, espaces verts, gestion de l'eau, stationnement v�lo, mixit� sociale.
+Outils de la collectivit� : pr�emption, ma�trise fonci�re, conditions strictes sur le foncier public.
+Renaturer les cours d'�coles et leurs abords
+Des cours surchauff�es et min�rales : risque sanitaire, in�galit�s, inconfort au quotidien.
+Dispositifs :
+Cours d'�coles transform�es : arbres, sols perm�ables, ombre, points d'eau, jeux plus naturels.
+Abords d'�coles apais�s : trottoirs continus, travers�es s�curis�es, espace public plus � respirable �.
+Ville et m�tropole polycentriques et maill�es
+Quand tout est concentr� au m�me endroit, on d�pend de la voiture, on perd du temps, et les in�galit�s entre quartiers se creusent.
+Dispositifs :
+Un mod�le clair : polycentrisme maill� � l'�chelle ville + m�tropole (plusieurs centralit�s, reli�es entre elles).
+Renforcer les centralit�s de quartiers : sant�, �coles, sport, culture, alimentation, d�marches du quotidien.
+Mailler les centralit�s entre elles : liaisons rapides et lisibles, pas uniquement � tout vers le centre �.
+Requalifier les grands axes en boulevards urbains : apais�s, ombrag�s, s�rs.
+
+--- File: listes_les-ecologistes_programme_urbanisme-ecologique-participatif_4.txt ---
+URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/urbanisme-ecologique-participatif/
+
+TITLE: Urbanisme : une ville qui prot�ge, qui rafra�chit, qui respecte ses quartiers � Printemps montpelli�rain
+
+DESCRIPTION: Urbanisme : une ville qui prot�ge, qui rafra�chit, qui respecte ses quartiers
+
+CONTENT:
+
+Retour � la liste
+environnement
+changement climatique
+gestion de l'eau
+Urbanisme : une ville qui prot�ge, qui rafra�chit, qui respecte ses quartiers
+Une mesure propos�e par Printemps montpelli�rain
+Z�ro artificialisation nette : stop au b�tonnage, priorit� � la ville d�j� l�
+La ville �touffe : surchauffe, ruissellement, perte de nature. Continuer � artificialiser aggrave tout.
+Dispositifs :
+Objectif clair : z�ro artificialisation nette sur le mandat.
+Priorit� � la r�novation, la transformation et la r�habilitation (friches, dents creuses, bureaux vacants) plut�t que l'�talement.
+Stop aux projets qui d�truisent des sols vivants et aggravent l'�lot de chaleur.
+Garanties :
+moins de b�ton, plus de sobri�t� fonci�re ; une ville plus r�siliente face aux canicules et aux pluies extr�mes.
+Trame verte et bleue : relier parcs, jardins, cours d'eau, garrigues
+La nature est fragment�e : le vivant recule, la biodiversit� s'effondre, la ville perd ses respirations.
+Dispositifs :
+Construire une trame verte et bleue continue : corridors �cologiques, alignements d'arbres, renaturation des berges.
+Prot�ger les � petits � espaces de nature du quotidien : squares, jardins, friches � haute valeur �cologique.
+Soutenir jardins partag�s et v�g�talisation (sols vivants d'abord).
+Garanties :
+plus de biodiversit�, plus de fra�cheur, plus de bien-�tre ; une ville plus vivante et plus respirable.
+D�mocratie urbanistique : d�cider avec les habitant�es, pas contre eux
+Des projets arrivent � tout faits �, la d�fiance monte, et la ville se fracture.
+Dispositifs :
+Concertations utiles : conseils de quartier outill�s, ateliers publics, restitutions claires, calendrier public.
+Transparence : objectifs, impacts, alternatives, engagements, suivi.
+Droit d'alerte citoyen sur les projets qui menacent la sant�, le climat ou le cadre de vie.
+Plan � Montpellier ville fra�che � : arbres, ombre, d�simperm�abilisation
+Les canicules deviennent la norme : quartiers min�raux, peu d'ombre, sols imperm�ables, nuits invivables.
+Dispositifs :
+Plan canop�e : planter massivement l� o� �a manque (rues, places, parkings, abords d'�coles).
+D�simperm�abiliser : retirer du bitume, remettre du sol vivant, noues, sols infiltrants.
+Multiplier l'ombre et les �lots de fra�cheur (ombrage, points d'eau, mat�riaux moins chauffants).
+Garanties :
+moins de surchauffe, plus de confort dans l'espace public ; moins de ruissellement, plus d'infiltration.
+R�gles urbanistiques anti-sp�culation : construire moins mais mieux
+Trop souvent, l'urbanisme subit la logique des promoteurs : volumes, densit�s, prix, sans respect des quartiers, des habitant�es et du climat.
+Dispositifs :
+Concertation obligatoire en amont : d�s les premi�res esquisses, avec les riverain�es, les habitant�es et les associations directement concern�es.
+Une charte exigeante : qualit� architecturale, confort d'�t�, pleine terre, espaces verts, gestion de l'eau, stationnement v�lo, mixit� sociale.
+Outils de la collectivit� : pr�emption, ma�trise fonci�re, conditions strictes sur le foncier public.
+Renaturer les cours d'�coles et leurs abords
+Des cours surchauff�es et min�rales : risque sanitaire, in�galit�s, inconfort au quotidien.
+Dispositifs :
+Cours d'�coles transform�es : arbres, sols perm�ables, ombre, points d'eau, jeux plus naturels.
+Abords d'�coles apais�s : trottoirs continus, travers�es s�curis�es, espace public plus � respirable �.
+Ville et m�tropole polycentriques et maill�es
+Quand tout est concentr� au m�me endroit, on d�pend de la voiture, on perd du temps, et les in�galit�s entre quartiers se creusent.
+Dispositifs :
+Un mod�le clair : polycentrisme maill� � l'�chelle ville + m�tropole (plusieurs centralit�s, reli�es entre elles).
+Renforcer les centralit�s de quartiers : sant�, �coles, sport, culture, alimentation, d�marches du quotidien.
+Mailler les centralit�s entre elles : liaisons rapides et lisibles, pas uniquement � tout vers le centre �.
+Requalifier les grands axes en boulevards urbains : apais�s, ombrag�s, s�rs.
+
+--- File: listes_les-ecologistes_programme_urbanisme-ecologique-participatif_5.txt ---
 URL: https://montpellier-municipales.fr/listes/les-ecologistes/programme/urbanisme-ecologique-participatif
 
 TITLE: Urbanisme : une ville qui prot�ge, qui rafra�chit, qui respecte ses quartiers � Printemps montpelli�rain
@@ -8749,6 +12673,266 @@ Service technique de l'accessibilit� universelle
 : Une unit� municipale d�di
 [... truncated ...]
 
+--- File: listes_aimer-montpellier_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier
+
+TITLE: Aimer Montpellier � Isabelle Perrein
+
+DESCRIPTION: Pr�sentation de la liste Aimer Montpellier et de sa t�te de liste Isabelle Perrein qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Aimer Montpellier
+T�te de liste�: Isabelle Perrein
+Les R�publicains
+UDI
+Modem
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Isabelle Perrein
+conduit pour les �lections municipales de 2026 une liste intitul�e
+� Aimer Montpellier �
+. Elle se pr�sente publiquement comme une
+candidate libre, sans �tiquette partisane
+, issue de la soci�t� civile et revendiquant son ind�pendance vis-�-vis des partis politiques.
+Dans son programme, elle affirme ne r�pondre � � aucune logique d?appareil � et place son engagement sous le signe de la proximit� avec les habitant�es et des quartiers de Montpellier.
+Toutefois, cette candidature b�n�ficie du
+soutien politique de plusieurs formations de droite et du centre
+, notamment
+Les R�publicains (LR)
+,
+l?Union des d�mocrates et ind�pendants (UDI)
+et le
+Mouvement d�mocrate (MoDem)
+, ce qui inscrit la liste dans l?espace politique de la droite et du centre droit au niveau local.
+Isabelle Perrein
+a �t� d�sign�e comme t�te de liste des R�publicains pour les �lections municipales de 2026 � Montpellier. Son engagement s?inscrit dans une volont� de
+r�affirmer une pr�sence structur�e de la droite
+dans le d�bat municipal local.
+La candidature d?Isabelle Perrein vise � rassembler les �lecteur�rices se reconnaissant dans une orientation de droite r�publicaine, distincte � la fois de la majorit� municipale socialiste actuelle et des autres forces d?opposition.
+Une strat�gie de reconstruction � droite
+Pour les municipales de 2026, Les R�publicains � Montpellier s?inscrivent dans une d�marche de
+reconstruction politique
+, apr�s plusieurs cycles �lectoraux difficiles au niveau local.
+Cette strat�gie repose notamment sur :
+la constitution d?une
+liste clairement identifi�e LR
+;
+la volont� de proposer une alternative � droite face � la majorit� sortante ;
+le refus de la dispersion des voix au sein de plusieurs candidatures concurrentes issues du m�me espace politique.
+Positionnement politique local
+La liste conduite par Isabelle Perrein se positionne dans une
+opposition municipale
+� la majorit� dirig�e par le maire socialiste Micha�l Delafosse.
+Les prises de position publiques associ�es aux R�publicains mettent g�n�ralement l?accent sur :
+la
+s�curit� et la tranquillit� publique
+;
+la gestion financi�re de la commune et de la m�tropole ;
+l?attractivit� �conomique et commerciale du centre-ville ;
+la qualit� des services municipaux.
+Ce positionnement vise � proposer une alternative de droite aux �lecteur�rices insatisfait�es de la gestion municipale actuelle.
+Axes programmatiques issus du programme
+Le programme municipal de la liste � Aimer Montpellier � a �t� rendu public. Il s?articule autour de plusieurs axes structurants, pr�sent�s comme le fruit d?un travail de terrain men� quartier par quartier.
+S�curit� et tranquillit� publique
+La s�curit� constitue un axe central du projet. La liste propose un renforcement significatif de la police municipale, avec un maillage accru des postes de police dans les quartiers, une pr�sence permanente jour et nuit et le d�veloppement d?un Centre de Supervision Urbain dot� de moyens techniques renforc�s. Le programme revendique une politique de
+� tol�rance z�ro �
+face � la d�linquance, inspir�e de dispositifs appliqu�s dans d?autres grandes villes.
+Mobilit�s et circulation
+La liste critique fortement la politique actuelle de mobilit�s, en particulier la Zone � Faibles �missions (ZFE), pr�sent�e comme socialement discriminante. Elle propose une approche visant �
+rendre la ville accessible � tous les modes de d�placement
+, incluant pi�tons, personnes � mobilit� r�duite, automobilistes et cyclistes, avec une remise � plat du plan de circulation, le r�tablissement de capacit�s de stationnement et une r�forme de la gratuit� des transports publics.
+Propret� et gestion des d�chets
+Le programme met en avant un diagnostic s�v�re de l?�tat de propret� de la ville et de la gestion des d�chets. Il propose une r�organisation du nettoiement urbain, le d�veloppement du tri et de l?�conomie circulaire, ainsi que la construction d?outils de traitement des d�chets pr�sent�s comme plus efficaces et moins co�teux que les dispositifs actuels.
+Urbanisme et am�nagement
+La liste d�fend un urbanisme qualifi� de � bon sens �, reposant sur la r�novation du b�ti existant, une densification pr�sent�e comme ma�tris�e et la cr�ation d?espaces verts et de lieux de vie dans les quartiers. Elle affirme vouloir freiner la b�tonisation et favoriser un cadre de vie plus agr�able et accessible.
+�conomie et emploi
+Le projet accorde une place importante au d�veloppement �conomique local, avec pour objectif affich� la cr�ation d?emplois pour les habitant�es de Montpellier. Il met l?accent sur le soutien aux commerces de proximit�, l?attractivit� des fili�res �conomiques jug�es strat�giques et une coop�ration renforc�e avec les entreprises locales.
+�ducation, sport, culture et solidarit�s
+Le programme d�veloppe �galement des propositions dans les domaines de l?�ducation, du sport, de la culture, de la sant� et de l?action sociale, avec une attention particuli�re port�e � l?accessibilit�, � l?accompagnement des personnes �g�es, des personnes en situation de handicap et des publics les plus vuln�rables.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+changement climatique
+culture
+d�chets
+enfance et �ducation
+environnement
+logement
+sant�
+solidarit�
+sport
+s�curit�
+transport et mobilit�s
+�mancipation et justice sociale
+sant�
+solidarit�
+Sant�, Handicap et Ain�s : Pour une inclusion r�elle
+Isabelle Perrein propose de placer l'humain et la vuln�rabilit� au centre de l'action municipale pour garantir une sant� accessible et une autonomie durable � tous les citoyens.
+Une ville solidaire et bienveillante
+L'objectif est de supprimer les obstacles physiques et administratifs pour les personnes en situation de handicap et les a�n�s.
+Maisons de sant� pluridisciplinaires
+: Implantation de structures abritant des professionnels de sant� dans tous les secteurs.
+Acc�s facilit� � l'h�pital
+: Forfait de 2h de gratuit� par jour pour les parkings des h�pitaux pour les familles des patients.
+Service technique de l'accessibilit� universelle
+: Une unit� municipale d�di�e pour veiller � ce que chaque am�nagement public soit 100% accessible.
+Maison du handicap et des a�n�s
+: Un lieu partag� pour informer les citoyens sur leurs droits et les accompagner dans leurs d�marches.
+Ligne t�l�phonique d�di�e
+: Un service de conseils administratifs et de pr�vention pour les personnes vuln�rables.
+Maison de l'�ge d'or
+: Cr�ation d'un lieu de rencontre anim� dans l'espace public pour lutter contre l'isolement des seniors.
+R�serve de s�niors actifs
+: Cr�ation d'un corps de volontaires seniors pour intervenir dans les Maisons pour tous et cr�er du lien interg�n�rationnel.
+Navettes gratuites en centre-ville
+: Transport sp�cifique pour les seniors et les PMR.
+R�f�rent handicap en mairie
+: Un interlocuteur unique au sein du personnel municipal pour toutes les questions d'inclusion.
+Soutien au maintien � domicile
+: Accompagnement renforc� pour les personnes �g�es et sensibilisation des syndics pour l'installation d'ascenseurs adapt�s.
+Places de stationnement � seniors �
+: Cr�ation de places de parking r�serv�es pr�s des services essentiels.
+culture
+Penser la culture comme vecteur d'�mancipation pour tous
+Isabelle Perrein propose de sortir la culture des institutions pour l'amener dans tous les quartiers et favoriser l'expression de tous les talents montpelli�rains.
+Une culture vivante, partout et tout le temps
+L'objectif est de rendre la culture accessible � chacun, tout en faisant rayonner la sc�ne locale � l'international.
+Kiosques anim�s dans l'espace public
+: Installation de kiosques dans tous les 
+[... truncated ...]
+
+--- File: listes_aimer-montpellier_5.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/
+
+TITLE: Aimer Montpellier � Isabelle Perrein
+
+DESCRIPTION: Pr�sentation de la liste Aimer Montpellier et de sa t�te de liste Isabelle Perrein qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Aimer Montpellier
+T�te de liste�: Isabelle Perrein
+Les R�publicains
+UDI
+Modem
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Isabelle Perrein
+conduit pour les �lections municipales de 2026 une liste intitul�e
+� Aimer Montpellier �
+. Elle se pr�sente publiquement comme une
+candidate libre, sans �tiquette partisane
+, issue de la soci�t� civile et revendiquant son ind�pendance vis-�-vis des partis politiques.
+Dans son programme, elle affirme ne r�pondre � � aucune logique d?appareil � et place son engagement sous le signe de la proximit� avec les habitant�es et des quartiers de Montpellier.
+Toutefois, cette candidature b�n�ficie du
+soutien politique de plusieurs formations de droite et du centre
+, notamment
+Les R�publicains (LR)
+,
+l?Union des d�mocrates et ind�pendants (UDI)
+et le
+Mouvement d�mocrate (MoDem)
+, ce qui inscrit la liste dans l?espace politique de la droite et du centre droit au niveau local.
+Isabelle Perrein
+a �t� d�sign�e comme t�te de liste des R�publicains pour les �lections municipales de 2026 � Montpellier. Son engagement s?inscrit dans une volont� de
+r�affirmer une pr�sence structur�e de la droite
+dans le d�bat municipal local.
+La candidature d?Isabelle Perrein vise � rassembler les �lecteur�rices se reconnaissant dans une orientation de droite r�publicaine, distincte � la fois de la majorit� municipale socialiste actuelle et des autres forces d?opposition.
+Une strat�gie de reconstruction � droite
+Pour les municipales de 2026, Les R�publicains � Montpellier s?inscrivent dans une d�marche de
+reconstruction politique
+, apr�s plusieurs cycles �lectoraux difficiles au niveau local.
+Cette strat�gie repose notamment sur :
+la constitution d?une
+liste clairement identifi�e LR
+;
+la volont� de proposer une alternative � droite face � la majorit� sortante ;
+le refus de la dispersion des voix au sein de plusieurs candidatures concurrentes issues du m�me espace politique.
+Positionnement politique local
+La liste conduite par Isabelle Perrein se positionne dans une
+opposition municipale
+� la majorit� dirig�e par le maire socialiste Micha�l Delafosse.
+Les prises de position publiques associ�es aux R�publicains mettent g�n�ralement l?accent sur :
+la
+s�curit� et la tranquillit� publique
+;
+la gestion financi�re de la commune et de la m�tropole ;
+l?attractivit� �conomique et commerciale du centre-ville ;
+la qualit� des services municipaux.
+Ce positionnement vise � proposer une alternative de droite aux �lecteur�rices insatisfait�es de la gestion municipale actuelle.
+Axes programmatiques issus du programme
+Le programme municipal de la liste � Aimer Montpellier � a �t� rendu public. Il s?articule autour de plusieurs axes structurants, pr�sent�s comme le fruit d?un travail de terrain men� quartier par quartier.
+S�curit� et tranquillit� publique
+La s�curit� constitue un axe central du projet. La liste propose un renforcement significatif de la police municipale, avec un maillage accru des postes de police dans les quartiers, une pr�sence permanente jour et nuit et le d�veloppement d?un Centre de Supervision Urbain dot� de moyens techniques renforc�s. Le programme revendique une politique de
+� tol�rance z�ro �
+face � la d�linquance, inspir�e de dispositifs appliqu�s dans d?autres grandes villes.
+Mobilit�s et circulation
+La liste critique fortement la politique actuelle de mobilit�s, en particulier la Zone � Faibles �missions (ZFE), pr�sent�e comme socialement discriminante. Elle propose une approche visant �
+rendre la ville accessible � tous les modes de d�placement
+, incluant pi�tons, personnes � mobilit� r�duite, automobilistes et cyclistes, avec une remise � plat du plan de circulation, le r�tablissement de capacit�s de stationnement et une r�forme de la gratuit� des transports publics.
+Propret� et gestion des d�chets
+Le programme met en avant un diagnostic s�v�re de l?�tat de propret� de la ville et de la gestion des d�chets. Il propose une r�organisation du nettoiement urbain, le d�veloppement du tri et de l?�conomie circulaire, ainsi que la construction d?outils de traitement des d�chets pr�sent�s comme plus efficaces et moins co�teux que les dispositifs actuels.
+Urbanisme et am�nagement
+La liste d�fend un urbanisme qualifi� de � bon sens �, reposant sur la r�novation du b�ti existant, une densification pr�sent�e comme ma�tris�e et la cr�ation d?espaces verts et de lieux de vie dans les quartiers. Elle affirme vouloir freiner la b�tonisation et favoriser un cadre de vie plus agr�able et accessible.
+�conomie et emploi
+Le projet accorde une place importante au d�veloppement �conomique local, avec pour objectif affich� la cr�ation d?emplois pour les habitant�es de Montpellier. Il met l?accent sur le soutien aux commerces de proximit�, l?attractivit� des fili�res �conomiques jug�es strat�giques et une coop�ration renforc�e avec les entreprises locales.
+�ducation, sport, culture et solidarit�s
+Le programme d�veloppe �galement des propositions dans les domaines de l?�ducation, du sport, de la culture, de la sant� et de l?action sociale, avec une attention particuli�re port�e � l?accessibilit�, � l?accompagnement des personnes �g�es, des personnes en situation de handicap et des publics les plus vuln�rables.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+changement climatique
+culture
+d�chets
+enfance et �ducation
+environnement
+logement
+sant�
+solidarit�
+sport
+s�curit�
+transport et mobilit�s
+�mancipation et justice sociale
+sant�
+solidarit�
+Sant�, Handicap et Ain�s : Pour une inclusion r�elle
+Isabelle Perrein propose de placer l'humain et la vuln�rabilit� au centre de l'action municipale pour garantir une sant� accessible et une autonomie durable � tous les citoyens.
+Une ville solidaire et bienveillante
+L'objectif est de supprimer les obstacles physiques et administratifs pour les personnes en situation de handicap et les a�n�s.
+Maisons de sant� pluridisciplinaires
+: Implantation de structures abritant des professionnels de sant� dans tous les secteurs.
+Acc�s facilit� � l'h�pital
+: Forfait de 2h de gratuit� par jour pour les parkings des h�pitaux pour les familles des patients.
+Service technique de l'accessibilit� universelle
+: Une unit� municipale d�di�e pour veiller � ce que chaque am�nagement public soit 100% accessible.
+Maison du handicap et des a�n�s
+: Un lieu partag� pour informer les citoyens sur leurs droits et les accompagner dans leurs d�marches.
+Ligne t�l�phonique d�di�e
+: Un service de conseils administratifs et de pr�vention pour les personnes vuln�rables.
+Maison de l'�ge d'or
+: Cr�ation d'un lieu de rencontre anim� dans l'espace public pour lutter contre l'isolement des seniors.
+R�serve de s�niors actifs
+: Cr�ation d'un corps de volontaires seniors pour intervenir dans les Maisons pour tous et cr�er du lien interg�n�rationnel.
+Navettes gratuites en centre-ville
+: Transport sp�cifique pour les seniors et les PMR.
+R�f�rent handicap en mairie
+: Un interlocuteur unique au sein du personnel municipal pour toutes les questions d'inclusion.
+Soutien au maintien � domicile
+: Accompagnement renforc� pour les personnes �g�es et sensibilisation des syndics pour l'installation d'ascenseurs adapt�s.
+Places de stationnement � seniors �
+: Cr�ation de places de parking r�serv�es pr�s des services essentiels.
+culture
+Penser la culture comme vecteur d'�mancipation pour tous
+Isabelle Perrein propose de sortir la culture des institutions pour l'amener dans tous les quartiers et favoriser l'expression de tous les talents montpelli�rains.
+Une culture vivante, partout et tout le temps
+L'objectif est de rendre la culture accessible � chacun, tout en faisant rayonner la sc�ne locale � l'international.
+Kiosques anim�s dans l'espace public
+: Installation de kiosques dans tous les
+[... truncated ...]
+
 --- File: listes_aimer-montpellier_programme_accessibilite-pediton-pmr.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/accessibilite-pediton-pmr/
 
@@ -8831,6 +13015,60 @@ Itin�raires accessibles sur mobile
 : L'application de la ville indiquera en temps r�el les parcours sans obstacles et les toilettes adapt�es.
 
 --- File: listes_aimer-montpellier_programme_accessibilite-pediton-pmr_3.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/accessibilite-pediton-pmr
+
+TITLE: Rendre la ville accessible : Priorit� aux PMR et aux pi�tons � Aimer Montpellier
+
+DESCRIPTION: Rendre la ville accessible : Priorit� aux PMR et aux pi�tons
+
+CONTENT:
+
+Retour � la liste
+transport et mobilit�s
+Rendre la ville accessible : Priorit� aux PMR et aux pi�tons
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein souhaite mettre fin � � l'abandon � des pi�tons et des personnes � mobilit� r�duite (PMR) dans les politiques de transport urbain.
+L'accessibilit� universelle comme un droit
+L'objectif est de rendre la rue s�re et praticable pour les plus fragiles (seniors, parents avec poussettes, personnes en situation de handicap).
+Trottoirs r�nov�s et obstacles supprim�s
+: Un plan massif de r�novation des trottoirs d�fonc�s pour garantir un cheminement fluide.
+Navettes gratuites en centre-ville
+: Mise en place de navettes sp�cifiques pour les seniors et les PMR afin de faciliter l'acc�s au c?ur de ville historique.
+Pied � terre obligatoire en zone pi�tonne
+: Obligation pour les cyclistes et trottinettistes de descendre de leur v�hicule dans les zones pi�tonnes denses pour garantir la s�curit� des marcheurs.
+Service technique d�di� � l'accessibilit�
+: Cr�ation d'un service municipal int�grant des repr�sentants des associations de handicap�s pour valider chaque projet de voirie.
+Itin�raires accessibles sur mobile
+: L'application de la ville indiquera en temps r�el les parcours sans obstacles et les toilettes adapt�es.
+
+--- File: listes_aimer-montpellier_programme_accessibilite-pediton-pmr_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/accessibilite-pediton-pmr/
+
+TITLE: Rendre la ville accessible : Priorit� aux PMR et aux pi�tons � Aimer Montpellier
+
+DESCRIPTION: Rendre la ville accessible : Priorit� aux PMR et aux pi�tons
+
+CONTENT:
+
+Retour � la liste
+transport et mobilit�s
+Rendre la ville accessible : Priorit� aux PMR et aux pi�tons
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein souhaite mettre fin � � l'abandon � des pi�tons et des personnes � mobilit� r�duite (PMR) dans les politiques de transport urbain.
+L'accessibilit� universelle comme un droit
+L'objectif est de rendre la rue s�re et praticable pour les plus fragiles (seniors, parents avec poussettes, personnes en situation de handicap).
+Trottoirs r�nov�s et obstacles supprim�s
+: Un plan massif de r�novation des trottoirs d�fonc�s pour garantir un cheminement fluide.
+Navettes gratuites en centre-ville
+: Mise en place de navettes sp�cifiques pour les seniors et les PMR afin de faciliter l'acc�s au c?ur de ville historique.
+Pied � terre obligatoire en zone pi�tonne
+: Obligation pour les cyclistes et trottinettistes de descendre de leur v�hicule dans les zones pi�tonnes denses pour garantir la s�curit� des marcheurs.
+Service technique d�di� � l'accessibilit�
+: Cr�ation d'un service municipal int�grant des repr�sentants des associations de handicap�s pour valider chaque projet de voirie.
+Itin�raires accessibles sur mobile
+: L'application de la ville indiquera en temps r�el les parcours sans obstacles et les toilettes adapt�es.
+
+--- File: listes_aimer-montpellier_programme_accessibilite-pediton-pmr_5.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/accessibilite-pediton-pmr
 
 TITLE: Rendre la ville accessible : Priorit� aux PMR et aux pi�tons � Aimer Montpellier
@@ -9017,6 +13255,86 @@ Programme de r�insertion
 Suivi personnalis� des consommations
 : Syst�me d'alerte pour aider les foyers � ma�triser leurs d�penses d'eau.
 
+--- File: listes_aimer-montpellier_programme_actions-sociales-solidarite_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/actions-sociales-solidarite/
+
+TITLE: Actions sociales et solidarit� : Remettre l'humain au c?ur � Aimer Montpellier
+
+DESCRIPTION: Actions sociales et solidarit� : Remettre l'humain au c?ur
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+�mancipation et justice sociale
+Actions sociales et solidarit� : Remettre l'humain au c?ur
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose des solutions concr�tes et transparentes pour am�liorer le quotidien des Montpelli�rains les plus vuln�rables et renforcer la coh�sion sociale.
+Une ville solidaire, o� chacun trouve sa place
+L'objectif est d'agir sur le pouvoir d'achat et de garantir l'acc�s aux droits fondamentaux pour tous.
+�piceries solidaires locales
+: Collaboration avec les producteurs locaux pour offrir des produits de qualit� � prix solidaires dans les quartiers.
+R�duction des factures d'eau et d'�nergie
+: Installation de compteurs individuels dans les logements collectifs et n�gociation de contrats d'�lectricit� avantageux.
+Chauffage urbain moins cher
+: R�duction de 25% de la facture gr�ce � la valorisation de la chaleur des data centers.
+Recentrage des CCAS
+: Une analyse approfondie des besoins sociaux pour offrir des actions cibl�es et efficaces.
+Domiciliation des personnes sans abri
+: Garantir un toit, un acc�s aux services sociaux et un accompagnement vers l'autonomie.
+Guichet unique pour les droits
+: Un acc�s direct aux meilleures associations et services publics pour un accompagnement sur mesure.
+Maison des associations dans chaque quartier
+: Un bureau pour chaque association et une salle partag�e pour les activit�s locales.
+Attribution transparente des subventions
+: Fin des � petits arrangements �, les subventions seront conditionn�es par une garantie de bon usage au service de l'int�r�t g�n�ral.
+Plateforme de financement participatif
+: Une solution locale connect�e aux acteurs �conomiques pour soutenir directement les projets citoyens.
+Programme de r�insertion
+: Collaboration avec les associations de protection animale pour des programmes de r�insertion par l'humain.
+Suivi personnalis� des consommations
+: Syst�me d'alerte pour aider les foyers � ma�triser leurs d�penses d'eau.
+
+--- File: listes_aimer-montpellier_programme_actions-sociales-solidarite_5.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/actions-sociales-solidarite
+
+TITLE: Actions sociales et solidarit� : Remettre l'humain au c?ur � Aimer Montpellier
+
+DESCRIPTION: Actions sociales et solidarit� : Remettre l'humain au c?ur
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+�mancipation et justice sociale
+Actions sociales et solidarit� : Remettre l'humain au c?ur
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose des solutions concr�tes et transparentes pour am�liorer le quotidien des Montpelli�rains les plus vuln�rables et renforcer la coh�sion sociale.
+Une ville solidaire, o� chacun trouve sa place
+L'objectif est d'agir sur le pouvoir d'achat et de garantir l'acc�s aux droits fondamentaux pour tous.
+�piceries solidaires locales
+: Collaboration avec les producteurs locaux pour offrir des produits de qualit� � prix solidaires dans les quartiers.
+R�duction des factures d'eau et d'�nergie
+: Installation de compteurs individuels dans les logements collectifs et n�gociation de contrats d'�lectricit� avantageux.
+Chauffage urbain moins cher
+: R�duction de 25% de la facture gr�ce � la valorisation de la chaleur des data centers.
+Recentrage des CCAS
+: Une analyse approfondie des besoins sociaux pour offrir des actions cibl�es et efficaces.
+Domiciliation des personnes sans abri
+: Garantir un toit, un acc�s aux services sociaux et un accompagnement vers l'autonomie.
+Guichet unique pour les droits
+: Un acc�s direct aux meilleures associations et services publics pour un accompagnement sur mesure.
+Maison des associations dans chaque quartier
+: Un bureau pour chaque association et une salle partag�e pour les activit�s locales.
+Attribution transparente des subventions
+: Fin des � petits arrangements �, les subventions seront conditionn�es par une garantie de bon usage au service de l'int�r�t g�n�ral.
+Plateforme de financement participatif
+: Une solution locale connect�e aux acteurs �conomiques pour soutenir directement les projets citoyens.
+Programme de r�insertion
+: Collaboration avec les associations de protection animale pour des programmes de r�insertion par l'humain.
+Suivi personnalis� des consommations
+: Syst�me d'alerte pour aider les foyers � ma�triser leurs d�penses d'eau.
+
 --- File: listes_aimer-montpellier_programme_culture-proximite-talents.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/culture-proximite-talents/
 
@@ -9123,6 +13441,76 @@ Un concert g�ant chaque ann�e
 : Un �v�nement musical d'envergure nationale ou internationale pour tous les Montpelli�rains.
 
 --- File: listes_aimer-montpellier_programme_culture-proximite-talents_3.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/culture-proximite-talents
+
+TITLE: Penser la culture comme vecteur d'�mancipation pour tous � Aimer Montpellier
+
+DESCRIPTION: Penser la culture comme vecteur d'�mancipation pour tous
+
+CONTENT:
+
+Retour � la liste
+culture
+Penser la culture comme vecteur d'�mancipation pour tous
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose de sortir la culture des institutions pour l'amener dans tous les quartiers et favoriser l'expression de tous les talents montpelli�rains.
+Une culture vivante, partout et tout le temps
+L'objectif est de rendre la culture accessible � chacun, tout en faisant rayonner la sc�ne locale � l'international.
+Kiosques anim�s dans l'espace public
+: Installation de kiosques dans tous les quartiers pour des pi�ces de th��tre, concerts ou expositions �ph�m�res.
+L'Appli Ville de Montpellier
+: Acc�s direct � toute l'offre culturelle de la ville en un clic.
+HandiPass Culture
+: Billet gratuit pour l'accompagnant d'une personne handicap�e et zones PMR r�serv�es pour tous les grands �v�nements.
+La Culture � l'�cole et dans la rue
+: Des artistes pr�sents dans les �tablissements scolaires et des ateliers cr�atifs dans l'espace public.
+Promotion des talents locaux
+: Cr�ation d'un comit� artistique ind�pendant pour s�lectionner chaque ann�e les jeunes talents � r�v�ler.
+Campagnes de valorisation
+: Affichage, podcasts et reportages d�di�s aux artistes montpelli�rains qui r�ussissent.
+Festivals OFF et soutien aux �v�nements locaux
+: Soutien renforc� aux festivals embl�matiques comme le Festival du Blues ou Palmarosa.
+Redonner sa place au Festival M�diterran�en du Cin�ma
+: Faire de Montpellier une capitale cin�matographique majeure.
+Un concert g�ant chaque ann�e
+: Un �v�nement musical d'envergure nationale ou internationale pour tous les Montpelli�rains.
+
+--- File: listes_aimer-montpellier_programme_culture-proximite-talents_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/culture-proximite-talents/
+
+TITLE: Penser la culture comme vecteur d'�mancipation pour tous � Aimer Montpellier
+
+DESCRIPTION: Penser la culture comme vecteur d'�mancipation pour tous
+
+CONTENT:
+
+Retour � la liste
+culture
+Penser la culture comme vecteur d'�mancipation pour tous
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose de sortir la culture des institutions pour l'amener dans tous les quartiers et favoriser l'expression de tous les talents montpelli�rains.
+Une culture vivante, partout et tout le temps
+L'objectif est de rendre la culture accessible � chacun, tout en faisant rayonner la sc�ne locale � l'international.
+Kiosques anim�s dans l'espace public
+: Installation de kiosques dans tous les quartiers pour des pi�ces de th��tre, concerts ou expositions �ph�m�res.
+L'Appli Ville de Montpellier
+: Acc�s direct � toute l'offre culturelle de la ville en un clic.
+HandiPass Culture
+: Billet gratuit pour l'accompagnant d'une personne handicap�e et zones PMR r�serv�es pour tous les grands �v�nements.
+La Culture � l'�cole et dans la rue
+: Des artistes pr�sents dans les �tablissements scolaires et des ateliers cr�atifs dans l'espace public.
+Promotion des talents locaux
+: Cr�ation d'un comit� artistique ind�pendant pour s�lectionner chaque ann�e les jeunes talents � r�v�ler.
+Campagnes de valorisation
+: Affichage, podcasts et reportages d�di�s aux artistes montpelli�rains qui r�ussissent.
+Festivals OFF et soutien aux �v�nements locaux
+: Soutien renforc� aux festivals embl�matiques comme le Festival du Blues ou Palmarosa.
+Redonner sa place au Festival M�diterran�en du Cin�ma
+: Faire de Montpellier une capitale cin�matographique majeure.
+Un concert g�ant chaque ann�e
+: Un �v�nement musical d'envergure nationale ou internationale pour tous les Montpelli�rains.
+
+--- File: listes_aimer-montpellier_programme_culture-proximite-talents_5.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/culture-proximite-talents
 
 TITLE: Penser la culture comme vecteur d'�mancipation pour tous � Aimer Montpellier
@@ -9297,6 +13685,76 @@ Fonds pour les petites qualifications
 Data Centers et infrastructures num�riques
 : Faire le pari d'infrastructures durables et modernes pour asseoir la souverainet� num�rique locale.
 
+--- File: listes_aimer-montpellier_programme_economie-emploi-local_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/economie-emploi-local/
+
+TITLE: Excellence entrepreneuriale pour l'emploi local � Aimer Montpellier
+
+DESCRIPTION: Excellence entrepreneuriale pour l'emploi local
+
+CONTENT:
+
+Retour � la liste
+�mancipation et justice sociale
+Excellence entrepreneuriale pour l'emploi local
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein veut relancer l'ascenseur social � Montpellier en faisant de la mairie l'interlocuteur privil�gi� des entreprises pour cr�er des emplois accessibles � tous.
+Relancer l'�conomie avec et pour les Montpelli�rains
+L'objectif est de lutter contre la pauvret� et le ch�mage en attirant des entreprises et en soutenant le commerce local.
+Donner la parole aux entreprises
+: Cr�ation d'un dialogue permanent avec les chefs d'entreprises, artisans et syndicats pour d�cider des actions prioritaires.
+Soutien au commerce de quartier
+: Chaque commerce est un emploi potentiel. Am�liorer la s�curit�, l'accessibilit� et la propret� pour redonner envie de consommer local.
+Maison des Stagiaires
+: Lieu de rencontre entre entreprises et jeunes en recherche de formation ou d'apprentissage, avec un accompagnement individualis�.
+Fonds d'investissement public/priv�
+: Cr�ation d'un fonds pour renforcer les fonds propres des entreprises locales qui s'engagent � embaucher � Montpellier.
+Mise en place du PLUI �conomique
+: Sanctuariser les zones d'activit�s pour permettre aux entreprises en croissance de rester sur le territoire.
+P�les d'excellence
+: Valoriser les fili�res de sant�, IA, �nergies renouvelables et agroalimentaire pour attirer des cadres et cr�er des emplois qualifi�s.
+Lyc�e International
+: Proposer � la R�gion la cr�ation d'un �tablissement pour faciliter le recrutement international des entreprises.
+Fonds pour les petites qualifications
+: Faire venir des entreprises de logistique et recyclage pour offrir des emplois accessibles sans dipl�mes.
+Data Centers et infrastructures num�riques
+: Faire le pari d'infrastructures durables et modernes pour asseoir la souverainet� num�rique locale.
+
+--- File: listes_aimer-montpellier_programme_economie-emploi-local_5.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/economie-emploi-local
+
+TITLE: Excellence entrepreneuriale pour l'emploi local � Aimer Montpellier
+
+DESCRIPTION: Excellence entrepreneuriale pour l'emploi local
+
+CONTENT:
+
+Retour � la liste
+�mancipation et justice sociale
+Excellence entrepreneuriale pour l'emploi local
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein veut relancer l'ascenseur social � Montpellier en faisant de la mairie l'interlocuteur privil�gi� des entreprises pour cr�er des emplois accessibles � tous.
+Relancer l'�conomie avec et pour les Montpelli�rains
+L'objectif est de lutter contre la pauvret� et le ch�mage en attirant des entreprises et en soutenant le commerce local.
+Donner la parole aux entreprises
+: Cr�ation d'un dialogue permanent avec les chefs d'entreprises, artisans et syndicats pour d�cider des actions prioritaires.
+Soutien au commerce de quartier
+: Chaque commerce est un emploi potentiel. Am�liorer la s�curit�, l'accessibilit� et la propret� pour redonner envie de consommer local.
+Maison des Stagiaires
+: Lieu de rencontre entre entreprises et jeunes en recherche de formation ou d'apprentissage, avec un accompagnement individualis�.
+Fonds d'investissement public/priv�
+: Cr�ation d'un fonds pour renforcer les fonds propres des entreprises locales qui s'engagent � embaucher � Montpellier.
+Mise en place du PLUI �conomique
+: Sanctuariser les zones d'activit�s pour permettre aux entreprises en croissance de rester sur le territoire.
+P�les d'excellence
+: Valoriser les fili�res de sant�, IA, �nergies renouvelables et agroalimentaire pour attirer des cadres et cr�er des emplois qualifi�s.
+Lyc�e International
+: Proposer � la R�gion la cr�ation d'un �tablissement pour faciliter le recrutement international des entreprises.
+Fonds pour les petites qualifications
+: Faire venir des entreprises de logistique et recyclage pour offrir des emplois accessibles sans dipl�mes.
+Data Centers et infrastructures num�riques
+: Faire le pari d'infrastructures durables et modernes pour asseoir la souverainet� num�rique locale.
+
 --- File: listes_aimer-montpellier_programme_education-petite-enfance.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/education-petite-enfance/
 
@@ -9403,6 +13861,76 @@ Am�lioration des conditions de travail
 : Plus de formation et de dignit� pour le personnel de la petite enfance.
 
 --- File: listes_aimer-montpellier_programme_education-petite-enfance_3.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/education-petite-enfance
+
+TITLE: Priorit� � l'�ducation et � la petite enfance � Aimer Montpellier
+
+DESCRIPTION: Priorit� � l'�ducation et � la petite enfance
+
+CONTENT:
+
+Retour � la liste
+enfance et �ducation
+Priorit� � l'�ducation et � la petite enfance
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein place l'�ducation au c?ur de son projet pour faire de Montpellier une � Cit� des enfants et des jeunes � o� chacun peut s'�panouir en s�curit�.
+Plus qu'une �cole, un tremplin pour l'avenir
+L'objectif est de pallier le manque de places en cr�che et de transformer l'�cole en un lieu de soin et d'�veil global.
+Cr�ation de cr�ches de proximit�
+: Notamment pr�s des zones d'activit�s pour faciliter la vie des familles.
+Maisons d'assistantes maternelles
+: Soutien et valorisation de ces structures.
+Accueil du handicap � la cr�che
+: Une prise en charge humaine, qualifi�e et adapt�e d�s le plus jeune �ge.
+L'�cole du XXIe si�cle
+: Chaque �cole devient un centre �ducatif complet avec des orthophonistes, psychomotriciens, infirmi�res et psychologues int�gr�s.
+Ateliers d'arts et de sport
+: Programmes coordonn�s en partenariat avec les clubs sportifs, op�ras, conservatoires et mus�es.
+Accompagnement des ados et jeunes adultes
+: Cr�ation d'une plateforme num�rique innovante pour d�couvrir les m�tiers et les formations en vid�o et en local.
+Activit�s �ducatives de quartier
+: Programmes coordonn�s dans tous les lieux publics (piscines, gymnases, maisons pour tous) pendant les vacances scolaires.
+�ducation et pr�vention
+: Campagnes fortes contre la drogue, les violences, le harc�lement et les risques sanitaires d�s le coll�ge.
+Am�lioration des conditions de travail
+: Plus de formation et de dignit� pour le personnel de la petite enfance.
+
+--- File: listes_aimer-montpellier_programme_education-petite-enfance_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/education-petite-enfance/
+
+TITLE: Priorit� � l'�ducation et � la petite enfance � Aimer Montpellier
+
+DESCRIPTION: Priorit� � l'�ducation et � la petite enfance
+
+CONTENT:
+
+Retour � la liste
+enfance et �ducation
+Priorit� � l'�ducation et � la petite enfance
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein place l'�ducation au c?ur de son projet pour faire de Montpellier une � Cit� des enfants et des jeunes � o� chacun peut s'�panouir en s�curit�.
+Plus qu'une �cole, un tremplin pour l'avenir
+L'objectif est de pallier le manque de places en cr�che et de transformer l'�cole en un lieu de soin et d'�veil global.
+Cr�ation de cr�ches de proximit�
+: Notamment pr�s des zones d'activit�s pour faciliter la vie des familles.
+Maisons d'assistantes maternelles
+: Soutien et valorisation de ces structures.
+Accueil du handicap � la cr�che
+: Une prise en charge humaine, qualifi�e et adapt�e d�s le plus jeune �ge.
+L'�cole du XXIe si�cle
+: Chaque �cole devient un centre �ducatif complet avec des orthophonistes, psychomotriciens, infirmi�res et psychologues int�gr�s.
+Ateliers d'arts et de sport
+: Programmes coordonn�s en partenariat avec les clubs sportifs, op�ras, conservatoires et mus�es.
+Accompagnement des ados et jeunes adultes
+: Cr�ation d'une plateforme num�rique innovante pour d�couvrir les m�tiers et les formations en vid�o et en local.
+Activit�s �ducatives de quartier
+: Programmes coordonn�s dans tous les lieux publics (piscines, gymnases, maisons pour tous) pendant les vacances scolaires.
+�ducation et pr�vention
+: Campagnes fortes contre la drogue, les violences, le harc�lement et les risques sanitaires d�s le coll�ge.
+Am�lioration des conditions de travail
+: Plus de formation et de dignit� pour le personnel de la petite enfance.
+
+--- File: listes_aimer-montpellier_programme_education-petite-enfance_5.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/education-petite-enfance
 
 TITLE: Priorit� � l'�ducation et � la petite enfance � Aimer Montpellier
@@ -9569,6 +14097,72 @@ Nettoiement aux eaux grises
 Valorisation thermique des data centers
 : Utiliser la chaleur produite par des data centers de proximit� pour alimenter le r�seau de chauffage urbain.
 
+--- File: listes_aimer-montpellier_programme_plan-proprete-dechets_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/plan-proprete-dechets/
+
+TITLE: Un plan propret� et une gestion des d�chets efficace � Aimer Montpellier
+
+DESCRIPTION: Un plan propret� et une gestion des d�chets efficace
+
+CONTENT:
+
+Retour � la liste
+d�chets
+environnement
+changement climatique
+Un plan propret� et une gestion des d�chets efficace
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein veut faire de Montpellier un mod�le de propret� et d'�conomie circulaire en mettant fin � l'insalubrit� actuelle.
+La propret� pour tous, partout
+L'objectif est de restaurer la dignit� des quartiers par un entretien rigoureux et une gestion moderne des d�chets.
+Fr�quence des nettoyages adapt�e
+: Revue de la fr�quence de passage des services de nettoiement selon la vie r�elle de chaque quartier.
+Colonnes de tri modernes et habillage des bacs
+: Installation de nouveaux �quipements de tri esth�tiques et fonctionnels, avec verbalisation des incivilit�s.
+Incin�rateur vertueux pour les d�chets ultimes
+: Construction d'un incin�rateur moins co�teux et �cologiquement responsable pour remplacer l'usine Am�tyst d�faillante.
+R�gisseurs de quartier pour le tri
+: Cr�ation d'un corps d'agents d�di�s � l'�ducation et � la coordination du tri s�lectif local.
+Collecte massive des biod�chets
+: Compostage g�n�ralis� pour r�duire le volume de la poubelle grise.
+Nettoiement aux eaux grises
+: Utilisation d'eaux recycl�es pour l'arrosage et le lavage des rues afin de pr�server la ressource en eau.
+Valorisation thermique des data centers
+: Utiliser la chaleur produite par des data centers de proximit� pour alimenter le r�seau de chauffage urbain.
+
+--- File: listes_aimer-montpellier_programme_plan-proprete-dechets_5.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/plan-proprete-dechets
+
+TITLE: Un plan propret� et une gestion des d�chets efficace � Aimer Montpellier
+
+DESCRIPTION: Un plan propret� et une gestion des d�chets efficace
+
+CONTENT:
+
+Retour � la liste
+d�chets
+environnement
+changement climatique
+Un plan propret� et une gestion des d�chets efficace
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein veut faire de Montpellier un mod�le de propret� et d'�conomie circulaire en mettant fin � l'insalubrit� actuelle.
+La propret� pour tous, partout
+L'objectif est de restaurer la dignit� des quartiers par un entretien rigoureux et une gestion moderne des d�chets.
+Fr�quence des nettoyages adapt�e
+: Revue de la fr�quence de passage des services de nettoiement selon la vie r�elle de chaque quartier.
+Colonnes de tri modernes et habillage des bacs
+: Installation de nouveaux �quipements de tri esth�tiques et fonctionnels, avec verbalisation des incivilit�s.
+Incin�rateur vertueux pour les d�chets ultimes
+: Construction d'un incin�rateur moins co�teux et �cologiquement responsable pour remplacer l'usine Am�tyst d�faillante.
+R�gisseurs de quartier pour le tri
+: Cr�ation d'un corps d'agents d�di�s � l'�ducation et � la coordination du tri s�lectif local.
+Collecte massive des biod�chets
+: Compostage g�n�ralis� pour r�duire le volume de la poubelle grise.
+Nettoiement aux eaux grises
+: Utilisation d'eaux recycl�es pour l'arrosage et le lavage des rues afin de pr�server la ressource en eau.
+Valorisation thermique des data centers
+: Utiliser la chaleur produite par des data centers de proximit� pour alimenter le r�seau de chauffage urbain.
+
 --- File: listes_aimer-montpellier_programme_reforme-circulation-stationnement.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/reforme-circulation-stationnement/
 
@@ -9693,6 +14287,68 @@ R�forme des bus
 Gratuit� intelligente et sociale
 : Un syst�me de gratuit� des transports repens� pour �tre socialement juste et �quitable.
 
+--- File: listes_aimer-montpellier_programme_reforme-circulation-stationnement_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/reforme-circulation-stationnement/
+
+TITLE: R�forme de la circulation et retour au droit au stationnement � Aimer Montpellier
+
+DESCRIPTION: R�forme de la circulation et retour au droit au stationnement
+
+CONTENT:
+
+Retour � la liste
+transport et mobilit�s
+R�forme de la circulation et retour au droit au stationnement
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose de mettre fin � une vision dogmatique des transports en r�conciliant tous les modes de d�placement pour fluidifier la ville.
+Fluidifier Montpellier et restaurer l'acc�s pour tous
+L'objectif est de d�sengorger la ville tout en permettant aux soignants, commer�ants et habitants de circuler et se garer normalement.
+Anneau de circulation ext�rieur
+: Mise en place d'un contournement pour �viter le transit � travers le centre-ville.
+Tunnels et voies de d�gagement
+: Cr�ation d'un tunnel sous le rond-point du Grand M et de voies au niveau du Z�nith pour d�bloquer les entr�es de ville.
+R�ouverture des parkings supprim�s
+: R�ouverture des parkings March� aux Fleurs et Com�die (1er �tage) pour soutenir le commerce local.
+2 heures de gratuit�
+: Instauration de 2h de gratuit� syst�matique sur l'espace public et dans les parkings TAM.
+Acc�s prioritaire pour les secours et soignants
+: R�ouverture de rues ferm�es et acc�s facilit� pour les interventions d'urgence et les aides � domicile.
+R�forme des bus
+: Fin des bus vides, remplac�s par des minibus de proximit� plus fr�quents et plus adapt�s aux besoins r�els.
+Gratuit� intelligente et sociale
+: Un syst�me de gratuit� des transports repens� pour �tre socialement juste et �quitable.
+
+--- File: listes_aimer-montpellier_programme_reforme-circulation-stationnement_5.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/reforme-circulation-stationnement
+
+TITLE: R�forme de la circulation et retour au droit au stationnement � Aimer Montpellier
+
+DESCRIPTION: R�forme de la circulation et retour au droit au stationnement
+
+CONTENT:
+
+Retour � la liste
+transport et mobilit�s
+R�forme de la circulation et retour au droit au stationnement
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose de mettre fin � une vision dogmatique des transports en r�conciliant tous les modes de d�placement pour fluidifier la ville.
+Fluidifier Montpellier et restaurer l'acc�s pour tous
+L'objectif est de d�sengorger la ville tout en permettant aux soignants, commer�ants et habitants de circuler et se garer normalement.
+Anneau de circulation ext�rieur
+: Mise en place d'un contournement pour �viter le transit � travers le centre-ville.
+Tunnels et voies de d�gagement
+: Cr�ation d'un tunnel sous le rond-point du Grand M et de voies au niveau du Z�nith pour d�bloquer les entr�es de ville.
+R�ouverture des parkings supprim�s
+: R�ouverture des parkings March� aux Fleurs et Com�die (1er �tage) pour soutenir le commerce local.
+2 heures de gratuit�
+: Instauration de 2h de gratuit� syst�matique sur l'espace public et dans les parkings TAM.
+Acc�s prioritaire pour les secours et soignants
+: R�ouverture de rues ferm�es et acc�s facilit� pour les interventions d'urgence et les aides � domicile.
+R�forme des bus
+: Fin des bus vides, remplac�s par des minibus de proximit� plus fr�quents et plus adapt�s aux besoins r�els.
+Gratuit� intelligente et sociale
+: Un syst�me de gratuit� des transports repens� pour �tre socialement juste et �quitable.
+
 --- File: listes_aimer-montpellier_programme_renforcement-police-municipale.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/renforcement-police-municipale/
 
@@ -9781,6 +14437,64 @@ Fin de la souffrance au travail
 : Une police mieux form�e, respect�e et avec un management valorisant pour les agents.
 
 --- File: listes_aimer-montpellier_programme_renforcement-police-municipale_3.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/renforcement-police-municipale
+
+TITLE: Une police municipale proche et renforc�e � Aimer Montpellier
+
+DESCRIPTION: Une police municipale proche et renforc�e
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+Une police municipale proche et renforc�e
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose de transformer la police municipale pour en faire un v�ritable outil de proximit� et de s�curit� permanente dans tous les quartiers de Montpellier.
+Une pr�sence humaine et territoriale
+L'objectif est de mettre fin au sentiment d'abandon dans certains quartiers en r�installant la police au plus pr�s des habitants.
+Maillage des quartiers
+: Cr�ation de postes de police dans chaque quartier avec des �quipes d�di�es connaissant parfaitement leur secteur.
+Pr�sence 24h/24
+: Ouverture d'un poste central jour et nuit pour assurer une continuit� de service, notamment entre 4h30 et 8h00 du matin.
+Groupe de Soutien Op�rationnel (GSO)
+: Cr�ation d'une unit� d'�lite mieux �quip�e pour intervenir sur les situations tendues.
+Unit� contre le harc�lement
+: Mise en place d'une �quipe sp�cialis�e pour lutter contre le harc�lement de rue.
+Cadets de la police
+: Cr�ation d'un corps de cadets pour favoriser l'engagement des jeunes et renforcer le lien police-population.
+Fin de la souffrance au travail
+: Une police mieux form�e, respect�e et avec un management valorisant pour les agents.
+
+--- File: listes_aimer-montpellier_programme_renforcement-police-municipale_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/renforcement-police-municipale/
+
+TITLE: Une police municipale proche et renforc�e � Aimer Montpellier
+
+DESCRIPTION: Une police municipale proche et renforc�e
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+Une police municipale proche et renforc�e
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose de transformer la police municipale pour en faire un v�ritable outil de proximit� et de s�curit� permanente dans tous les quartiers de Montpellier.
+Une pr�sence humaine et territoriale
+L'objectif est de mettre fin au sentiment d'abandon dans certains quartiers en r�installant la police au plus pr�s des habitants.
+Maillage des quartiers
+: Cr�ation de postes de police dans chaque quartier avec des �quipes d�di�es connaissant parfaitement leur secteur.
+Pr�sence 24h/24
+: Ouverture d'un poste central jour et nuit pour assurer une continuit� de service, notamment entre 4h30 et 8h00 du matin.
+Groupe de Soutien Op�rationnel (GSO)
+: Cr�ation d'une unit� d'�lite mieux �quip�e pour intervenir sur les situations tendues.
+Unit� contre le harc�lement
+: Mise en place d'une �quipe sp�cialis�e pour lutter contre le harc�lement de rue.
+Cadets de la police
+: Cr�ation d'un corps de cadets pour favoriser l'engagement des jeunes et renforcer le lien police-population.
+Fin de la souffrance au travail
+: Une police mieux form�e, respect�e et avec un management valorisant pour les agents.
+
+--- File: listes_aimer-montpellier_programme_renforcement-police-municipale_5.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/renforcement-police-municipale
 
 TITLE: Une police municipale proche et renforc�e � Aimer Montpellier
@@ -9969,6 +14683,86 @@ Soutien au maintien � domicile
 Places de stationnement � seniors �
 : Cr�ation de places de parking r�serv�es pr�s des services essentiels.
 
+--- File: listes_aimer-montpellier_programme_sante-handicap-aines_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/sante-handicap-aines/
+
+TITLE: Sant�, Handicap et Ain�s : Pour une inclusion r�elle � Aimer Montpellier
+
+DESCRIPTION: Sant�, Handicap et Ain�s : Pour une inclusion r�elle
+
+CONTENT:
+
+Retour � la liste
+sant�
+solidarit�
+Sant�, Handicap et Ain�s : Pour une inclusion r�elle
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose de placer l'humain et la vuln�rabilit� au centre de l'action municipale pour garantir une sant� accessible et une autonomie durable � tous les citoyens.
+Une ville solidaire et bienveillante
+L'objectif est de supprimer les obstacles physiques et administratifs pour les personnes en situation de handicap et les a�n�s.
+Maisons de sant� pluridisciplinaires
+: Implantation de structures abritant des professionnels de sant� dans tous les secteurs.
+Acc�s facilit� � l'h�pital
+: Forfait de 2h de gratuit� par jour pour les parkings des h�pitaux pour les familles des patients.
+Service technique de l'accessibilit� universelle
+: Une unit� municipale d�di�e pour veiller � ce que chaque am�nagement public soit 100% accessible.
+Maison du handicap et des a�n�s
+: Un lieu partag� pour informer les citoyens sur leurs droits et les accompagner dans leurs d�marches.
+Ligne t�l�phonique d�di�e
+: Un service de conseils administratifs et de pr�vention pour les personnes vuln�rables.
+Maison de l'�ge d'or
+: Cr�ation d'un lieu de rencontre anim� dans l'espace public pour lutter contre l'isolement des seniors.
+R�serve de s�niors actifs
+: Cr�ation d'un corps de volontaires seniors pour intervenir dans les Maisons pour tous et cr�er du lien interg�n�rationnel.
+Navettes gratuites en centre-ville
+: Transport sp�cifique pour les seniors et les PMR.
+R�f�rent handicap en mairie
+: Un interlocuteur unique au sein du personnel municipal pour toutes les questions d'inclusion.
+Soutien au maintien � domicile
+: Accompagnement renforc� pour les personnes �g�es et sensibilisation des syndics pour l'installation d'ascenseurs adapt�s.
+Places de stationnement � seniors �
+: Cr�ation de places de parking r�serv�es pr�s des services essentiels.
+
+--- File: listes_aimer-montpellier_programme_sante-handicap-aines_5.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/sante-handicap-aines
+
+TITLE: Sant�, Handicap et Ain�s : Pour une inclusion r�elle � Aimer Montpellier
+
+DESCRIPTION: Sant�, Handicap et Ain�s : Pour une inclusion r�elle
+
+CONTENT:
+
+Retour � la liste
+sant�
+solidarit�
+Sant�, Handicap et Ain�s : Pour une inclusion r�elle
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose de placer l'humain et la vuln�rabilit� au centre de l'action municipale pour garantir une sant� accessible et une autonomie durable � tous les citoyens.
+Une ville solidaire et bienveillante
+L'objectif est de supprimer les obstacles physiques et administratifs pour les personnes en situation de handicap et les a�n�s.
+Maisons de sant� pluridisciplinaires
+: Implantation de structures abritant des professionnels de sant� dans tous les secteurs.
+Acc�s facilit� � l'h�pital
+: Forfait de 2h de gratuit� par jour pour les parkings des h�pitaux pour les familles des patients.
+Service technique de l'accessibilit� universelle
+: Une unit� municipale d�di�e pour veiller � ce que chaque am�nagement public soit 100% accessible.
+Maison du handicap et des a�n�s
+: Un lieu partag� pour informer les citoyens sur leurs droits et les accompagner dans leurs d�marches.
+Ligne t�l�phonique d�di�e
+: Un service de conseils administratifs et de pr�vention pour les personnes vuln�rables.
+Maison de l'�ge d'or
+: Cr�ation d'un lieu de rencontre anim� dans l'espace public pour lutter contre l'isolement des seniors.
+R�serve de s�niors actifs
+: Cr�ation d'un corps de volontaires seniors pour intervenir dans les Maisons pour tous et cr�er du lien interg�n�rationnel.
+Navettes gratuites en centre-ville
+: Transport sp�cifique pour les seniors et les PMR.
+R�f�rent handicap en mairie
+: Un interlocuteur unique au sein du personnel municipal pour toutes les questions d'inclusion.
+Soutien au maintien � domicile
+: Accompagnement renforc� pour les personnes �g�es et sensibilisation des syndics pour l'installation d'ascenseurs adapt�s.
+Places de stationnement � seniors �
+: Cr�ation de places de parking r�serv�es pr�s des services essentiels.
+
 --- File: listes_aimer-montpellier_programme_securite-technologies-modernes.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/securite-technologies-modernes/
 
@@ -10051,6 +14845,60 @@ Professionnalisation
 : Formation continue des agents derri�re les �crans pour une r�activit� maximale.
 
 --- File: listes_aimer-montpellier_programme_securite-technologies-modernes_3.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/securite-technologies-modernes
+
+TITLE: Technologies modernes au service de la s�curit� � Aimer Montpellier
+
+DESCRIPTION: Technologies modernes au service de la s�curit�
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+Technologies modernes au service de la s�curit�
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose de moderniser radicalement les moyens techniques de la ville pour assurer une surveillance efficace et une assistance imm�diate aux citoyens.
+Un Centre de Supervision Urbain (CSU) � la hauteur
+L'objectif est de passer d'un syst�me d�faillant � un outil de pointe op�rationnel en permanence.
+CSU 24h/24 et 7j/7
+: Mise en ?uvre d'un v�ritable centre dot� du personnel form� et des �quipements n�cessaires.
+Cam�ras intelligentes 360�
+: Installation de cam�ras de nouvelle g�n�ration avec lecture automatique des plaques d'immatriculation.
+Bornes d'appel d'urgence
+: Installation de bornes dans les b�timents publics, les commerces volontaires, les secteurs � forte affluence, les �coles et les lieux de culte pour une assistance imm�diate.
+Unit�s cynophiles et v�hicules neufs
+: Modernisation compl�te de l'�quipement mobile pour une intervention rapide et efficace.
+Professionnalisation
+: Formation continue des agents derri�re les �crans pour une r�activit� maximale.
+
+--- File: listes_aimer-montpellier_programme_securite-technologies-modernes_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/securite-technologies-modernes/
+
+TITLE: Technologies modernes au service de la s�curit� � Aimer Montpellier
+
+DESCRIPTION: Technologies modernes au service de la s�curit�
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+Technologies modernes au service de la s�curit�
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose de moderniser radicalement les moyens techniques de la ville pour assurer une surveillance efficace et une assistance imm�diate aux citoyens.
+Un Centre de Supervision Urbain (CSU) � la hauteur
+L'objectif est de passer d'un syst�me d�faillant � un outil de pointe op�rationnel en permanence.
+CSU 24h/24 et 7j/7
+: Mise en ?uvre d'un v�ritable centre dot� du personnel form� et des �quipements n�cessaires.
+Cam�ras intelligentes 360�
+: Installation de cam�ras de nouvelle g�n�ration avec lecture automatique des plaques d'immatriculation.
+Bornes d'appel d'urgence
+: Installation de bornes dans les b�timents publics, les commerces volontaires, les secteurs � forte affluence, les �coles et les lieux de culte pour une assistance imm�diate.
+Unit�s cynophiles et v�hicules neufs
+: Modernisation compl�te de l'�quipement mobile pour une intervention rapide et efficace.
+Professionnalisation
+: Formation continue des agents derri�re les �crans pour une r�activit� maximale.
+
+--- File: listes_aimer-montpellier_programme_securite-technologies-modernes_5.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/securite-technologies-modernes
 
 TITLE: Technologies modernes au service de la s�curit� � Aimer Montpellier
@@ -10217,6 +15065,76 @@ Cit� du Sport
 �quipements sportifs adapt�s
 : Dialogue sinc�re avec les dirigeants de clubs pour accompagner leurs projets d'infrastructures.
 
+--- File: listes_aimer-montpellier_programme_sport-pour-tous_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/sport-pour-tous/
+
+TITLE: Le Sport pour tous, partout � Aimer Montpellier
+
+DESCRIPTION: Le Sport pour tous, partout
+
+CONTENT:
+
+Retour � la liste
+sport
+Le Sport pour tous, partout
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein voit le sport comme un facteur de coh�sion sociale, d'effort et de respect. Elle souhaite en faire un moteur du rayonnement de Montpellier.
+Montpellier, un terrain de jeu pour tous
+L'objectif est de soutenir le sport amateur comme professionnel tout en facilitant la pratique quotidienne pour chaque habitant.
+Acc�s au sport d�s l'�cole
+: Pratique r�guli�re et �ducation sportive pour tous les enfants sur les temps extra-scolaires.
+City Parcs dans chaque quartier
+: Espaces de sport anim�s en plein air pour les jeunes, les PMR et les a�n�s, avec des parcours de sant�.
+HandiPass Sport
+: Gratuit� pour l'accompagnant d'une personne handicap�e dans tous les �quipements sportifs municipaux.
+Pass Montpellier Sport
+: Tournois ouverts � tous et comp�titions entre jeunes talents et professionnels pendant les vacances.
+Street Ball, Futsal et sports populaires
+: �v�nements sportifs anim�s directement dans les rues de la ville.
+D�tection des talents d�s l'�cole
+: Travail de proximit� pour rep�rer les futurs champions et les accompagner.
+Valorisation des sportifs locaux
+: Campagnes de promotion, podcasts et reportages pour mettre en avant les champions montpelli�rains.
+Cit� du Sport
+: Cr�ation d'un lieu unique de rencontre entre clubs, �coles de sport et acteurs locaux pour renforcer le r�seau sportif.
+�quipements sportifs adapt�s
+: Dialogue sinc�re avec les dirigeants de clubs pour accompagner leurs projets d'infrastructures.
+
+--- File: listes_aimer-montpellier_programme_sport-pour-tous_5.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/sport-pour-tous
+
+TITLE: Le Sport pour tous, partout � Aimer Montpellier
+
+DESCRIPTION: Le Sport pour tous, partout
+
+CONTENT:
+
+Retour � la liste
+sport
+Le Sport pour tous, partout
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein voit le sport comme un facteur de coh�sion sociale, d'effort et de respect. Elle souhaite en faire un moteur du rayonnement de Montpellier.
+Montpellier, un terrain de jeu pour tous
+L'objectif est de soutenir le sport amateur comme professionnel tout en facilitant la pratique quotidienne pour chaque habitant.
+Acc�s au sport d�s l'�cole
+: Pratique r�guli�re et �ducation sportive pour tous les enfants sur les temps extra-scolaires.
+City Parcs dans chaque quartier
+: Espaces de sport anim�s en plein air pour les jeunes, les PMR et les a�n�s, avec des parcours de sant�.
+HandiPass Sport
+: Gratuit� pour l'accompagnant d'une personne handicap�e dans tous les �quipements sportifs municipaux.
+Pass Montpellier Sport
+: Tournois ouverts � tous et comp�titions entre jeunes talents et professionnels pendant les vacances.
+Street Ball, Futsal et sports populaires
+: �v�nements sportifs anim�s directement dans les rues de la ville.
+D�tection des talents d�s l'�cole
+: Travail de proximit� pour rep�rer les futurs champions et les accompagner.
+Valorisation des sportifs locaux
+: Campagnes de promotion, podcasts et reportages pour mettre en avant les champions montpelli�rains.
+Cit� du Sport
+: Cr�ation d'un lieu unique de rencontre entre clubs, �coles de sport et acteurs locaux pour renforcer le r�seau sportif.
+�quipements sportifs adapt�s
+: Dialogue sinc�re avec les dirigeants de clubs pour accompagner leurs projets d'infrastructures.
+
 --- File: listes_aimer-montpellier_programme_tolerance-zero-delinquance.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/tolerance-zero-delinquance/
 
@@ -10305,6 +15223,64 @@ Renforcement des pr�rogatives
 : Action pour permettre aux policiers municipaux de r�aliser des v�rifications d'identit� et de contr�ler les consommateurs de drogue sous l'autorit� du procureur.
 
 --- File: listes_aimer-montpellier_programme_tolerance-zero-delinquance_3.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/tolerance-zero-delinquance
+
+TITLE: Une tol�rance z�ro pour les d�linquants � Aimer Montpellier
+
+DESCRIPTION: Une tol�rance z�ro pour les d�linquants
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+Une tol�rance z�ro pour les d�linquants
+Une mesure propos�e par Aimer Montpellier
+Inspir�e par la th�orie de la � vitre bris�e �, Isabelle Perrein propose une politique de fermet� absolue pour r�tablir l'ordre dans tous les quartiers de Montpellier.
+Restaurer l'autorit� et la s�curit�
+L'objectif est que � la peur change de camp � gr�ce � des mesures fortes et syst�matiques.
+Exclusion des logements sociaux
+: Les fauteurs de troubles seront exclus des logements sociaux municipaux.
+Couvre-feu pour les mineurs
+: Mise en place de couvre-feux pour les mineurs non accompagn�s dans les zones sensibles.
+Suppression des aides municipales
+: Arr�t des aides municipales pour les r�cidivistes.
+Partie civile syst�matique
+: La Ville se constituera syst�matiquement partie civile contre les trafiquants et les auteurs de violences graves.
+Contr�les renforc�s des �piceries de nuit
+: Strict respect de la loi et contr�les fr�quents pour limiter les nuisances.
+Renforcement des pr�rogatives
+: Action pour permettre aux policiers municipaux de r�aliser des v�rifications d'identit� et de contr�ler les consommateurs de drogue sous l'autorit� du procureur.
+
+--- File: listes_aimer-montpellier_programme_tolerance-zero-delinquance_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/tolerance-zero-delinquance/
+
+TITLE: Une tol�rance z�ro pour les d�linquants � Aimer Montpellier
+
+DESCRIPTION: Une tol�rance z�ro pour les d�linquants
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+Une tol�rance z�ro pour les d�linquants
+Une mesure propos�e par Aimer Montpellier
+Inspir�e par la th�orie de la � vitre bris�e �, Isabelle Perrein propose une politique de fermet� absolue pour r�tablir l'ordre dans tous les quartiers de Montpellier.
+Restaurer l'autorit� et la s�curit�
+L'objectif est que � la peur change de camp � gr�ce � des mesures fortes et syst�matiques.
+Exclusion des logements sociaux
+: Les fauteurs de troubles seront exclus des logements sociaux municipaux.
+Couvre-feu pour les mineurs
+: Mise en place de couvre-feux pour les mineurs non accompagn�s dans les zones sensibles.
+Suppression des aides municipales
+: Arr�t des aides municipales pour les r�cidivistes.
+Partie civile syst�matique
+: La Ville se constituera syst�matiquement partie civile contre les trafiquants et les auteurs de violences graves.
+Contr�les renforc�s des �piceries de nuit
+: Strict respect de la loi et contr�les fr�quents pour limiter les nuisances.
+Renforcement des pr�rogatives
+: Action pour permettre aux policiers municipaux de r�aliser des v�rifications d'identit� et de contr�ler les consommateurs de drogue sous l'autorit� du procureur.
+
+--- File: listes_aimer-montpellier_programme_tolerance-zero-delinquance_5.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/tolerance-zero-delinquance
 
 TITLE: Une tol�rance z�ro pour les d�linquants � Aimer Montpellier
@@ -10436,6 +15412,74 @@ Services de proximit�
 : R�servation de locaux en rez-de-chauss�e pour des cr�ches, �piceries solidaires et maisons de sant�.
 
 --- File: listes_aimer-montpellier_programme_urbanisme-bon-sens-logement_3.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/urbanisme-bon-sens-logement
+
+TITLE: Un urbanisme de bon sens et des logements accessibles � Aimer Montpellier
+
+DESCRIPTION: Un urbanisme de bon sens et des logements accessibles
+
+CONTENT:
+
+Retour � la liste
+environnement
+logement
+Un urbanisme de bon sens et des logements accessibles
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose de reconstruire la ville sur elle-m�me pour cr�er des quartiers de paix verdoyants tout en garantissant des prix abordables.
+Un urbanisme pour et avec les Montpelli�rains
+L'objectif est d'arr�ter l'�talement urbain et la b�tonisation � outrance au profit d'une densification r�fl�chie et humaine.
+Fini l'�talement urbain
+: Place � une densification intelligente avec des immeubles bien pens�s et des �lots de fra�cheur entre les b�timents.
+R�nover plut�t que raser
+: Stop � la d�molition massive pour prot�ger l'environnement et r�habiliter le patrimoine pour des logements modernes et durables.
+Logements sociaux r�habilit�s et s�curis�s
+: R�novation thermique, installation de gardiens, isolation renforc�e et panneaux photovolta�ques pour r�duire les factures des locataires.
+Acc�s � la propri�t�
+: Maintenir des prix abordables pour permettre aux Montpelli�rains de devenir propri�taires.
+Quartiers vivants et solidaires
+: Cr�ation d'un � c?ur battant � dans chaque quartier avec places anim�es, fontaines, jeux pour enfants et espaces de coworking ext�rieurs.
+Pr�servation du Parc Montcalm
+: Le parc sera class� et am�nag� pour une appropriation citoyenne totale.
+R�novation du Peyrou
+: Un entretien rigoureux pour pr�server l'un des joyaux de la ville.
+Services de proximit�
+: R�servation de locaux en rez-de-chauss�e pour des cr�ches, �piceries solidaires et maisons de sant�.
+
+--- File: listes_aimer-montpellier_programme_urbanisme-bon-sens-logement_4.txt ---
+URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/urbanisme-bon-sens-logement/
+
+TITLE: Un urbanisme de bon sens et des logements accessibles � Aimer Montpellier
+
+DESCRIPTION: Un urbanisme de bon sens et des logements accessibles
+
+CONTENT:
+
+Retour � la liste
+environnement
+logement
+Un urbanisme de bon sens et des logements accessibles
+Une mesure propos�e par Aimer Montpellier
+Isabelle Perrein propose de reconstruire la ville sur elle-m�me pour cr�er des quartiers de paix verdoyants tout en garantissant des prix abordables.
+Un urbanisme pour et avec les Montpelli�rains
+L'objectif est d'arr�ter l'�talement urbain et la b�tonisation � outrance au profit d'une densification r�fl�chie et humaine.
+Fini l'�talement urbain
+: Place � une densification intelligente avec des immeubles bien pens�s et des �lots de fra�cheur entre les b�timents.
+R�nover plut�t que raser
+: Stop � la d�molition massive pour prot�ger l'environnement et r�habiliter le patrimoine pour des logements modernes et durables.
+Logements sociaux r�habilit�s et s�curis�s
+: R�novation thermique, installation de gardiens, isolation renforc�e et panneaux photovolta�ques pour r�duire les factures des locataires.
+Acc�s � la propri�t�
+: Maintenir des prix abordables pour permettre aux Montpelli�rains de devenir propri�taires.
+Quartiers vivants et solidaires
+: Cr�ation d'un � c?ur battant � dans chaque quartier avec places anim�es, fontaines, jeux pour enfants et espaces de coworking ext�rieurs.
+Pr�servation du Parc Montcalm
+: Le parc sera class� et am�nag� pour une appropriation citoyenne totale.
+R�novation du Peyrou
+: Un entretien rigoureux pour pr�server l'un des joyaux de la ville.
+Services de proximit�
+: R�servation de locaux en rez-de-chauss�e pour des cr�ches, �piceries solidaires et maisons de sant�.
+
+--- File: listes_aimer-montpellier_programme_urbanisme-bon-sens-logement_5.txt ---
 URL: https://montpellier-municipales.fr/listes/aimer-montpellier/programme/urbanisme-bon-sens-logement
 
 TITLE: Un urbanisme de bon sens et des logements accessibles � Aimer Montpellier
@@ -11083,6 +16127,314 @@ changement climatique
 enviro
 [... truncated ...]
 
+--- File: listes_philippe-saurel_4.txt ---
+URL: https://montpellier-municipales.fr/listes/philippe-saurel
+
+TITLE: Philippe Saurel � Philippe Saurel
+
+DESCRIPTION: Pr�sentation de la liste Philippe Saurel et de sa t�te de liste Philippe Saurel qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Philippe Saurel
+T�te de liste�: Philippe Saurel
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Philippe Saurel
+est une personnalit� politique montpelli�raine bien connue :
+Il a �t�
+maire de Montpellier
+de
+2014 � 2020
+et
+pr�sident de Montpellier M�diterran�e M�tropole
+durant la m�me p�riode.
+Membre du Parti socialiste jusqu?en 2014, il a ensuite poursuivi sa carri�re politique comme
+divers gauche / sans �tiquette
+et s?est affirm� comme une figure dissidente vis-�-vis des appareils traditionnels.
+Durant son mandat, il a mis en avant une politique municipale m�lant s�curit� locale, d�veloppement urbain et mise en place de dispositifs parfois per�us comme novateurs et autres comme techniques de communication politique (illustr� par certains engagements citoyens). Le
+mouvement citoyen #JeSuisUnDesDeux
+a d?ailleurs marqu� cette p�riode en lien avec les enjeux de mobilit� douce (v�lo et am�nagements cyclables) dans la ville.
+Repositionnement dans la campagne des municipales
+En
+juin 2025
+, Philippe Saurel a annonc� qu?il serait
+le chef de file local du mouvement
+Utiles
+(Ultra-marins, Territoires, Ind�pendants, Libert�s, �cologie et Solidarit�), un mouvement politique transpartisan issu du groupe parlementaire LIOT. Il a depuis
+officiellement d�clar� sa candidature
+� la mairie de Montpellier pour les municipales de
+2026
+.
+Dans ses d�clarations, Saurel a soulign� qu?il entend constituer une
+�quipe nouvelle et d�sint�ress�e
+, ancr�e localement. Il met l?accent sur une d�marche
+transpartisane
+, ouverte � toutes les sensibilit�s sauf les extr�mes, avec l?objectif de rassembler des citoyens autour de projets concrets pour la ville.
+Critique de la situation actuelle
+En
+juillet 2025
+, Philippe Saurel a adress� une lettre au pr�fet pour
+alerter sur la situation des finances de Montpellier M�diterran�e M�tropole
+, jugeant la situation � calamiteuse � et critiquant la gestion actuelle de la dette et des d�penses, qui, selon lui, compromettent l?�quilibre financier de la collectivit�.
+Cette prise de position s?inscrit dans une strat�gie de
+critiques cibl�es envers l?�quipe municipale actuelle
+et de mise en avant de sa propre lisibilit� politique � l?approche des municipales.
+Positionnement politique
+Philippe Saurel s?est longtemps d�fini comme un �lu sans �tiquette partisane stricte, se situant sur une ligne transpartisane. Il a publiquement
+apport� son soutien � Emmanuel Macron d�s la campagne pr�sidentielle de 2017
+et a, � cette occasion, particip� � une partie de l?�quipe de campagne de Macron tout en restant ind�pendant de La R�publique en Marche.
+Bien qu?il n?ait pas adh�r� au parti pr�sidentiel, plusieurs soutiens locaux issus de la majorit� pr�sidentielle ont pr�f�r� le soutenir plut�t que le candidat investi par LREM lors des municipales de 2020 � Montpellier, ce qui t�moigne d?une
+proximit� politique avec le centre et la majorit� pr�sidentielle
+sur certains axes, sans pour autant constituer une adh�sion formelle � un parti national.
+Bilan du mandat 2014-2020
+�lection et opposition structur�e
+Lors des municipales
+de 2020
+, Philippe Saurel n?a pas r�ussi � se maintenir comme maire :
+Sa liste � sans �tiquette / divers gauche � a recueilli
+19,11 % des voix au premier tour
+puis
+34,65 % au second
+, ce qui lui a permis de rester
+premi�re force d?opposition au conseil municipal
+avec
+11 si�ges
+, derri�re la liste socialiste de Micha�l Delafosse qui a remport� la mairie.
+Actions du mandat
+Plusieurs points ont marqu� son passage � la t�te de Montpellier :
+S�curit� municipale renforc�e
+: recrutement de policiers municipaux et d�veloppement de la vid�osurveillance.
+Mobilit�s et v�lo
+: des initiatives citoyennes comme le mouvement
+#JeSuisUnDesDeux
+ont illustr� l?importance des d�bats autour des am�nagements cyclables et de la politique de mobilit� ? souvent au c?ur des controverses locales.
+Gouvernance de la m�tropole
+: en tant que pr�sident de la m�tropole, il a pilot� des politiques d?investissement et de coordination intercommunale, qui ont �t� � la fois salu�es et critiqu�es selon les sensibilit�s locales.
+#JeSuisUnDesDeux ? un mouvement symbolique du mandat
+Le mouvement
+#JeSuisUnDesDeux
+est une initiative citoyenne n�e � Montpellier autour des
+enjeux de mobilit� cycliste
+, notamment de la part d?associations et de collectifs revendiquant une meilleure int�gration des am�nagements pour v�los et mobilit�s douces dans la ville.
+Ce mouvement a souvent servi de
+barom�tre m�diatique des tensions locales
+entre diff�rentes visions de l?espace public, parfois approuv� ou instrumentalis� par des adjoints ou responsables municipaux au cours du mandat Saurel. Il illustre une dynamique
+civique et militante autour des mobilit�s
+, que Saurel a d� g�rer en tant que maire ? ce qui fait partie de l?�valuation de son bilan et du d�bat public local.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+alimentation
+changement climatique
+culture
+d�chets
+enfance et �ducation
+environnement
+logement
+sant�
+solidarit�
+sport
+s�curit�
+transport et mobilit�s
+�mancipation et justice sociale
+changement climatique
+environnement
+Urbanisme : ANRU � 1 milliard et adaptation climatique
+Remise � niveau � l'ANRU port�e � 1 milliard d'euros d'investissement, adaptation au r�chauffement climatique et am�nagements concert�s pour apaiser la ville.
+solidarit�
+logement
+Solidarit� & Logement : agence du logement et sans-abris
+Cr�ation de l'Agence du logement, accompagnement des sans-abris et d�veloppement de logements sociaux accessibles.
+d�chets
+Propret� & D�chets : non � l'incin�rateur, tri renforc�
+Non � l'incin�rateur CSR. Tri renforc�, recycleries et ramassage accru dans les zones denses.
+alimentation
+Alimentation : r�gie publique agricole et bio local
+R�gie publique agricole pour fournir les produits bio locaux, approvisionner les cantines, CHU et CROUS et distribuer des paniers bio aux femmes enceintes.
+changement climatique
+�nergie : r�gie publique et production renouvelable locale
+R�gie publique de l'�nergie, production renouvelable locale, r�seaux de chaleur et tarification sociale de l'�lectricit�.
+�mancipation et justice sociale
+�conomie & Emploi : accompagner entreprises et commerces
+Accompagnement des entreprises, guichet unique pour TPE/PME (d�marches, financements, locaux), implantation d'industries bas carbone avec l'�tat et d�veloppement de l'apprentissage.
+Accompagnement des commer�ants, artisans, professions lib�rales, halles et march�s.
+sant�
+Sant� : r�nover le CHU et am�liorer l'accueil
+R�nover le CHU, r�organiser le service des urgences de l'h�pital et am�liorer son accessibilit�, am�liorer l'accueil des familles.
+Am�liorer la qualit� de vie des personnes en situation de handicap.
+transport et mobilit�s
+Mobilit�s : un plan de circulation par quartier
+Nouveau plan de circulation vot� par quartier, traces et fr�quences adapt�s pour r�duire les bouchons, am�liorer les d�placements et maintenir la gratuit� des transports.
+Assurer le partage de l'espace public, notamment pour les pi�tons.
+enfance et �ducation
+�ducation : soutien scolaire et aide � la parentalit�
+Soutien scolaire dans tous les quartiers, aide � la parentalit� (psychologues, �ducateurs, p�diatres) et activit�s p�riscolaires sportives et culturelles.
+s�curit�
+S�curit� : effectifs renforc�s et coop�ration renforc�e
+Effectifs renforc�s et mieux form�s, brigades municipales sp�cialis�es (narcotrafic, violences faites aux femmes, incivilit�s), meilleure coop�ration police municipale, nationale et s�curit� priv�e, brigade VTT renforc�e, dispositifs anti-attentats et crise sanitaire, vid�oprotection, veille H24.
+Un �clairage public performant pour r�duire chutes et accidents.
+sport
+culture
+Sport & Culture : �quipements r�nov�s et acc�s �largi
+�quipements r�
+[... truncated ...]
+
+--- File: listes_philippe-saurel_5.txt ---
+URL: https://montpellier-municipales.fr/listes/philippe-saurel/
+
+TITLE: Philippe Saurel � Philippe Saurel
+
+DESCRIPTION: Pr�sentation de la liste Philippe Saurel et de sa t�te de liste Philippe Saurel qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Philippe Saurel
+T�te de liste�: Philippe Saurel
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Philippe Saurel
+est une personnalit� politique montpelli�raine bien connue :
+Il a �t�
+maire de Montpellier
+de
+2014 � 2020
+et
+pr�sident de Montpellier M�diterran�e M�tropole
+durant la m�me p�riode.
+Membre du Parti socialiste jusqu?en 2014, il a ensuite poursuivi sa carri�re politique comme
+divers gauche / sans �tiquette
+et s?est affirm� comme une figure dissidente vis-�-vis des appareils traditionnels.
+Durant son mandat, il a mis en avant une politique municipale m�lant s�curit� locale, d�veloppement urbain et mise en place de dispositifs parfois per�us comme novateurs et autres comme techniques de communication politique (illustr� par certains engagements citoyens). Le
+mouvement citoyen #JeSuisUnDesDeux
+a d?ailleurs marqu� cette p�riode en lien avec les enjeux de mobilit� douce (v�lo et am�nagements cyclables) dans la ville.
+Repositionnement dans la campagne des municipales
+En
+juin 2025
+, Philippe Saurel a annonc� qu?il serait
+le chef de file local du mouvement
+Utiles
+(Ultra-marins, Territoires, Ind�pendants, Libert�s, �cologie et Solidarit�), un mouvement politique transpartisan issu du groupe parlementaire LIOT. Il a depuis
+officiellement d�clar� sa candidature
+� la mairie de Montpellier pour les municipales de
+2026
+.
+Dans ses d�clarations, Saurel a soulign� qu?il entend constituer une
+�quipe nouvelle et d�sint�ress�e
+, ancr�e localement. Il met l?accent sur une d�marche
+transpartisane
+, ouverte � toutes les sensibilit�s sauf les extr�mes, avec l?objectif de rassembler des citoyens autour de projets concrets pour la ville.
+Critique de la situation actuelle
+En
+juillet 2025
+, Philippe Saurel a adress� une lettre au pr�fet pour
+alerter sur la situation des finances de Montpellier M�diterran�e M�tropole
+, jugeant la situation � calamiteuse � et critiquant la gestion actuelle de la dette et des d�penses, qui, selon lui, compromettent l?�quilibre financier de la collectivit�.
+Cette prise de position s?inscrit dans une strat�gie de
+critiques cibl�es envers l?�quipe municipale actuelle
+et de mise en avant de sa propre lisibilit� politique � l?approche des municipales.
+Positionnement politique
+Philippe Saurel s?est longtemps d�fini comme un �lu sans �tiquette partisane stricte, se situant sur une ligne transpartisane. Il a publiquement
+apport� son soutien � Emmanuel Macron d�s la campagne pr�sidentielle de 2017
+et a, � cette occasion, particip� � une partie de l?�quipe de campagne de Macron tout en restant ind�pendant de La R�publique en Marche.
+Bien qu?il n?ait pas adh�r� au parti pr�sidentiel, plusieurs soutiens locaux issus de la majorit� pr�sidentielle ont pr�f�r� le soutenir plut�t que le candidat investi par LREM lors des municipales de 2020 � Montpellier, ce qui t�moigne d?une
+proximit� politique avec le centre et la majorit� pr�sidentielle
+sur certains axes, sans pour autant constituer une adh�sion formelle � un parti national.
+Bilan du mandat 2014-2020
+�lection et opposition structur�e
+Lors des municipales
+de 2020
+, Philippe Saurel n?a pas r�ussi � se maintenir comme maire :
+Sa liste � sans �tiquette / divers gauche � a recueilli
+19,11 % des voix au premier tour
+puis
+34,65 % au second
+, ce qui lui a permis de rester
+premi�re force d?opposition au conseil municipal
+avec
+11 si�ges
+, derri�re la liste socialiste de Micha�l Delafosse qui a remport� la mairie.
+Actions du mandat
+Plusieurs points ont marqu� son passage � la t�te de Montpellier :
+S�curit� municipale renforc�e
+: recrutement de policiers municipaux et d�veloppement de la vid�osurveillance.
+Mobilit�s et v�lo
+: des initiatives citoyennes comme le mouvement
+#JeSuisUnDesDeux
+ont illustr� l?importance des d�bats autour des am�nagements cyclables et de la politique de mobilit� ? souvent au c?ur des controverses locales.
+Gouvernance de la m�tropole
+: en tant que pr�sident de la m�tropole, il a pilot� des politiques d?investissement et de coordination intercommunale, qui ont �t� � la fois salu�es et critiqu�es selon les sensibilit�s locales.
+#JeSuisUnDesDeux ? un mouvement symbolique du mandat
+Le mouvement
+#JeSuisUnDesDeux
+est une initiative citoyenne n�e � Montpellier autour des
+enjeux de mobilit� cycliste
+, notamment de la part d?associations et de collectifs revendiquant une meilleure int�gration des am�nagements pour v�los et mobilit�s douces dans la ville.
+Ce mouvement a souvent servi de
+barom�tre m�diatique des tensions locales
+entre diff�rentes visions de l?espace public, parfois approuv� ou instrumentalis� par des adjoints ou responsables municipaux au cours du mandat Saurel. Il illustre une dynamique
+civique et militante autour des mobilit�s
+, que Saurel a d� g�rer en tant que maire ? ce qui fait partie de l?�valuation de son bilan et du d�bat public local.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+alimentation
+changement climatique
+culture
+d�chets
+enfance et �ducation
+environnement
+logement
+sant�
+solidarit�
+sport
+s�curit�
+transport et mobilit�s
+�mancipation et justice sociale
+changement climatique
+environnement
+Urbanisme : ANRU � 1 milliard et adaptation climatique
+Remise � niveau � l'ANRU port�e � 1 milliard d'euros d'investissement, adaptation au r�chauffement climatique et am�nagements concert�s pour apaiser la ville.
+solidarit�
+logement
+Solidarit� & Logement : agence du logement et sans-abris
+Cr�ation de l'Agence du logement, accompagnement des sans-abris et d�veloppement de logements sociaux accessibles.
+d�chets
+Propret� & D�chets : non � l'incin�rateur, tri renforc�
+Non � l'incin�rateur CSR. Tri renforc�, recycleries et ramassage accru dans les zones denses.
+alimentation
+Alimentation : r�gie publique agricole et bio local
+R�gie publique agricole pour fournir les produits bio locaux, approvisionner les cantines, CHU et CROUS et distribuer des paniers bio aux femmes enceintes.
+changement climatique
+�nergie : r�gie publique et production renouvelable locale
+R�gie publique de l'�nergie, production renouvelable locale, r�seaux de chaleur et tarification sociale de l'�lectricit�.
+�mancipation et justice sociale
+�conomie & Emploi : accompagner entreprises et commerces
+Accompagnement des entreprises, guichet unique pour TPE/PME (d�marches, financements, locaux), implantation d'industries bas carbone avec l'�tat et d�veloppement de l'apprentissage.
+Accompagnement des commer�ants, artisans, professions lib�rales, halles et march�s.
+sant�
+Sant� : r�nover le CHU et am�liorer l'accueil
+R�nover le CHU, r�organiser le service des urgences de l'h�pital et am�liorer son accessibilit�, am�liorer l'accueil des familles.
+Am�liorer la qualit� de vie des personnes en situation de handicap.
+transport et mobilit�s
+Mobilit�s : un plan de circulation par quartier
+Nouveau plan de circulation vot� par quartier, traces et fr�quences adapt�s pour r�duire les bouchons, am�liorer les d�placements et maintenir la gratuit� des transports.
+Assurer le partage de l'espace public, notamment pour les pi�tons.
+enfance et �ducation
+�ducation : soutien scolaire et aide � la parentalit�
+Soutien scolaire dans tous les quartiers, aide � la parentalit� (psychologues, �ducateurs, p�diatres) et activit�s p�riscolaires sportives et culturelles.
+s�curit�
+S�curit� : effectifs renforc�s et coop�ration renforc�e
+Effectifs renforc�s et mieux form�s, brigades municipales sp�cialis�es (narcotrafic, violences faites aux femmes, incivilit�s), meilleure coop�ration police municipale, nationale et s�curit� priv�e, brigade VTT renforc�e, dispositifs anti-attentats et crise sanitaire, vid�oprotection, veille H24.
+Un �clairage public performant pour r�duire chutes et accidents.
+sport
+culture
+Sport & Culture : �quipements r�nov�s et acc�s �largi
+�quipements r
+[... truncated ...]
+
 --- File: listes_philippe-saurel_programme_alimentation-regie-publique-agricole.txt ---
 URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/alimentation-regie-publique-agricole/
 
@@ -11099,6 +16451,21 @@ Une mesure proposée par Philippe Saurel
 Régie publique agricole pour fournir les produits bio locaux, approvisionner les cantines, CHU et CROUS et distribuer des paniers bio aux femmes enceintes.
 
 --- File: listes_philippe-saurel_programme_alimentation-regie-publique-agricole_1.txt ---
+URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/alimentation-regie-publique-agricole/
+
+TITLE: Alimentation : r�gie publique agricole et bio local � Philippe Saurel
+
+DESCRIPTION: Alimentation : r�gie publique agricole et bio local
+
+CONTENT:
+
+Retour � la liste
+alimentation
+Alimentation : r�gie publique agricole et bio local
+Une mesure propos�e par Philippe Saurel
+R�gie publique agricole pour fournir les produits bio locaux, approvisionner les cantines, CHU et CROUS et distribuer des paniers bio aux femmes enceintes.
+
+--- File: listes_philippe-saurel_programme_alimentation-regie-publique-agricole_2.txt ---
 URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/alimentation-regie-publique-agricole/
 
 TITLE: Alimentation : r�gie publique agricole et bio local � Philippe Saurel
@@ -11145,6 +16512,22 @@ Une mesure propos�e par Philippe Saurel
 Accompagnement des entreprises, guichet unique pour TPE/PME (d�marches, financements, locaux), implantation d'industries bas carbone avec l'�tat et d�veloppement de l'apprentissage.
 Accompagnement des commer�ants, artisans, professions lib�rales, halles et march�s.
 
+--- File: listes_philippe-saurel_programme_economie-emploi-accompagnement_2.txt ---
+URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/economie-emploi-accompagnement/
+
+TITLE: �conomie & Emploi : accompagner entreprises et commerces � Philippe Saurel
+
+DESCRIPTION: �conomie & Emploi : accompagner entreprises et commerces
+
+CONTENT:
+
+Retour � la liste
+�mancipation et justice sociale
+�conomie & Emploi : accompagner entreprises et commerces
+Une mesure propos�e par Philippe Saurel
+Accompagnement des entreprises, guichet unique pour TPE/PME (d�marches, financements, locaux), implantation d'industries bas carbone avec l'�tat et d�veloppement de l'apprentissage.
+Accompagnement des commer�ants, artisans, professions lib�rales, halles et march�s.
+
 --- File: listes_philippe-saurel_programme_education-soutien-scolaire-parentalite.txt ---
 URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/education-soutien-scolaire-parentalite/
 
@@ -11175,6 +16558,21 @@ enfance et �ducation
 Une mesure propos�e par Philippe Saurel
 Soutien scolaire dans tous les quartiers, aide � la parentalit� (psychologues, �ducateurs, p�diatres) et activit�s p�riscolaires sportives et culturelles.
 
+--- File: listes_philippe-saurel_programme_education-soutien-scolaire-parentalite_2.txt ---
+URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/education-soutien-scolaire-parentalite/
+
+TITLE: �ducation : soutien scolaire et aide � la parentalit� � Philippe Saurel
+
+DESCRIPTION: �ducation : soutien scolaire et aide � la parentalit�
+
+CONTENT:
+
+Retour � la liste
+enfance et �ducation
+�ducation : soutien scolaire et aide � la parentalit�
+Une mesure propos�e par Philippe Saurel
+Soutien scolaire dans tous les quartiers, aide � la parentalit� (psychologues, �ducateurs, p�diatres) et activit�s p�riscolaires sportives et culturelles.
+
 --- File: listes_philippe-saurel_programme_energie-regie-publique-renouvelable.txt ---
 URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/energie-regie-publique-renouvelable/
 
@@ -11191,6 +16589,21 @@ Une mesure proposée par Philippe Saurel
 Régie publique de l'énergie, production renouvelable locale, réseaux de chaleur et tarification sociale de l'électricité.
 
 --- File: listes_philippe-saurel_programme_energie-regie-publique-renouvelable_1.txt ---
+URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/energie-regie-publique-renouvelable/
+
+TITLE: �nergie : r�gie publique et production renouvelable locale � Philippe Saurel
+
+DESCRIPTION: �nergie : r�gie publique et production renouvelable locale
+
+CONTENT:
+
+Retour � la liste
+changement climatique
+�nergie : r�gie publique et production renouvelable locale
+Une mesure propos�e par Philippe Saurel
+R�gie publique de l'�nergie, production renouvelable locale, r�seaux de chaleur et tarification sociale de l'�lectricit�.
+
+--- File: listes_philippe-saurel_programme_energie-regie-publique-renouvelable_2.txt ---
 URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/energie-regie-publique-renouvelable/
 
 TITLE: �nergie : r�gie publique et production renouvelable locale � Philippe Saurel
@@ -11237,6 +16650,22 @@ Une mesure propos�e par Philippe Saurel
 Nouveau plan de circulation vot� par quartier, traces et fr�quences adapt�s pour r�duire les bouchons, am�liorer les d�placements et maintenir la gratuit� des transports.
 Assurer le partage de l'espace public, notamment pour les pi�tons.
 
+--- File: listes_philippe-saurel_programme_mobilites-plan-circulation-quartier_2.txt ---
+URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/mobilites-plan-circulation-quartier/
+
+TITLE: Mobilit�s : un plan de circulation par quartier � Philippe Saurel
+
+DESCRIPTION: Mobilit�s : un plan de circulation par quartier
+
+CONTENT:
+
+Retour � la liste
+transport et mobilit�s
+Mobilit�s : un plan de circulation par quartier
+Une mesure propos�e par Philippe Saurel
+Nouveau plan de circulation vot� par quartier, traces et fr�quences adapt�s pour r�duire les bouchons, am�liorer les d�placements et maintenir la gratuit� des transports.
+Assurer le partage de l'espace public, notamment pour les pi�tons.
+
 --- File: listes_philippe-saurel_programme_proprete-dechets-non-incinerateur.txt ---
 URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/proprete-dechets-non-incinerateur/
 
@@ -11253,6 +16682,21 @@ Une mesure proposée par Philippe Saurel
 Non à l'incinérateur CSR. Tri renforcé, recycleries et ramassage accru dans les zones denses.
 
 --- File: listes_philippe-saurel_programme_proprete-dechets-non-incinerateur_1.txt ---
+URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/proprete-dechets-non-incinerateur/
+
+TITLE: Propret� & D�chets : non � l'incin�rateur, tri renforc� � Philippe Saurel
+
+DESCRIPTION: Propret� & D�chets : non � l'incin�rateur, tri renforc�
+
+CONTENT:
+
+Retour � la liste
+d�chets
+Propret� & D�chets : non � l'incin�rateur, tri renforc�
+Une mesure propos�e par Philippe Saurel
+Non � l'incin�rateur CSR. Tri renforc�, recycleries et ramassage accru dans les zones denses.
+
+--- File: listes_philippe-saurel_programme_proprete-dechets-non-incinerateur_2.txt ---
 URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/proprete-dechets-non-incinerateur/
 
 TITLE: Propret� & D�chets : non � l'incin�rateur, tri renforc� � Philippe Saurel
@@ -11284,6 +16728,22 @@ Rénover le CHU, réorganiser le service des urgences de l'hôpital et améliore
 Améliorer la qualité de vie des personnes en situation de handicap.
 
 --- File: listes_philippe-saurel_programme_sante-renover-chu-ameliorer-accueil_1.txt ---
+URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/sante-renover-chu-ameliorer-accueil/
+
+TITLE: Sant� : r�nover le CHU et am�liorer l'accueil � Philippe Saurel
+
+DESCRIPTION: Sant� : r�nover le CHU et am�liorer l'accueil
+
+CONTENT:
+
+Retour � la liste
+sant�
+Sant� : r�nover le CHU et am�liorer l'accueil
+Une mesure propos�e par Philippe Saurel
+R�nover le CHU, r�organiser le service des urgences de l'h�pital et am�liorer son accessibilit�, am�liorer l'accueil des familles.
+Am�liorer la qualit� de vie des personnes en situation de handicap.
+
+--- File: listes_philippe-saurel_programme_sante-renover-chu-ameliorer-accueil_2.txt ---
 URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/sante-renover-chu-ameliorer-accueil/
 
 TITLE: Sant� : r�nover le CHU et am�liorer l'accueil � Philippe Saurel
@@ -11331,6 +16791,22 @@ Une mesure propos�e par Philippe Saurel
 Effectifs renforc�s et mieux form�s, brigades municipales sp�cialis�es (narcotrafic, violences faites aux femmes, incivilit�s), meilleure coop�ration police municipale, nationale et s�curit� priv�e, brigade VTT renforc�e, dispositifs anti-attentats et crise sanitaire, vid�oprotection, veille H24.
 Un �clairage public performant pour r�duire chutes et accidents.
 
+--- File: listes_philippe-saurel_programme_securite-effectifs-renforces_2.txt ---
+URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/securite-effectifs-renforces/
+
+TITLE: S�curit� : effectifs renforc�s et coop�ration renforc�e � Philippe Saurel
+
+DESCRIPTION: S�curit� : effectifs renforc�s et coop�ration renforc�e
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+S�curit� : effectifs renforc�s et coop�ration renforc�e
+Une mesure propos�e par Philippe Saurel
+Effectifs renforc�s et mieux form�s, brigades municipales sp�cialis�es (narcotrafic, violences faites aux femmes, incivilit�s), meilleure coop�ration police municipale, nationale et s�curit� priv�e, brigade VTT renforc�e, dispositifs anti-attentats et crise sanitaire, vid�oprotection, veille H24.
+Un �clairage public performant pour r�duire chutes et accidents.
+
 --- File: listes_philippe-saurel_programme_solidarite-logement-agence.txt ---
 URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/solidarite-logement-agence/
 
@@ -11348,6 +16824,22 @@ Une mesure proposée par Philippe Saurel
 Création de l'Agence du logement, accompagnement des sans-abris et développement de logements sociaux accessibles.
 
 --- File: listes_philippe-saurel_programme_solidarite-logement-agence_1.txt ---
+URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/solidarite-logement-agence/
+
+TITLE: Solidarit� & Logement : agence du logement et sans-abris � Philippe Saurel
+
+DESCRIPTION: Solidarit� & Logement : agence du logement et sans-abris
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+logement
+Solidarit� & Logement : agence du logement et sans-abris
+Une mesure propos�e par Philippe Saurel
+Cr�ation de l'Agence du logement, accompagnement des sans-abris et d�veloppement de logements sociaux accessibles.
+
+--- File: listes_philippe-saurel_programme_solidarite-logement-agence_2.txt ---
 URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/solidarite-logement-agence/
 
 TITLE: Solidarit� & Logement : agence du logement et sans-abris � Philippe Saurel
@@ -11395,6 +16887,22 @@ Sport & Culture : �quipements r�nov�s et acc�s �largi
 Une mesure propos�e par Philippe Saurel
 �quipements r�nov�s, parcs valoris�s. Acc�s �largi � la culture et au sport pour les enfants et publics pr�caires.
 
+--- File: listes_philippe-saurel_programme_sport-culture-equipements-acces_2.txt ---
+URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/sport-culture-equipements-acces/
+
+TITLE: Sport & Culture : �quipements r�nov�s et acc�s �largi � Philippe Saurel
+
+DESCRIPTION: Sport & Culture : �quipements r�nov�s et acc�s �largi
+
+CONTENT:
+
+Retour � la liste
+sport
+culture
+Sport & Culture : �quipements r�nov�s et acc�s �largi
+Une mesure propos�e par Philippe Saurel
+�quipements r�nov�s, parcs valoris�s. Acc�s �largi � la culture et au sport pour les enfants et publics pr�caires.
+
 --- File: listes_philippe-saurel_programme_urbanisme-anru-adaptation-climatique.txt ---
 URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/urbanisme-anru-adaptation-climatique/
 
@@ -11412,6 +16920,22 @@ Une mesure proposée par Philippe Saurel
 Remise à niveau à l'ANRU portée à 1 milliard d'euros d'investissement, adaptation au réchauffement climatique et aménagements concertés pour apaiser la ville.
 
 --- File: listes_philippe-saurel_programme_urbanisme-anru-adaptation-climatique_1.txt ---
+URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/urbanisme-anru-adaptation-climatique/
+
+TITLE: Urbanisme : ANRU � 1 milliard et adaptation climatique � Philippe Saurel
+
+DESCRIPTION: Urbanisme : ANRU � 1 milliard et adaptation climatique
+
+CONTENT:
+
+Retour � la liste
+changement climatique
+environnement
+Urbanisme : ANRU � 1 milliard et adaptation climatique
+Une mesure propos�e par Philippe Saurel
+Remise � niveau � l'ANRU port�e � 1 milliard d'euros d'investissement, adaptation au r�chauffement climatique et am�nagements concert�s pour apaiser la ville.
+
+--- File: listes_philippe-saurel_programme_urbanisme-anru-adaptation-climatique_2.txt ---
 URL: https://montpellier-municipales.fr/listes/philippe-saurel/programme/urbanisme-anru-adaptation-climatique/
 
 TITLE: Urbanisme : ANRU � 1 milliard et adaptation climatique � Philippe Saurel
@@ -11664,6 +17188,162 @@ Mohed Altrad laisse entrevoir une candidature aux municipales de 2026
 Mohed Altrad multiplie les signaux vers une candidature en 2026, malgr� un pass� judiciaire lourd et un mandat pr�c�dent peu honor�. Analyse d'une strat�gie controvers�e.
 
 --- File: listes_mohed-altrad_3.txt ---
+URL: https://montpellier-municipales.fr/listes/mohed-altrad/
+
+TITLE: Mohed Altrad � Mohed Altrad
+
+DESCRIPTION: Pr�sentation de la liste Mohed Altrad et de sa t�te de liste Mohed Altrad qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Mohed Altrad
+T�te de liste�: Mohed Altrad
+Sans �tiquette
+Milliardaire
+Comparer avec d'autres programmes
+Pr�sentation
+Derni�res actualit�s
+Mohed Altrad
+est un homme d?affaires et dirigeant, connu notamment comme
+propri�taire et pr�sident du Montpellier H�rault Rugby (MHR)
+, ainsi que pr�sident du groupe industriel Altrad. Il est �galement une personnalit� m�diatique locale dans l?agglom�ration montpelli�raine, du fait de son r�le �conomique et sportif dans le territoire.
+En 2025, alors que la campagne des �lections municipales de
+mars 2026 � Montpellier
+se structure, plusieurs m�dias ont relay� que Mohed Altrad
+invite les citoyen�nes � partager leurs id�es en vue d?une possible candidature municipale
+, avant qu?il ne fasse une
+d�claration officielle de sa candidature
+. Cette initiative s?inscrit dans une d�marche de consultation participative en amont d?une d�cision formelle de se pr�senter.
+� ce stade, au moment de la r�daction de cette page,
+aucune liste compl�te ni annonce officielle de d�p�t de candidature n?a �t� publi�e
+par Altrad ou ses proches, mais il figure parmi les noms �voqu�s dans le cadre de la pr�paration des municipales.
+Contexte judiciaire
+Mohed Altrad a �t�
+condamn� en d�cembre 2022
+par le tribunal correctionnel de Paris dans le cadre de ce qui est g�n�ralement appel�
+l?affaire Laporte-Altrad
+. Dans cette affaire, il a �t� reconnu coupable de
+corruption active, de trafic d?influence et d?abus de biens sociaux
+; le tribunal lui a inflig� une peine de
+18 mois de prison avec sursis
+, une
+amende de 50 000 euros
+ainsi qu?une
+peine compl�mentaire d?in�ligibilit�
+.
+Cette condamnation, issue d?une premi�re instance, est
+contest�e en appel
+; la proc�dure est toujours en cours, avec une audience de la cour d?appel pr�vue (ou renvoy�e) � une date ult�rieure.
+Sur le plan �lectoral, la condamnation mentionn�e
+n?emp�che pas syst�matiquement la publication d?une candidature
+si les recours sont pendants ou si les conditions l�gales d?in�ligibilit� �voluent au gr� des d�cisions judiciaires. En France, les effets d?une peine compl�mentaire d?in�ligibilit� peuvent d�pendre notamment de sa p�riode d?application, de sa confirmation en appel, et du point de d�part de sa dur�e l�gale.
+Positionnement politique et intentions
+Mohed Altrad est souvent d�crit comme un acteur
+sans �tiquette partisane traditionnelle
+. Dans la sph�re politique locale, son positionnement �ventuel � la t�te d?une liste municipale est per�u comme une offre distincte de celles structur�es autour des partis politiques classiques (Parti socialiste, La France Insoumise, �cologistes, etc.). Il tend � incarner une
+candidature centr�e sur la soci�t� civile, l?�conomie locale et la gouvernance municipale
+, bien que les orientations programmatiques pr�cises restent � �tre formalis�es si une liste devait �tre d�pos�e officiellement.
+Place dans le paysage politique montpelli�rain
+La rumeur ou l?intention d?une candidature de Mohed Altrad intervient dans un contexte local o� plusieurs listes concurrentes se structurent :
+une majorit� socialiste autour du maire sortant ;
+des candidatures de gauche ou de gauche alternative ;
+des listes citoyennes et ind�pendantes ;
+des candidatures de droite ou du centre.
+Dans les municipales
+de 2020 � Montpellier
+, Mohed Altrad avait d�j� conduit une liste pr�sent�e comme
+sans �tiquette
+mais f�d�rant plusieurs sensibilit�s locales, o� figuraient notamment des personnes issues de mouvements divers et d?�lus.
+Une �ventuelle candidature en 2026 serait per�ue comme
+la continuation d?une logique de candidature � hors partis classiques �
+, visant � rassembler des �lecteurs autour d?un projet municipal qu?il d�finirait lui-m�me avec des contributeurs locaux.
+Derni�res actualit�s
+Municipales 2026 � Montpellier : Mohed Altrad se lance � nouveau dans la course � la mairie
+2026-01-16
+Le milliardaire et patron du MHR, Mohed Altrad, officialise sa candidature pour 2026 avec un programme ax� sur la s�curit� et l'�conomie. Analyse.
+Mohed Altrad laisse entrevoir une candidature aux municipales de 2026
+2025-12-21
+Mohed Altrad multiplie les signaux vers une candidature en 2026, malgr� un pass� judiciaire lourd et un mandat pr�c�dent peu honor�. Analyse d'une strat�gie controvers�e.
+
+--- File: listes_mohed-altrad_4.txt ---
+URL: https://montpellier-municipales.fr/listes/mohed-altrad
+
+TITLE: Mohed Altrad � Mohed Altrad
+
+DESCRIPTION: Pr�sentation de la liste Mohed Altrad et de sa t�te de liste Mohed Altrad qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Mohed Altrad
+T�te de liste�: Mohed Altrad
+Sans �tiquette
+Milliardaire
+Comparer avec d'autres programmes
+Pr�sentation
+Derni�res actualit�s
+Mohed Altrad
+est un homme d?affaires et dirigeant, connu notamment comme
+propri�taire et pr�sident du Montpellier H�rault Rugby (MHR)
+, ainsi que pr�sident du groupe industriel Altrad. Il est �galement une personnalit� m�diatique locale dans l?agglom�ration montpelli�raine, du fait de son r�le �conomique et sportif dans le territoire.
+En 2025, alors que la campagne des �lections municipales de
+mars 2026 � Montpellier
+se structure, plusieurs m�dias ont relay� que Mohed Altrad
+invite les citoyen�nes � partager leurs id�es en vue d?une possible candidature municipale
+, avant qu?il ne fasse une
+d�claration officielle de sa candidature
+. Cette initiative s?inscrit dans une d�marche de consultation participative en amont d?une d�cision formelle de se pr�senter.
+� ce stade, au moment de la r�daction de cette page,
+aucune liste compl�te ni annonce officielle de d�p�t de candidature n?a �t� publi�e
+par Altrad ou ses proches, mais il figure parmi les noms �voqu�s dans le cadre de la pr�paration des municipales.
+Contexte judiciaire
+Mohed Altrad a �t�
+condamn� en d�cembre 2022
+par le tribunal correctionnel de Paris dans le cadre de ce qui est g�n�ralement appel�
+l?affaire Laporte-Altrad
+. Dans cette affaire, il a �t� reconnu coupable de
+corruption active, de trafic d?influence et d?abus de biens sociaux
+; le tribunal lui a inflig� une peine de
+18 mois de prison avec sursis
+, une
+amende de 50 000 euros
+ainsi qu?une
+peine compl�mentaire d?in�ligibilit�
+.
+Cette condamnation, issue d?une premi�re instance, est
+contest�e en appel
+; la proc�dure est toujours en cours, avec une audience de la cour d?appel pr�vue (ou renvoy�e) � une date ult�rieure.
+Sur le plan �lectoral, la condamnation mentionn�e
+n?emp�che pas syst�matiquement la publication d?une candidature
+si les recours sont pendants ou si les conditions l�gales d?in�ligibilit� �voluent au gr� des d�cisions judiciaires. En France, les effets d?une peine compl�mentaire d?in�ligibilit� peuvent d�pendre notamment de sa p�riode d?application, de sa confirmation en appel, et du point de d�part de sa dur�e l�gale.
+Positionnement politique et intentions
+Mohed Altrad est souvent d�crit comme un acteur
+sans �tiquette partisane traditionnelle
+. Dans la sph�re politique locale, son positionnement �ventuel � la t�te d?une liste municipale est per�u comme une offre distincte de celles structur�es autour des partis politiques classiques (Parti socialiste, La France Insoumise, �cologistes, etc.). Il tend � incarner une
+candidature centr�e sur la soci�t� civile, l?�conomie locale et la gouvernance municipale
+, bien que les orientations programmatiques pr�cises restent � �tre formalis�es si une liste devait �tre d�pos�e officiellement.
+Place dans le paysage politique montpelli�rain
+La rumeur ou l?intention d?une candidature de Mohed Altrad intervient dans un contexte local o� plusieurs listes concurrentes se structurent :
+une majorit� socialiste autour du maire sortant ;
+des candidatures de gauche ou de gauche alternative ;
+des listes citoyennes et ind�pendantes ;
+des candidatures de droite ou du centre.
+Dans les municipales
+de 2020 � Montpellier
+, Mohed Altrad avait d�j� conduit une liste pr�sent�e comme
+sans �tiquette
+mais f�d�rant plusieurs sensibilit�s locales, o� figuraient notamment des personnes issues de mouvements divers et d?�lus.
+Une �ventuelle candidature en 2026 serait per�ue comme
+la continuation d?une logique de candidature � hors partis classiques �
+, visant � rassembler des �lecteurs autour d?un projet municipal qu?il d�finirait lui-m�me avec des contributeurs locaux.
+Derni�res actualit�s
+Municipales 2026 � Montpellier : Mohed Altrad se lance � nouveau dans la course � la mairie
+2026-01-16
+Le milliardaire et patron du MHR, Mohed Altrad, officialise sa candidature pour 2026 avec un programme ax� sur la s�curit� et l'�conomie. Analyse.
+Mohed Altrad laisse entrevoir une candidature aux municipales de 2026
+2025-12-21
+Mohed Altrad multiplie les signaux vers une candidature en 2026, malgr� un pass� judiciaire lourd et un mandat pr�c�dent peu honor�. Analyse d'une strat�gie controvers�e.
+
+--- File: listes_mohed-altrad_5.txt ---
 URL: https://montpellier-municipales.fr/listes/mohed-altrad/
 
 TITLE: Mohed Altrad � Mohed Altrad
@@ -12367,6 +18047,326 @@ Accessibilit� renforc�e
 : Cr�ation d'acc�s do
 [... truncated ...]
 
+--- File: listes_remi-gaillard_4.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard
+
+TITLE: N'importe qui � R�mi Gaillard
+
+DESCRIPTION: Pr�sentation de la liste N'importe qui et de sa t�te de liste R�mi Gaillard qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+N'importe qui
+T�te de liste�: R�mi Gaillard
+Sans �tiquette
+Animaliste
+Anti-syst�me
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Derni�res actualit�s
+R�mi Gaillard
+est un humoriste, vid�aste et militant montpelli�rain mondialement connu pour ses canulars et son slogan :
+� C'est en faisant n'importe quoi qu'on devient n'importe qui �
+.
+Figure atypique et
+anti-syst�me
+, il s'�tait d�j� pr�sent� aux �lections municipales de 2020 � la t�te d'une liste citoyenne et �cologiste, cr�ant la surprise en r�coltant pr�s de
+9,6 % des voix
+au premier tour.
+Pour 2026, il annonce son retour dans l'ar�ne politique avec la volont� de proposer une
+alternative hors des partis traditionnels
+, ax�e sur le bon sens, la protection du vivant et une d�mocratie plus directe.
+Une vision iconoclaste et citoyenne
+Le projet politique de R�mi Gaillard s'articule autour d'une critique des "politiciens professionnels" et de la gestion technocratique de la ville.
+Axes prioritaires
+Bien que son programme pour 2026 soit encore en construction, ses engagements historiques et ses premi�res d�clarations dessinent plusieurs priorit�s :
+La cause animale :
+Faire de Montpellier une ville exemplaire en mati�re de protection animale (refuges, interdiction des cirques avec animaux, v�g�talisation).
+La solidarit� :
+Actions concr�tes pour les sans-abri et les plus d�munis, souvent mises en avant dans ses actions militantes.
+L'espace public :
+Une ville plus ludique, plus libre, avec une critique de la b�tonisation excessive.
+La d�mocratie directe :
+Redonner la parole aux citoyens contre les logiques de partis.
+Son approche se veut pragmatique et disruptive, cherchant � mobiliser l'�lectorat abstentionniste et les d��us de la politique classique.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+bien �tre animal
+changement climatique
+culture
+d�chets
+enfance et �ducation
+environnement
+gestion de l'eau
+sant�
+solidarit�
+sport
+s�curit�
+transport et mobilit�s
+�mancipation et justice sociale
+sport
+culture
+transport et mobilit�s
+Le Stade-Parc Louis Nicollin : un lieu de vie 365 jours par an
+R�mi Gaillard propose la cr�ation du
+Stade-Parc Louis Nicollin
+, un �quipement multi-fonctionnel unique en France, con�u pour �tre un v�ritable lieu de vie quotidien int�grant sport, culture et nature.
+Un concept innovant et �cologique
+Un parc public sur le toit
+: Une promenade panoramique v�g�talis�e (flore m�diterran�enne) accessible � tous via des rampes et escaliers, offrant des points de vue sur la ville et la mer.
+Conception bioclimatique
+: Stade semi-enterr� pour une protection naturelle contre le vent et la chaleur, avec une canop�e photovolta�que pour l'autonomie �nerg�tique.
+Toit r�tractable
+: Permettant une utilisation par tous les temps pour des concerts, c�r�monies et �v�nements majeurs sans risque d'annulation.
+Mus�e Louis Nicollin
+: Un espace permanent d�di� � la collection unique de Louis Nicollin, retra�ant l'histoire du MHSC et de la culture populaire.
+Maison des Sports
+: Un centre sportif couvert (tennis de table, futsal, basket 3x3) ouvert toute l'ann�e sous les tribunes.
+Financement ma�tris�
+: Construction financ�e par le club et des investisseurs priv�s (naming), sans recours � l'imp�t. La ville fournit le terrain et le cadre.
+Ce projet vise � offrir aux Montpelli�rains un nouvel �lot de fra�cheur, un p�le culturel fort et une infrastructure sportive de haut niveau, tout en respectant les enjeux climatiques actuels.
+culture
+enfance et �ducation
+Montpellier : Capitale de la culture par les actes
+R�mi Gaillard propose de faire de Montpellier une v�ritable "Capitale de la culture par les actes", en misant sur l'expression artistique libre, l'implication des enfants et la valorisation du patrimoine.
+Une culture vivante et accessible
+L'objectif est de sortir la culture des institutions pour l'amener dans la rue et le quotidien.
+M�mo-logrammes
+: Un parcours urbain immersif o� des figures historiques (Rabelais, Jean Moulin, Agn�s Varda) racontent l'histoire de la ville via des installations artistiques et num�riques.
+Le Corum prend de la hauteur
+: Transformer le toit du Corum en cin�ma ou sc�ne de concert en plein air, avec casques sans fil pour respecter le voisinage.
+Verdanson : Galerie officielle de street-art
+: Reconna�tre les murs du canal comme l'un des plus grands espaces de graffiti d'Europe, avec �clairage nocturne et artistes en r�sidence.
+Orchestre municipal pour tous
+: Pr�t gratuit d'instruments et cours de musique collectifs apr�s l'�cole, notamment dans les quartiers populaires.
+Montpellier en LEGO
+: Les �l�ves des �coles reconstruisent leur ville ou leur quartier en LEGO, expos� dans un lieu public d�di�.
+Panneaux LED 100% culture & sport
+: R�server les panneaux municipaux exclusivement � la promotion gratuite des �v�nements locaux.
+s�curit�
+solidarit�
+�mancipation et justice sociale
+S�curit�, Protection, Pr�vention : Une priorit� humaine
+R�mi Gaillard propose une approche de la s�ret� fond�e sur la pr�sence humaine, la technologie utile et la solidarit� concr�te.
+Les axes forts :
+Bornes d'alerte et CSU
+: Installation de bornes d'appel d'urgence dans la ville, reli�es en direct au Centre de Supervision Urbain pour une assistance imm�diate.
+�clairage adaptatif
+: Am�liorer l'�clairage public l� o� c'est n�cessaire pour renforcer le sentiment de s�curit� sans gaspillage �nerg�tique.
+M�diation de nuit
+: D�ploiement de m�diateurs pour apaiser l'espace public et pr�venir les conflits.
+Police municipale cibl�e
+: Une police de proximit�, visible et accessible, au service des habitants.
+Protection des victimes
+: Cr�ation de nouveaux h�bergements d'urgence pour les victimes de violences et accompagnement vers l'autonomie.
+Dignit� et solidarit�
+: Dispositifs sp�cifiques pour assurer la dignit� des personnes sans-abri et lutter contre l'exclusion.
+environnement
+changement climatique
+transport et mobilit�s
+Transformer une entr�e de ville en Route-For�t
+R�mi Gaillard propose de transformer l'avenue de Toulouse (une entr�e de ville majeure) en une "Route-For�t" en supprimant une voie de circulation automobile pour cr�er une canop�e v�g�tale continue.
+Un prolongement du Parc Montcalm
+L'objectif est de faire dispara�tre visuellement la route au profit d'une for�t urbaine travers�e par une voie de circulation apais�e.
+D�simperm�abilisation
+: Remplacer le goudron inutile par de la pleine terre.
+Canop�e continue
+: Plantation massive d'arbres pour cr�er une ombre naturelle et r�duire la temp�rature au sol.
+Continuit� �cologique
+: Relier le Parc Montcalm au reste de la ville via un corridor vert.
+Esth�tique urbaine
+: Changer radicalement l'image de l'entr�e de ville pour passer du "tout voiture" au "tout v�g�tal".
+gestion de l'eau
+environnement
+sport
+sant�
+Bassin de baignade naturelle sur le Lez
+R�mi Gaillard propose l'installation de bassins de baignade naturelle flottants sur le Lez, accessibles aux habitants durant l'�t�.
+Une baignade �cologique et populaire
+L'id�e est de se baigner
+avec
+le Lez, et non
+dans
+le Lez, en utilisant l'eau du fleuve filtr�e et purifi�e.
+Filtration naturelle
+: L'eau est filtr�e par des plantes et des syst�mes UV, sans produits chimiques agressifs.
+�lot de fra�cheur
+: Cr�ation d'un espace de respiration naturelle en plein c?ur urbain pour lutter contre les canicules.
+R�versibilit�
+: Des structures l�g�res en bois, flottantes, qui respectent l'�cosyst�me du fleuve.
+Transparence
+: Affichage public en temps r�el de la qualit� de l'eau et analyses sanitaires quotidiennes.
+Autonomie
+: Fonctionnement � l'�nergie solaire pour minimiser l'impact environnemental.
+environnement
+changement climatique
+culture
+Verdanson : Parc inondable et mus�e � ciel ouvert
+R�mi Gaillard propose de transformer le canal du Verdanson, au
+[... truncated ...]
+
+--- File: listes_remi-gaillard_5.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/
+
+TITLE: N'importe qui � R�mi Gaillard
+
+DESCRIPTION: Pr�sentation de la liste N'importe qui et de sa t�te de liste R�mi Gaillard qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+N'importe qui
+T�te de liste�: R�mi Gaillard
+Sans �tiquette
+Animaliste
+Anti-syst�me
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Derni�res actualit�s
+R�mi Gaillard
+est un humoriste, vid�aste et militant montpelli�rain mondialement connu pour ses canulars et son slogan :
+� C'est en faisant n'importe quoi qu'on devient n'importe qui �
+.
+Figure atypique et
+anti-syst�me
+, il s'�tait d�j� pr�sent� aux �lections municipales de 2020 � la t�te d'une liste citoyenne et �cologiste, cr�ant la surprise en r�coltant pr�s de
+9,6 % des voix
+au premier tour.
+Pour 2026, il annonce son retour dans l'ar�ne politique avec la volont� de proposer une
+alternative hors des partis traditionnels
+, ax�e sur le bon sens, la protection du vivant et une d�mocratie plus directe.
+Une vision iconoclaste et citoyenne
+Le projet politique de R�mi Gaillard s'articule autour d'une critique des "politiciens professionnels" et de la gestion technocratique de la ville.
+Axes prioritaires
+Bien que son programme pour 2026 soit encore en construction, ses engagements historiques et ses premi�res d�clarations dessinent plusieurs priorit�s :
+La cause animale :
+Faire de Montpellier une ville exemplaire en mati�re de protection animale (refuges, interdiction des cirques avec animaux, v�g�talisation).
+La solidarit� :
+Actions concr�tes pour les sans-abri et les plus d�munis, souvent mises en avant dans ses actions militantes.
+L'espace public :
+Une ville plus ludique, plus libre, avec une critique de la b�tonisation excessive.
+La d�mocratie directe :
+Redonner la parole aux citoyens contre les logiques de partis.
+Son approche se veut pragmatique et disruptive, cherchant � mobiliser l'�lectorat abstentionniste et les d��us de la politique classique.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+bien �tre animal
+changement climatique
+culture
+d�chets
+enfance et �ducation
+environnement
+gestion de l'eau
+sant�
+solidarit�
+sport
+s�curit�
+transport et mobilit�s
+�mancipation et justice sociale
+sport
+culture
+transport et mobilit�s
+Le Stade-Parc Louis Nicollin : un lieu de vie 365 jours par an
+R�mi Gaillard propose la cr�ation du
+Stade-Parc Louis Nicollin
+, un �quipement multi-fonctionnel unique en France, con�u pour �tre un v�ritable lieu de vie quotidien int�grant sport, culture et nature.
+Un concept innovant et �cologique
+Un parc public sur le toit
+: Une promenade panoramique v�g�talis�e (flore m�diterran�enne) accessible � tous via des rampes et escaliers, offrant des points de vue sur la ville et la mer.
+Conception bioclimatique
+: Stade semi-enterr� pour une protection naturelle contre le vent et la chaleur, avec une canop�e photovolta�que pour l'autonomie �nerg�tique.
+Toit r�tractable
+: Permettant une utilisation par tous les temps pour des concerts, c�r�monies et �v�nements majeurs sans risque d'annulation.
+Mus�e Louis Nicollin
+: Un espace permanent d�di� � la collection unique de Louis Nicollin, retra�ant l'histoire du MHSC et de la culture populaire.
+Maison des Sports
+: Un centre sportif couvert (tennis de table, futsal, basket 3x3) ouvert toute l'ann�e sous les tribunes.
+Financement ma�tris�
+: Construction financ�e par le club et des investisseurs priv�s (naming), sans recours � l'imp�t. La ville fournit le terrain et le cadre.
+Ce projet vise � offrir aux Montpelli�rains un nouvel �lot de fra�cheur, un p�le culturel fort et une infrastructure sportive de haut niveau, tout en respectant les enjeux climatiques actuels.
+culture
+enfance et �ducation
+Montpellier : Capitale de la culture par les actes
+R�mi Gaillard propose de faire de Montpellier une v�ritable "Capitale de la culture par les actes", en misant sur l'expression artistique libre, l'implication des enfants et la valorisation du patrimoine.
+Une culture vivante et accessible
+L'objectif est de sortir la culture des institutions pour l'amener dans la rue et le quotidien.
+M�mo-logrammes
+: Un parcours urbain immersif o� des figures historiques (Rabelais, Jean Moulin, Agn�s Varda) racontent l'histoire de la ville via des installations artistiques et num�riques.
+Le Corum prend de la hauteur
+: Transformer le toit du Corum en cin�ma ou sc�ne de concert en plein air, avec casques sans fil pour respecter le voisinage.
+Verdanson : Galerie officielle de street-art
+: Reconna�tre les murs du canal comme l'un des plus grands espaces de graffiti d'Europe, avec �clairage nocturne et artistes en r�sidence.
+Orchestre municipal pour tous
+: Pr�t gratuit d'instruments et cours de musique collectifs apr�s l'�cole, notamment dans les quartiers populaires.
+Montpellier en LEGO
+: Les �l�ves des �coles reconstruisent leur ville ou leur quartier en LEGO, expos� dans un lieu public d�di�.
+Panneaux LED 100% culture & sport
+: R�server les panneaux municipaux exclusivement � la promotion gratuite des �v�nements locaux.
+s�curit�
+solidarit�
+�mancipation et justice sociale
+S�curit�, Protection, Pr�vention : Une priorit� humaine
+R�mi Gaillard propose une approche de la s�ret� fond�e sur la pr�sence humaine, la technologie utile et la solidarit� concr�te.
+Les axes forts :
+Bornes d'alerte et CSU
+: Installation de bornes d'appel d'urgence dans la ville, reli�es en direct au Centre de Supervision Urbain pour une assistance imm�diate.
+�clairage adaptatif
+: Am�liorer l'�clairage public l� o� c'est n�cessaire pour renforcer le sentiment de s�curit� sans gaspillage �nerg�tique.
+M�diation de nuit
+: D�ploiement de m�diateurs pour apaiser l'espace public et pr�venir les conflits.
+Police municipale cibl�e
+: Une police de proximit�, visible et accessible, au service des habitants.
+Protection des victimes
+: Cr�ation de nouveaux h�bergements d'urgence pour les victimes de violences et accompagnement vers l'autonomie.
+Dignit� et solidarit�
+: Dispositifs sp�cifiques pour assurer la dignit� des personnes sans-abri et lutter contre l'exclusion.
+environnement
+changement climatique
+transport et mobilit�s
+Transformer une entr�e de ville en Route-For�t
+R�mi Gaillard propose de transformer l'avenue de Toulouse (une entr�e de ville majeure) en une "Route-For�t" en supprimant une voie de circulation automobile pour cr�er une canop�e v�g�tale continue.
+Un prolongement du Parc Montcalm
+L'objectif est de faire dispara�tre visuellement la route au profit d'une for�t urbaine travers�e par une voie de circulation apais�e.
+D�simperm�abilisation
+: Remplacer le goudron inutile par de la pleine terre.
+Canop�e continue
+: Plantation massive d'arbres pour cr�er une ombre naturelle et r�duire la temp�rature au sol.
+Continuit� �cologique
+: Relier le Parc Montcalm au reste de la ville via un corridor vert.
+Esth�tique urbaine
+: Changer radicalement l'image de l'entr�e de ville pour passer du "tout voiture" au "tout v�g�tal".
+gestion de l'eau
+environnement
+sport
+sant�
+Bassin de baignade naturelle sur le Lez
+R�mi Gaillard propose l'installation de bassins de baignade naturelle flottants sur le Lez, accessibles aux habitants durant l'�t�.
+Une baignade �cologique et populaire
+L'id�e est de se baigner
+avec
+le Lez, et non
+dans
+le Lez, en utilisant l'eau du fleuve filtr�e et purifi�e.
+Filtration naturelle
+: L'eau est filtr�e par des plantes et des syst�mes UV, sans produits chimiques agressifs.
+�lot de fra�cheur
+: Cr�ation d'un espace de respiration naturelle en plein c?ur urbain pour lutter contre les canicules.
+R�versibilit�
+: Des structures l�g�res en bois, flottantes, qui respectent l'�cosyst�me du fleuve.
+Transparence
+: Affichage public en temps r�el de la qualit� de l'eau et analyses sanitaires quotidiennes.
+Autonomie
+: Fonctionnement � l'�nergie solaire pour minimiser l'impact environnemental.
+environnement
+changement climatique
+culture
+Verdanson : Parc inondable et mus�e � ciel ouvert
+R�mi Gaillard propose de transformer le canal du Verdanson, a
+[... truncated ...]
+
 --- File: listes_remi-gaillard_programme_bassin-baignade-lez.txt ---
 URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/bassin-baignade-lez/
 
@@ -12503,6 +18503,74 @@ Transparence
 Autonomie
 : Fonctionnement � l'�nergie solaire pour minimiser l'impact environnemental.
 
+--- File: listes_remi-gaillard_programme_bassin-baignade-lez_4.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/bassin-baignade-lez/
+
+TITLE: Bassin de baignade naturelle sur le Lez � N'importe qui
+
+DESCRIPTION: Bassin de baignade naturelle sur le Lez
+
+CONTENT:
+
+Retour � la liste
+gestion de l'eau
+environnement
+sport
+sant�
+Bassin de baignade naturelle sur le Lez
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose l'installation de bassins de baignade naturelle flottants sur le Lez, accessibles aux habitants durant l'�t�.
+Une baignade �cologique et populaire
+L'id�e est de se baigner
+avec
+le Lez, et non
+dans
+le Lez, en utilisant l'eau du fleuve filtr�e et purifi�e.
+Filtration naturelle
+: L'eau est filtr�e par des plantes et des syst�mes UV, sans produits chimiques agressifs.
+�lot de fra�cheur
+: Cr�ation d'un espace de respiration naturelle en plein c?ur urbain pour lutter contre les canicules.
+R�versibilit�
+: Des structures l�g�res en bois, flottantes, qui respectent l'�cosyst�me du fleuve.
+Transparence
+: Affichage public en temps r�el de la qualit� de l'eau et analyses sanitaires quotidiennes.
+Autonomie
+: Fonctionnement � l'�nergie solaire pour minimiser l'impact environnemental.
+
+--- File: listes_remi-gaillard_programme_bassin-baignade-lez_5.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/bassin-baignade-lez
+
+TITLE: Bassin de baignade naturelle sur le Lez � N'importe qui
+
+DESCRIPTION: Bassin de baignade naturelle sur le Lez
+
+CONTENT:
+
+Retour � la liste
+gestion de l'eau
+environnement
+sport
+sant�
+Bassin de baignade naturelle sur le Lez
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose l'installation de bassins de baignade naturelle flottants sur le Lez, accessibles aux habitants durant l'�t�.
+Une baignade �cologique et populaire
+L'id�e est de se baigner
+avec
+le Lez, et non
+dans
+le Lez, en utilisant l'eau du fleuve filtr�e et purifi�e.
+Filtration naturelle
+: L'eau est filtr�e par des plantes et des syst�mes UV, sans produits chimiques agressifs.
+�lot de fra�cheur
+: Cr�ation d'un espace de respiration naturelle en plein c?ur urbain pour lutter contre les canicules.
+R�versibilit�
+: Des structures l�g�res en bois, flottantes, qui respectent l'�cosyst�me du fleuve.
+Transparence
+: Affichage public en temps r�el de la qualit� de l'eau et analyses sanitaires quotidiennes.
+Autonomie
+: Fonctionnement � l'�nergie solaire pour minimiser l'impact environnemental.
+
 --- File: listes_remi-gaillard_programme_circulation-intelligente-ia.txt ---
 URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/circulation-intelligente-ia/
 
@@ -12579,6 +18647,56 @@ Transparence
 : Mise en place d'une carte publique en temps r�el montrant l'�tat du trafic et l'action du syst�me municipal.
 
 --- File: listes_remi-gaillard_programme_circulation-intelligente-ia_3.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/circulation-intelligente-ia
+
+TITLE: Une circulation intelligente gr�ce � l'IA � N'importe qui
+
+DESCRIPTION: Une circulation intelligente gr�ce � l'IA
+
+CONTENT:
+
+Retour � la liste
+transport et mobilit�s
+Une circulation intelligente gr�ce � l'IA
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose d'utiliser l'intelligence artificielle pour fluidifier la circulation � Montpellier en rendant les feux de signalisation intelligents.
+Fluidit�, �cologie et s�r�nit�
+L'objectif est d'adapter les feux au flux de v�hicules en temps r�el pour r�duire les temps d'attente et la pollution.
+Adaptation en temps r�el
+: Analyse du trafic via les cam�ras et capteurs existants pour ajuster automatiquement les cycles de feux.
+Priorit� aux transports collectifs
+: Fluidification sp�cifique pour les bus et trams aux carrefours critiques.
+R�duction de la pollution
+: Moins d'arr�ts et de red�marrages inutiles signifient moins d'�missions de CO2 et de particules fines.
+Transparence
+: Mise en place d'une carte publique en temps r�el montrant l'�tat du trafic et l'action du syst�me municipal.
+
+--- File: listes_remi-gaillard_programme_circulation-intelligente-ia_4.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/circulation-intelligente-ia/
+
+TITLE: Une circulation intelligente gr�ce � l'IA � N'importe qui
+
+DESCRIPTION: Une circulation intelligente gr�ce � l'IA
+
+CONTENT:
+
+Retour � la liste
+transport et mobilit�s
+Une circulation intelligente gr�ce � l'IA
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose d'utiliser l'intelligence artificielle pour fluidifier la circulation � Montpellier en rendant les feux de signalisation intelligents.
+Fluidit�, �cologie et s�r�nit�
+L'objectif est d'adapter les feux au flux de v�hicules en temps r�el pour r�duire les temps d'attente et la pollution.
+Adaptation en temps r�el
+: Analyse du trafic via les cam�ras et capteurs existants pour ajuster automatiquement les cycles de feux.
+Priorit� aux transports collectifs
+: Fluidification sp�cifique pour les bus et trams aux carrefours critiques.
+R�duction de la pollution
+: Moins d'arr�ts et de red�marrages inutiles signifient moins d'�missions de CO2 et de particules fines.
+Transparence
+: Mise en place d'une carte publique en temps r�el montrant l'�tat du trafic et l'action du syst�me municipal.
+
+--- File: listes_remi-gaillard_programme_circulation-intelligente-ia_5.txt ---
 URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/circulation-intelligente-ia
 
 TITLE: Une circulation intelligente gr�ce � l'IA � N'importe qui
@@ -12685,6 +18803,60 @@ Observatoires discrets
 : Permettre au public d'observer la biodiversit� locale sans d�ranger les animaux.
 
 --- File: listes_remi-gaillard_programme_lunaret-reserve-vivante-zoologramme_3.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/lunaret-reserve-vivante-zoologramme
+
+TITLE: Lunaret : une r�serve vivante et un zoologramme � N'importe qui
+
+DESCRIPTION: Lunaret : une r�serve vivante et un zoologramme
+
+CONTENT:
+
+Retour � la liste
+bien �tre animal
+environnement
+culture
+enfance et �ducation
+Lunaret : une r�serve vivante et un zoologramme
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose de transformer le Zoo du Lunaret en un parc vivant unique en Europe, alliant protection animale et technologie innovante.
+Les piliers du projet :
+Le Zoologramme
+: Une serre amazonienne r�invent�e o� les animaux disparus ou menac�s sont pr�sent�s via des hologrammes, permettant une �ducation sans captivit�.
+R�serve vivante
+: Les animaux pr�sents disposent de vastes espaces naturels. Aucun nouvel animal exotique ne sera introduit.
+Centre de soins de la faune sauvage
+: Cr�ation d'une structure d�di�e au soin des animaux sauvages bless�s et � leur r�introduction dans la nature.
+Observatoires discrets
+: Permettre au public d'observer la biodiversit� locale sans d�ranger les animaux.
+
+--- File: listes_remi-gaillard_programme_lunaret-reserve-vivante-zoologramme_4.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/lunaret-reserve-vivante-zoologramme/
+
+TITLE: Lunaret : une r�serve vivante et un zoologramme � N'importe qui
+
+DESCRIPTION: Lunaret : une r�serve vivante et un zoologramme
+
+CONTENT:
+
+Retour � la liste
+bien �tre animal
+environnement
+culture
+enfance et �ducation
+Lunaret : une r�serve vivante et un zoologramme
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose de transformer le Zoo du Lunaret en un parc vivant unique en Europe, alliant protection animale et technologie innovante.
+Les piliers du projet :
+Le Zoologramme
+: Une serre amazonienne r�invent�e o� les animaux disparus ou menac�s sont pr�sent�s via des hologrammes, permettant une �ducation sans captivit�.
+R�serve vivante
+: Les animaux pr�sents disposent de vastes espaces naturels. Aucun nouvel animal exotique ne sera introduit.
+Centre de soins de la faune sauvage
+: Cr�ation d'une structure d�di�e au soin des animaux sauvages bless�s et � leur r�introduction dans la nature.
+Observatoires discrets
+: Permettre au public d'observer la biodiversit� locale sans d�ranger les animaux.
+
+--- File: listes_remi-gaillard_programme_lunaret-reserve-vivante-zoologramme_5.txt ---
 URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/lunaret-reserve-vivante-zoologramme
 
 TITLE: Lunaret : une r�serve vivante et un zoologramme � N'importe qui
@@ -12831,6 +19003,66 @@ Montpellier en LEGO
 Panneaux LED 100% culture & sport
 : R�server les panneaux municipaux exclusivement � la promotion gratuite des �v�nements locaux.
 
+--- File: listes_remi-gaillard_programme_montpellier-capitale-culture-actes_4.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/montpellier-capitale-culture-actes/
+
+TITLE: Montpellier : Capitale de la culture par les actes � N'importe qui
+
+DESCRIPTION: Montpellier : Capitale de la culture par les actes
+
+CONTENT:
+
+Retour � la liste
+culture
+enfance et �ducation
+Montpellier : Capitale de la culture par les actes
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose de faire de Montpellier une v�ritable "Capitale de la culture par les actes", en misant sur l'expression artistique libre, l'implication des enfants et la valorisation du patrimoine.
+Une culture vivante et accessible
+L'objectif est de sortir la culture des institutions pour l'amener dans la rue et le quotidien.
+M�mo-logrammes
+: Un parcours urbain immersif o� des figures historiques (Rabelais, Jean Moulin, Agn�s Varda) racontent l'histoire de la ville via des installations artistiques et num�riques.
+Le Corum prend de la hauteur
+: Transformer le toit du Corum en cin�ma ou sc�ne de concert en plein air, avec casques sans fil pour respecter le voisinage.
+Verdanson : Galerie officielle de street-art
+: Reconna�tre les murs du canal comme l'un des plus grands espaces de graffiti d'Europe, avec �clairage nocturne et artistes en r�sidence.
+Orchestre municipal pour tous
+: Pr�t gratuit d'instruments et cours de musique collectifs apr�s l'�cole, notamment dans les quartiers populaires.
+Montpellier en LEGO
+: Les �l�ves des �coles reconstruisent leur ville ou leur quartier en LEGO, expos� dans un lieu public d�di�.
+Panneaux LED 100% culture & sport
+: R�server les panneaux municipaux exclusivement � la promotion gratuite des �v�nements locaux.
+
+--- File: listes_remi-gaillard_programme_montpellier-capitale-culture-actes_5.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/montpellier-capitale-culture-actes
+
+TITLE: Montpellier : Capitale de la culture par les actes � N'importe qui
+
+DESCRIPTION: Montpellier : Capitale de la culture par les actes
+
+CONTENT:
+
+Retour � la liste
+culture
+enfance et �ducation
+Montpellier : Capitale de la culture par les actes
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose de faire de Montpellier une v�ritable "Capitale de la culture par les actes", en misant sur l'expression artistique libre, l'implication des enfants et la valorisation du patrimoine.
+Une culture vivante et accessible
+L'objectif est de sortir la culture des institutions pour l'amener dans la rue et le quotidien.
+M�mo-logrammes
+: Un parcours urbain immersif o� des figures historiques (Rabelais, Jean Moulin, Agn�s Varda) racontent l'histoire de la ville via des installations artistiques et num�riques.
+Le Corum prend de la hauteur
+: Transformer le toit du Corum en cin�ma ou sc�ne de concert en plein air, avec casques sans fil pour respecter le voisinage.
+Verdanson : Galerie officielle de street-art
+: Reconna�tre les murs du canal comme l'un des plus grands espaces de graffiti d'Europe, avec �clairage nocturne et artistes en r�sidence.
+Orchestre municipal pour tous
+: Pr�t gratuit d'instruments et cours de musique collectifs apr�s l'�cole, notamment dans les quartiers populaires.
+Montpellier en LEGO
+: Les �l�ves des �coles reconstruisent leur ville ou leur quartier en LEGO, expos� dans un lieu public d�di�.
+Panneaux LED 100% culture & sport
+: R�server les panneaux municipaux exclusivement � la promotion gratuite des �v�nements locaux.
+
 --- File: listes_remi-gaillard_programme_objectif-zero-dechet-ressource.txt ---
 URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/objectif-zero-dechet-ressource/
 
@@ -12910,6 +19142,58 @@ Z�ro plastique � usage unique
 : Programmes sp�cifiques dans les �coles pour ancrer les r�flexes de r�duction des d�chets d�s le plus jeune �ge.
 
 --- File: listes_remi-gaillard_programme_objectif-zero-dechet-ressource_3.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/objectif-zero-dechet-ressource
+
+TITLE: Objectif Z�ro D�chet et Ressource � N'importe qui
+
+DESCRIPTION: Objectif Z�ro D�chet et Ressource
+
+CONTENT:
+
+Retour � la liste
+d�chets
+environnement
+Objectif Z�ro D�chet et Ressource
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose une politique radicale de r�duction des d�chets pour transformer Montpellier en une ville exemplaire de l'�conomie circulaire.
+Transformer le d�chet en ressource
+L'objectif est de r�duire massivement le tonnage de d�chets produits et d'optimiser leur r�utilisation locale.
+Soutien � la r�paration
+: Favoriser les ressourceries et les ateliers de r�paration pour prolonger la vie des objets.
+Compostage g�n�ralis�
+: Faciliter le tri � la source des biod�chets pour tous les habitants.
+Z�ro plastique � usage unique
+: Accompagner les commer�ants et les �v�nements vers des alternatives durables.
+�ducation et sensibilisation
+: Programmes sp�cifiques dans les �coles pour ancrer les r�flexes de r�duction des d�chets d�s le plus jeune �ge.
+
+--- File: listes_remi-gaillard_programme_objectif-zero-dechet-ressource_4.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/objectif-zero-dechet-ressource/
+
+TITLE: Objectif Z�ro D�chet et Ressource � N'importe qui
+
+DESCRIPTION: Objectif Z�ro D�chet et Ressource
+
+CONTENT:
+
+Retour � la liste
+d�chets
+environnement
+Objectif Z�ro D�chet et Ressource
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose une politique radicale de r�duction des d�chets pour transformer Montpellier en une ville exemplaire de l'�conomie circulaire.
+Transformer le d�chet en ressource
+L'objectif est de r�duire massivement le tonnage de d�chets produits et d'optimiser leur r�utilisation locale.
+Soutien � la r�paration
+: Favoriser les ressourceries et les ateliers de r�paration pour prolonger la vie des objets.
+Compostage g�n�ralis�
+: Faciliter le tri � la source des biod�chets pour tous les habitants.
+Z�ro plastique � usage unique
+: Accompagner les commer�ants et les �v�nements vers des alternatives durables.
+�ducation et sensibilisation
+: Programmes sp�cifiques dans les �coles pour ancrer les r�flexes de r�duction des d�chets d�s le plus jeune �ge.
+
+--- File: listes_remi-gaillard_programme_objectif-zero-dechet-ressource_5.txt ---
 URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/objectif-zero-dechet-ressource
 
 TITLE: Objectif Z�ro D�chet et Ressource � N'importe qui
@@ -13043,6 +19327,60 @@ Continuit� �cologique
 Esth�tique urbaine
 : Changer radicalement l'image de l'entr�e de ville pour passer du "tout voiture" au "tout v�g�tal".
 
+--- File: listes_remi-gaillard_programme_route-foret-entree-montpellier_4.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/route-foret-entree-montpellier/
+
+TITLE: Transformer une entr�e de ville en Route-For�t � N'importe qui
+
+DESCRIPTION: Transformer une entr�e de ville en Route-For�t
+
+CONTENT:
+
+Retour � la liste
+environnement
+changement climatique
+transport et mobilit�s
+Transformer une entr�e de ville en Route-For�t
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose de transformer l'avenue de Toulouse (une entr�e de ville majeure) en une "Route-For�t" en supprimant une voie de circulation automobile pour cr�er une canop�e v�g�tale continue.
+Un prolongement du Parc Montcalm
+L'objectif est de faire dispara�tre visuellement la route au profit d'une for�t urbaine travers�e par une voie de circulation apais�e.
+D�simperm�abilisation
+: Remplacer le goudron inutile par de la pleine terre.
+Canop�e continue
+: Plantation massive d'arbres pour cr�er une ombre naturelle et r�duire la temp�rature au sol.
+Continuit� �cologique
+: Relier le Parc Montcalm au reste de la ville via un corridor vert.
+Esth�tique urbaine
+: Changer radicalement l'image de l'entr�e de ville pour passer du "tout voiture" au "tout v�g�tal".
+
+--- File: listes_remi-gaillard_programme_route-foret-entree-montpellier_5.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/route-foret-entree-montpellier
+
+TITLE: Transformer une entr�e de ville en Route-For�t � N'importe qui
+
+DESCRIPTION: Transformer une entr�e de ville en Route-For�t
+
+CONTENT:
+
+Retour � la liste
+environnement
+changement climatique
+transport et mobilit�s
+Transformer une entr�e de ville en Route-For�t
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose de transformer l'avenue de Toulouse (une entr�e de ville majeure) en une "Route-For�t" en supprimant une voie de circulation automobile pour cr�er une canop�e v�g�tale continue.
+Un prolongement du Parc Montcalm
+L'objectif est de faire dispara�tre visuellement la route au profit d'une for�t urbaine travers�e par une voie de circulation apais�e.
+D�simperm�abilisation
+: Remplacer le goudron inutile par de la pleine terre.
+Canop�e continue
+: Plantation massive d'arbres pour cr�er une ombre naturelle et r�duire la temp�rature au sol.
+Continuit� �cologique
+: Relier le Parc Montcalm au reste de la ville via un corridor vert.
+Esth�tique urbaine
+: Changer radicalement l'image de l'entr�e de ville pour passer du "tout voiture" au "tout v�g�tal".
+
 --- File: listes_remi-gaillard_programme_securite-protection-prevention.txt ---
 URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/securite-protection-prevention/
 
@@ -13134,6 +19472,66 @@ Dignit� et solidarit�
 : Dispositifs sp�cifiques pour assurer la dignit� des personnes sans-abri et lutter contre l'exclusion.
 
 --- File: listes_remi-gaillard_programme_securite-protection-prevention_3.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/securite-protection-prevention
+
+TITLE: S�curit�, Protection, Pr�vention : Une priorit� humaine � N'importe qui
+
+DESCRIPTION: S�curit�, Protection, Pr�vention : Une priorit� humaine
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+solidarit�
+�mancipation et justice sociale
+S�curit�, Protection, Pr�vention : Une priorit� humaine
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose une approche de la s�ret� fond�e sur la pr�sence humaine, la technologie utile et la solidarit� concr�te.
+Les axes forts :
+Bornes d'alerte et CSU
+: Installation de bornes d'appel d'urgence dans la ville, reli�es en direct au Centre de Supervision Urbain pour une assistance imm�diate.
+�clairage adaptatif
+: Am�liorer l'�clairage public l� o� c'est n�cessaire pour renforcer le sentiment de s�curit� sans gaspillage �nerg�tique.
+M�diation de nuit
+: D�ploiement de m�diateurs pour apaiser l'espace public et pr�venir les conflits.
+Police municipale cibl�e
+: Une police de proximit�, visible et accessible, au service des habitants.
+Protection des victimes
+: Cr�ation de nouveaux h�bergements d'urgence pour les victimes de violences et accompagnement vers l'autonomie.
+Dignit� et solidarit�
+: Dispositifs sp�cifiques pour assurer la dignit� des personnes sans-abri et lutter contre l'exclusion.
+
+--- File: listes_remi-gaillard_programme_securite-protection-prevention_4.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/securite-protection-prevention/
+
+TITLE: S�curit�, Protection, Pr�vention : Une priorit� humaine � N'importe qui
+
+DESCRIPTION: S�curit�, Protection, Pr�vention : Une priorit� humaine
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+solidarit�
+�mancipation et justice sociale
+S�curit�, Protection, Pr�vention : Une priorit� humaine
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose une approche de la s�ret� fond�e sur la pr�sence humaine, la technologie utile et la solidarit� concr�te.
+Les axes forts :
+Bornes d'alerte et CSU
+: Installation de bornes d'appel d'urgence dans la ville, reli�es en direct au Centre de Supervision Urbain pour une assistance imm�diate.
+�clairage adaptatif
+: Am�liorer l'�clairage public l� o� c'est n�cessaire pour renforcer le sentiment de s�curit� sans gaspillage �nerg�tique.
+M�diation de nuit
+: D�ploiement de m�diateurs pour apaiser l'espace public et pr�venir les conflits.
+Police municipale cibl�e
+: Une police de proximit�, visible et accessible, au service des habitants.
+Protection des victimes
+: Cr�ation de nouveaux h�bergements d'urgence pour les victimes de violences et accompagnement vers l'autonomie.
+Dignit� et solidarit�
+: Dispositifs sp�cifiques pour assurer la dignit� des personnes sans-abri et lutter contre l'exclusion.
+
+--- File: listes_remi-gaillard_programme_securite-protection-prevention_5.txt ---
 URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/securite-protection-prevention
 
 TITLE: S�curit�, Protection, Pr�vention : Une priorit� humaine � N'importe qui
@@ -13295,6 +19693,72 @@ Financement ma�tris�
 : Construction financ�e par le club et des investisseurs priv�s (naming), sans recours � l'imp�t. La ville fournit le terrain et le cadre.
 Ce projet vise � offrir aux Montpelli�rains un nouvel �lot de fra�cheur, un p�le culturel fort et une infrastructure sportive de haut niveau, tout en respectant les enjeux climatiques actuels.
 
+--- File: listes_remi-gaillard_programme_stade-parc-louis-nicollin_4.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/stade-parc-louis-nicollin/
+
+TITLE: Le Stade-Parc Louis Nicollin : un lieu de vie 365 jours par an � N'importe qui
+
+DESCRIPTION: Le Stade-Parc Louis Nicollin : un lieu de vie 365 jours par an
+
+CONTENT:
+
+Retour � la liste
+sport
+culture
+transport et mobilit�s
+Le Stade-Parc Louis Nicollin : un lieu de vie 365 jours par an
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose la cr�ation du
+Stade-Parc Louis Nicollin
+, un �quipement multi-fonctionnel unique en France, con�u pour �tre un v�ritable lieu de vie quotidien int�grant sport, culture et nature.
+Un concept innovant et �cologique
+Un parc public sur le toit
+: Une promenade panoramique v�g�talis�e (flore m�diterran�enne) accessible � tous via des rampes et escaliers, offrant des points de vue sur la ville et la mer.
+Conception bioclimatique
+: Stade semi-enterr� pour une protection naturelle contre le vent et la chaleur, avec une canop�e photovolta�que pour l'autonomie �nerg�tique.
+Toit r�tractable
+: Permettant une utilisation par tous les temps pour des concerts, c�r�monies et �v�nements majeurs sans risque d'annulation.
+Mus�e Louis Nicollin
+: Un espace permanent d�di� � la collection unique de Louis Nicollin, retra�ant l'histoire du MHSC et de la culture populaire.
+Maison des Sports
+: Un centre sportif couvert (tennis de table, futsal, basket 3x3) ouvert toute l'ann�e sous les tribunes.
+Financement ma�tris�
+: Construction financ�e par le club et des investisseurs priv�s (naming), sans recours � l'imp�t. La ville fournit le terrain et le cadre.
+Ce projet vise � offrir aux Montpelli�rains un nouvel �lot de fra�cheur, un p�le culturel fort et une infrastructure sportive de haut niveau, tout en respectant les enjeux climatiques actuels.
+
+--- File: listes_remi-gaillard_programme_stade-parc-louis-nicollin_5.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/stade-parc-louis-nicollin
+
+TITLE: Le Stade-Parc Louis Nicollin : un lieu de vie 365 jours par an � N'importe qui
+
+DESCRIPTION: Le Stade-Parc Louis Nicollin : un lieu de vie 365 jours par an
+
+CONTENT:
+
+Retour � la liste
+sport
+culture
+transport et mobilit�s
+Le Stade-Parc Louis Nicollin : un lieu de vie 365 jours par an
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose la cr�ation du
+Stade-Parc Louis Nicollin
+, un �quipement multi-fonctionnel unique en France, con�u pour �tre un v�ritable lieu de vie quotidien int�grant sport, culture et nature.
+Un concept innovant et �cologique
+Un parc public sur le toit
+: Une promenade panoramique v�g�talis�e (flore m�diterran�enne) accessible � tous via des rampes et escaliers, offrant des points de vue sur la ville et la mer.
+Conception bioclimatique
+: Stade semi-enterr� pour une protection naturelle contre le vent et la chaleur, avec une canop�e photovolta�que pour l'autonomie �nerg�tique.
+Toit r�tractable
+: Permettant une utilisation par tous les temps pour des concerts, c�r�monies et �v�nements majeurs sans risque d'annulation.
+Mus�e Louis Nicollin
+: Un espace permanent d�di� � la collection unique de Louis Nicollin, retra�ant l'histoire du MHSC et de la culture populaire.
+Maison des Sports
+: Un centre sportif couvert (tennis de table, futsal, basket 3x3) ouvert toute l'ann�e sous les tribunes.
+Financement ma�tris�
+: Construction financ�e par le club et des investisseurs priv�s (naming), sans recours � l'imp�t. La ville fournit le terrain et le cadre.
+Ce projet vise � offrir aux Montpelli�rains un nouvel �lot de fra�cheur, un p�le culturel fort et une infrastructure sportive de haut niveau, tout en respectant les enjeux climatiques actuels.
+
 --- File: listes_remi-gaillard_programme_verdanson-parc-inondable.txt ---
 URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/verdanson-parc-inondable/
 
@@ -13386,6 +19850,66 @@ Un projet finan�able
 : Pas d'expropriations, r�alisation par tron�ons, �ligible aux financements europ�ens et aux fonds "climat/renaturation".
 
 --- File: listes_remi-gaillard_programme_verdanson-parc-inondable_3.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/verdanson-parc-inondable
+
+TITLE: Verdanson : Parc inondable et mus�e � ciel ouvert � N'importe qui
+
+DESCRIPTION: Verdanson : Parc inondable et mus�e � ciel ouvert
+
+CONTENT:
+
+Retour � la liste
+environnement
+changement climatique
+culture
+Verdanson : Parc inondable et mus�e � ciel ouvert
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose de transformer le canal du Verdanson, aujourd'hui largement b�tonn� et m�connu, en un v�ritable parc inondable et un mus�e de street art � ciel ouvert.
+Les points cl�s de la mesure :
+Renaturation du corridor urbain
+: Remplacer le b�ton par des �l�ments naturels (galets, terre, plantes de berges) pour permettre l'infiltration des eaux, recr�er de l'ombre et apporter de la fra�cheur en plein centre-ville.
+Conception r�siliente aux crues
+: Le parc sera con�u pour accepter les crues impr�visibles du Verdanson, avec des zones basses inondables tandis que le cheminement principal reste accessible.
+Accessibilit� renforc�e
+: Cr�ation d'acc�s doux tous les 150-250 m�tres (escaliers-gradins, rampes PMR) pour reconnecter les rues au lit du canal.
+Mus�e de street art � ciel ouvert
+: Reconna�tre et encourager l'expression artistique sur les murs du canal, avec des zones de cr�ation libre, des artistes en r�sidence et des fresques monumentales �clair�es la nuit.
+Un �lot de fra�cheur imm�diat
+: Offrir aux Montpelli�rains une promenade ombrag�e et gratuite pour l'�t�, une nouvelle respiration quotidienne et une gestion naturelle des risques.
+Un projet finan�able
+: Pas d'expropriations, r�alisation par tron�ons, �ligible aux financements europ�ens et aux fonds "climat/renaturation".
+
+--- File: listes_remi-gaillard_programme_verdanson-parc-inondable_4.txt ---
+URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/verdanson-parc-inondable/
+
+TITLE: Verdanson : Parc inondable et mus�e � ciel ouvert � N'importe qui
+
+DESCRIPTION: Verdanson : Parc inondable et mus�e � ciel ouvert
+
+CONTENT:
+
+Retour � la liste
+environnement
+changement climatique
+culture
+Verdanson : Parc inondable et mus�e � ciel ouvert
+Une mesure propos�e par N'importe qui
+R�mi Gaillard propose de transformer le canal du Verdanson, aujourd'hui largement b�tonn� et m�connu, en un v�ritable parc inondable et un mus�e de street art � ciel ouvert.
+Les points cl�s de la mesure :
+Renaturation du corridor urbain
+: Remplacer le b�ton par des �l�ments naturels (galets, terre, plantes de berges) pour permettre l'infiltration des eaux, recr�er de l'ombre et apporter de la fra�cheur en plein centre-ville.
+Conception r�siliente aux crues
+: Le parc sera con�u pour accepter les crues impr�visibles du Verdanson, avec des zones basses inondables tandis que le cheminement principal reste accessible.
+Accessibilit� renforc�e
+: Cr�ation d'acc�s doux tous les 150-250 m�tres (escaliers-gradins, rampes PMR) pour reconnecter les rues au lit du canal.
+Mus�e de street art � ciel ouvert
+: Reconna�tre et encourager l'expression artistique sur les murs du canal, avec des zones de cr�ation libre, des artistes en r�sidence et des fresques monumentales �clair�es la nuit.
+Un �lot de fra�cheur imm�diat
+: Offrir aux Montpelli�rains une promenade ombrag�e et gratuite pour l'�t�, une nouvelle respiration quotidienne et une gestion naturelle des risques.
+Un projet finan�able
+: Pas d'expropriations, r�alisation par tron�ons, �ligible aux financements europ�ens et aux fonds "climat/renaturation".
+
+--- File: listes_remi-gaillard_programme_verdanson-parc-inondable_5.txt ---
 URL: https://montpellier-municipales.fr/listes/remi-gaillard/programme/verdanson-parc-inondable
 
 TITLE: Verdanson : Parc inondable et mus�e � ciel ouvert � N'importe qui
@@ -13801,6 +20325,198 @@ Cr�er des assembl�es de quartier pour donner un pouvoir r�el aux habitants
 Donner aux quartiers un pouvoir r�el de discussion et de d�cision sur ce qui les concerne, c'est le c?ur de cette mesure. L
 [... truncated ...]
 
+--- File: listes_la-municipaliste-kadija-zbairi_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi
+
+TITLE: La Municipaliste � Kadija Zbairi
+
+DESCRIPTION: Pr�sentation de la liste La Municipaliste et de sa t�te de liste Kadija Zbairi qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+La Municipaliste
+T�te de liste�: Kadija Zbairi
+Mouvement citoyen
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Kadija Zbairi
+est
+architecte DPLG
+, originaire de Montpellier. Apr�s avoir exerc� dans d'autres villes, elle est revenue s'installer dans son territoire en 2017, portant un regard renouvel� sur les d�fis urbains, sociaux et environnementaux de la m�tropole. Elle se sp�cialise en
+architecture biomim�tique
+, une discipline qui s'inspire du vivant pour concevoir des espaces urbains plus r�silients, plus sobres et davantage en harmonie avec les �cosyst�mes locaux. Elle a �t� la seule architecte � contribuer aux
+Assises de la transition agro-�cologique et de l'alimentation durable
+de 2019, t�moignant de son engagement � l'intersection de l'urbanisme, du soin aux milieux et de la souverainet� alimentaire.
+Engag�e dans la vie publique, Kadija Zbairi s'est port�e candidate aux
+�lections l�gislatives
+, affirmant une pr�sence citoyenne dans l'espace politique sans appartenance partisane. Sa d�marche s'inscrit dans un
+mouvement citoyen non partisan
+, convaincu que la transformation de la ville doit partir des habitant�es elles-m�mes et d'eux-m�mes, et non de logiques de partis.
+Pour les municipales de 2026, Kadija Zbairi conduit la liste
+� La Municipaliste �
+, dont le slogan ?
+� � vous de jouer ! �
+? r�sume une vision politique fond�e sur la
+participation active des citoyennes et citoyens
+. Le programme s'articule autour de quatre grands axes : la cit� en commun, la culture au quotidien, la transition �cologique et la participation citoyenne. Une candidature qui propose de replacer l'habitant�e au c?ur des d�cisions qui fa�onnent la ville.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+alimentation
+culture
+d�mocratie
+enfance et �ducation
+environnement
+logement
+sant�
+solidarit�
+sport
+s�curit�
+�mancipation et justice sociale
+environnement
+d�mocratie
+Prendre soin des communs pour am�liorer la qualit� de vie
+L'eau, l'air, les sols, les espaces partag�s, certaines ressources et infrastructures conditionnent la vie collective. Lorsqu'ils se d�gradent, ce sont les usages du quotidien qui deviennent plus difficiles, et ce sont souvent les habitant�es les plus vuln�rables qui en paient le prix.
+Ces �l�ments doivent �tre pens�s comme des
+communs
+: des ressources � pr�server, � entretenir et � partager collectivement, et non comme des variables secondaires ou des actifs cessibles. La gestion des communs implique d'associer les habitant�es � leur gouvernance, de d�finir des r�gles d'usage partag�es et de garantir une transparence sur leur �tat.
+Orientation propos�e :
+identifier et prot�ger les communs fragiles � Montpellier ? eau, espaces verts, foncier, infrastructures partag�es ? en instaurant une gouvernance associant les habitant�es � leur gestion et � leur pr�servation.
+alimentation
+environnement
+Renforcer l'autonomie alimentaire de Montpellier
+L'alimentation engage la ville bien au-del� de ce que nous mettons dans nos assiettes. Elle touche � l'usage des terres de la commune, � la pr�servation des sols agricoles, aux modes de production, � la transformation locale et � l'acc�s pour toutes et tous � une alimentation de qualit�.
+Montpellier doit construire son autonomie alimentaire : d�finir ce que la ville peut produire, prot�ger et organiser sur son propre territoire, et relier plus �troitement producteurs, habitant�es, cantines scolaires, commerces et initiatives locales. La pr�servation des terres agricoles p�riurbaines est un enjeu d�cisif, souvent sacrifi� � la pression fonci�re et � l'�talement urbain.
+Orientation propos�e :
+prot�ger les terres agricoles de la commune, soutenir la production alimentaire de proximit� et organiser des circuits courts entre producteurs locaux, cantines et habitant�es.
+sport
+sant�
+Rendre le sport accessible � tous les habitants, quel que soit l'�ge ou les moyens
+Le sport est � la fois une pratique individuelle et un espace de sant�, de rencontre et de discipline collective. � Montpellier, il doit �tre pens� au-del� de la performance et de la comp�tition, comme un �l�ment du quotidien urbain pour tous.
+Acc�s aux �quipements, usages des espaces publics, pratiques libres, clubs associatifs, sport scolaire ou amateur : autant de dimensions � mieux articuler pour que le sport contribue r�ellement � l'�galit�, � la pr�vention et au lien social. Pour cela, l'offre sportive doit �tre accessible, de proximit� et adapt�e aux r�alit�s concr�tes des habitant�es.
+Orientation propos�e :
+d�velopper une offre sportive de proximit�, accessible financi�rement et g�ographiquement, en soutenant les clubs associatifs et en favorisant les pratiques libres dans l'espace public.
+culture
+Soutenir la musique et le spectacle vivant comme pratique quotidienne et accessible
+Montpellier est une ville de musique et de spectacle vivant. Les sc�nes, les artistes et les publics sont l�. L'enjeu est de permettre que cette vitalit� ne se limite pas � la diffusion, mais s'ancre davantage dans la pratique, l'apprentissage et l'exp�rimentation ? � tous les �ges.
+Cela passe par des conditions concr�tes : des lieux accessibles pour r�p�ter et cr�er, des espaces ouverts en dehors des horaires scolaires ou administratifs, des passerelles entre �coles de musique, conservatoires, pratiques amateurs et structures professionnelles. Dans plusieurs villes, l'ouverture de lieux de travail artistique partag�s et la mise � disposition de b�timents existants ont permis d'�largir l'acc�s � la pratique sans multiplier les �quipements.
+Mesure propos�e :
+mieux utiliser les �quipements existants ? en organisant les usages, les horaires et les partenariats ? pour faire de la musique et du spectacle vivant une pratique quotidienne, locale et accessible � toutes et tous.
+logement
+Rendre transparentes les demandes et attributions de logement
+� Montpellier, la question du logement traverse toutes les situations sociales. La ville doit garantir � chaque habitant�e un logement digne et accessible, sans exclure ni �loigner ceux qui y vivent d�j�. Face aux personnes sans abri, la collectivit� ne peut se r�signer � l'habitude : on ne peut pas s'habituer � voir des gens dormir dehors.
+La municipalit� doit interroger les choix qui structurent l'offre de logement : o� l'on construit, pour qui, � quels prix, avec quelles formes et quelles contreparties pour la ville.
+Mesure propos�e :
+rendre transparentes et tra�ables les demandes et attributions de logement social, avec des crit�res lisibles et un suivi public accessible � toutes et tous.
+enfance et �ducation
+culture
+Une ville �ducatrice tout au long de la vie
+L'�ducation ne se limite pas � l'�cole. Elle se construit tout au long de la vie, dans les lieux culturels, les pratiques artistiques, le sport, les savoir-faire, et les rencontres qui permettent de comprendre le monde et de se situer dans la cit�.
+� Montpellier, l'enjeu est de penser l'�ducation comme un fil continu entre �coles, quartiers, �quipements culturels et sportifs, universit�s et initiatives locales. Il ne s'agit pas d'ajouter des dispositifs, mais de mieux relier ce qui existe d�j� ? pour donner � chacun�e les moyens d'apprendre, de d�velopper son esprit critique et de se sentir l�gitime pour comprendre et agir dans la cit�.
+Orientation propos�e :
+tisser des liens entre les diff�rents espaces �ducatifs de la ville ? �cole, culture, sport, quartier ? pour construire un parcours �ducatif accessible et continu pour tous les habitant�es.
+s�curit�
+Une tranquillit� publique fond�e sur la pr�vention et la pr�sence humaine
+La tranquillit� publique ne se r�sume ni � la peur ni � la sanction. Elle tient � la qualit� des espaces, � la pr�sence humaine, aux relations entre habitant�es 
+[... truncated ...]
+
+--- File: listes_la-municipaliste-kadija-zbairi_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/
+
+TITLE: La Municipaliste � Kadija Zbairi
+
+DESCRIPTION: Pr�sentation de la liste La Municipaliste et de sa t�te de liste Kadija Zbairi qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+La Municipaliste
+T�te de liste�: Kadija Zbairi
+Mouvement citoyen
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Kadija Zbairi
+est
+architecte DPLG
+, originaire de Montpellier. Apr�s avoir exerc� dans d'autres villes, elle est revenue s'installer dans son territoire en 2017, portant un regard renouvel� sur les d�fis urbains, sociaux et environnementaux de la m�tropole. Elle se sp�cialise en
+architecture biomim�tique
+, une discipline qui s'inspire du vivant pour concevoir des espaces urbains plus r�silients, plus sobres et davantage en harmonie avec les �cosyst�mes locaux. Elle a �t� la seule architecte � contribuer aux
+Assises de la transition agro-�cologique et de l'alimentation durable
+de 2019, t�moignant de son engagement � l'intersection de l'urbanisme, du soin aux milieux et de la souverainet� alimentaire.
+Engag�e dans la vie publique, Kadija Zbairi s'est port�e candidate aux
+�lections l�gislatives
+, affirmant une pr�sence citoyenne dans l'espace politique sans appartenance partisane. Sa d�marche s'inscrit dans un
+mouvement citoyen non partisan
+, convaincu que la transformation de la ville doit partir des habitant�es elles-m�mes et d'eux-m�mes, et non de logiques de partis.
+Pour les municipales de 2026, Kadija Zbairi conduit la liste
+� La Municipaliste �
+, dont le slogan ?
+� � vous de jouer ! �
+? r�sume une vision politique fond�e sur la
+participation active des citoyennes et citoyens
+. Le programme s'articule autour de quatre grands axes : la cit� en commun, la culture au quotidien, la transition �cologique et la participation citoyenne. Une candidature qui propose de replacer l'habitant�e au c?ur des d�cisions qui fa�onnent la ville.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+alimentation
+culture
+d�mocratie
+enfance et �ducation
+environnement
+logement
+sant�
+solidarit�
+sport
+s�curit�
+�mancipation et justice sociale
+environnement
+d�mocratie
+Prendre soin des communs pour am�liorer la qualit� de vie
+L'eau, l'air, les sols, les espaces partag�s, certaines ressources et infrastructures conditionnent la vie collective. Lorsqu'ils se d�gradent, ce sont les usages du quotidien qui deviennent plus difficiles, et ce sont souvent les habitant�es les plus vuln�rables qui en paient le prix.
+Ces �l�ments doivent �tre pens�s comme des
+communs
+: des ressources � pr�server, � entretenir et � partager collectivement, et non comme des variables secondaires ou des actifs cessibles. La gestion des communs implique d'associer les habitant�es � leur gouvernance, de d�finir des r�gles d'usage partag�es et de garantir une transparence sur leur �tat.
+Orientation propos�e :
+identifier et prot�ger les communs fragiles � Montpellier ? eau, espaces verts, foncier, infrastructures partag�es ? en instaurant une gouvernance associant les habitant�es � leur gestion et � leur pr�servation.
+alimentation
+environnement
+Renforcer l'autonomie alimentaire de Montpellier
+L'alimentation engage la ville bien au-del� de ce que nous mettons dans nos assiettes. Elle touche � l'usage des terres de la commune, � la pr�servation des sols agricoles, aux modes de production, � la transformation locale et � l'acc�s pour toutes et tous � une alimentation de qualit�.
+Montpellier doit construire son autonomie alimentaire : d�finir ce que la ville peut produire, prot�ger et organiser sur son propre territoire, et relier plus �troitement producteurs, habitant�es, cantines scolaires, commerces et initiatives locales. La pr�servation des terres agricoles p�riurbaines est un enjeu d�cisif, souvent sacrifi� � la pression fonci�re et � l'�talement urbain.
+Orientation propos�e :
+prot�ger les terres agricoles de la commune, soutenir la production alimentaire de proximit� et organiser des circuits courts entre producteurs locaux, cantines et habitant�es.
+sport
+sant�
+Rendre le sport accessible � tous les habitants, quel que soit l'�ge ou les moyens
+Le sport est � la fois une pratique individuelle et un espace de sant�, de rencontre et de discipline collective. � Montpellier, il doit �tre pens� au-del� de la performance et de la comp�tition, comme un �l�ment du quotidien urbain pour tous.
+Acc�s aux �quipements, usages des espaces publics, pratiques libres, clubs associatifs, sport scolaire ou amateur : autant de dimensions � mieux articuler pour que le sport contribue r�ellement � l'�galit�, � la pr�vention et au lien social. Pour cela, l'offre sportive doit �tre accessible, de proximit� et adapt�e aux r�alit�s concr�tes des habitant�es.
+Orientation propos�e :
+d�velopper une offre sportive de proximit�, accessible financi�rement et g�ographiquement, en soutenant les clubs associatifs et en favorisant les pratiques libres dans l'espace public.
+culture
+Soutenir la musique et le spectacle vivant comme pratique quotidienne et accessible
+Montpellier est une ville de musique et de spectacle vivant. Les sc�nes, les artistes et les publics sont l�. L'enjeu est de permettre que cette vitalit� ne se limite pas � la diffusion, mais s'ancre davantage dans la pratique, l'apprentissage et l'exp�rimentation ? � tous les �ges.
+Cela passe par des conditions concr�tes : des lieux accessibles pour r�p�ter et cr�er, des espaces ouverts en dehors des horaires scolaires ou administratifs, des passerelles entre �coles de musique, conservatoires, pratiques amateurs et structures professionnelles. Dans plusieurs villes, l'ouverture de lieux de travail artistique partag�s et la mise � disposition de b�timents existants ont permis d'�largir l'acc�s � la pratique sans multiplier les �quipements.
+Mesure propos�e :
+mieux utiliser les �quipements existants ? en organisant les usages, les horaires et les partenariats ? pour faire de la musique et du spectacle vivant une pratique quotidienne, locale et accessible � toutes et tous.
+logement
+Rendre transparentes les demandes et attributions de logement
+� Montpellier, la question du logement traverse toutes les situations sociales. La ville doit garantir � chaque habitant�e un logement digne et accessible, sans exclure ni �loigner ceux qui y vivent d�j�. Face aux personnes sans abri, la collectivit� ne peut se r�signer � l'habitude : on ne peut pas s'habituer � voir des gens dormir dehors.
+La municipalit� doit interroger les choix qui structurent l'offre de logement : o� l'on construit, pour qui, � quels prix, avec quelles formes et quelles contreparties pour la ville.
+Mesure propos�e :
+rendre transparentes et tra�ables les demandes et attributions de logement social, avec des crit�res lisibles et un suivi public accessible � toutes et tous.
+enfance et �ducation
+culture
+Une ville �ducatrice tout au long de la vie
+L'�ducation ne se limite pas � l'�cole. Elle se construit tout au long de la vie, dans les lieux culturels, les pratiques artistiques, le sport, les savoir-faire, et les rencontres qui permettent de comprendre le monde et de se situer dans la cit�.
+� Montpellier, l'enjeu est de penser l'�ducation comme un fil continu entre �coles, quartiers, �quipements culturels et sportifs, universit�s et initiatives locales. Il ne s'agit pas d'ajouter des dispositifs, mais de mieux relier ce qui existe d�j� ? pour donner � chacun�e les moyens d'apprendre, de d�velopper son esprit critique et de se sentir l�gitime pour comprendre et agir dans la cit�.
+Orientation propos�e :
+tisser des liens entre les diff�rents espaces �ducatifs de la ville ? �cole, culture, sport, quartier ? pour construire un parcours �ducatif accessible et continu pour tous les habitant�es.
+s�curit�
+Une tranquillit� publique fond�e sur la pr�vention et la pr�sence humaine
+La tranquillit� publique ne se r�sume ni � la peur ni � la sanction. Elle tient � la qualit� des espaces, � la pr�sence humaine, aux relations entre habitant�es
+[... truncated ...]
+
 --- File: listes_la-municipaliste-kadija-zbairi_programme_alimentation-autonomie-locale.txt ---
 URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/alimentation-autonomie-locale/
 
@@ -13859,6 +20575,44 @@ Orientation propos�e :
 prot�ger les terres agricoles de la commune, soutenir la production alimentaire de proximit� et organiser des circuits courts entre producteurs locaux, cantines et habitant�es.
 
 --- File: listes_la-municipaliste-kadija-zbairi_programme_alimentation-autonomie-locale_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/alimentation-autonomie-locale
+
+TITLE: Renforcer l'autonomie alimentaire de Montpellier � La Municipaliste
+
+DESCRIPTION: Renforcer l'autonomie alimentaire de Montpellier
+
+CONTENT:
+
+Retour � la liste
+alimentation
+environnement
+Renforcer l'autonomie alimentaire de Montpellier
+Une mesure propos�e par La Municipaliste
+L'alimentation engage la ville bien au-del� de ce que nous mettons dans nos assiettes. Elle touche � l'usage des terres de la commune, � la pr�servation des sols agricoles, aux modes de production, � la transformation locale et � l'acc�s pour toutes et tous � une alimentation de qualit�.
+Montpellier doit construire son autonomie alimentaire : d�finir ce que la ville peut produire, prot�ger et organiser sur son propre territoire, et relier plus �troitement producteurs, habitant�es, cantines scolaires, commerces et initiatives locales. La pr�servation des terres agricoles p�riurbaines est un enjeu d�cisif, souvent sacrifi� � la pression fonci�re et � l'�talement urbain.
+Orientation propos�e :
+prot�ger les terres agricoles de la commune, soutenir la production alimentaire de proximit� et organiser des circuits courts entre producteurs locaux, cantines et habitant�es.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_alimentation-autonomie-locale_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/alimentation-autonomie-locale/
+
+TITLE: Renforcer l'autonomie alimentaire de Montpellier � La Municipaliste
+
+DESCRIPTION: Renforcer l'autonomie alimentaire de Montpellier
+
+CONTENT:
+
+Retour � la liste
+alimentation
+environnement
+Renforcer l'autonomie alimentaire de Montpellier
+Une mesure propos�e par La Municipaliste
+L'alimentation engage la ville bien au-del� de ce que nous mettons dans nos assiettes. Elle touche � l'usage des terres de la commune, � la pr�servation des sols agricoles, aux modes de production, � la transformation locale et � l'acc�s pour toutes et tous � une alimentation de qualit�.
+Montpellier doit construire son autonomie alimentaire : d�finir ce que la ville peut produire, prot�ger et organiser sur son propre territoire, et relier plus �troitement producteurs, habitant�es, cantines scolaires, commerces et initiatives locales. La pr�servation des terres agricoles p�riurbaines est un enjeu d�cisif, souvent sacrifi� � la pression fonci�re et � l'�talement urbain.
+Orientation propos�e :
+prot�ger les terres agricoles de la commune, soutenir la production alimentaire de proximit� et organiser des circuits courts entre producteurs locaux, cantines et habitant�es.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_alimentation-autonomie-locale_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/alimentation-autonomie-locale
 
 TITLE: Renforcer l'autonomie alimentaire de Montpellier � La Municipaliste
@@ -13949,6 +20703,42 @@ Au d�marrage, un accompagnement l�ger facilite l'acc�s de toutes et tous :
 Mesure propos�e :
 instaurer des assembl�es de quartier permanentes, organis�es � par le bas �, avec un cadre municipal minimal et un lien direct aux processus de d�cision de la ville.
 
+--- File: listes_la-municipaliste-kadija-zbairi_programme_assemblees-de-quartier_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/assemblees-de-quartier/
+
+TITLE: Cr�er des assembl�es de quartier pour donner un pouvoir r�el aux habitants � La Municipaliste
+
+DESCRIPTION: Cr�er des assembl�es de quartier pour donner un pouvoir r�el aux habitants
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+Cr�er des assembl�es de quartier pour donner un pouvoir r�el aux habitants
+Une mesure propos�e par La Municipaliste
+Donner aux quartiers un pouvoir r�el de discussion et de d�cision sur ce qui les concerne, c'est le c?ur de cette mesure. La ville met � disposition un cadre simple, des lieux et des horaires clairs ; les habitant�es s'organisent librement pour se r�unir, �changer et formuler leurs priorit�s.
+Au d�marrage, un accompagnement l�ger facilite l'acc�s de toutes et tous : accueil des enfants, formats adapt�s aux familles, aux actifs et aux personnes �g�es. Ces assembl�es ne sont pas des espaces de consultation ponctuelle, mais des lieux r�guliers, stables, o� l'on construit dans la dur�e ? et o� ce qui est formul� trouve un relais clair vers la d�cision municipale.
+Mesure propos�e :
+instaurer des assembl�es de quartier permanentes, organis�es � par le bas �, avec un cadre municipal minimal et un lien direct aux processus de d�cision de la ville.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_assemblees-de-quartier_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/assemblees-de-quartier
+
+TITLE: Cr�er des assembl�es de quartier pour donner un pouvoir r�el aux habitants � La Municipaliste
+
+DESCRIPTION: Cr�er des assembl�es de quartier pour donner un pouvoir r�el aux habitants
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+Cr�er des assembl�es de quartier pour donner un pouvoir r�el aux habitants
+Une mesure propos�e par La Municipaliste
+Donner aux quartiers un pouvoir r�el de discussion et de d�cision sur ce qui les concerne, c'est le c?ur de cette mesure. La ville met � disposition un cadre simple, des lieux et des horaires clairs ; les habitant�es s'organisent librement pour se r�unir, �changer et formuler leurs priorit�s.
+Au d�marrage, un accompagnement l�ger facilite l'acc�s de toutes et tous : accueil des enfants, formats adapt�s aux familles, aux actifs et aux personnes �g�es. Ces assembl�es ne sont pas des espaces de consultation ponctuelle, mais des lieux r�guliers, stables, o� l'on construit dans la dur�e ? et o� ce qui est formul� trouve un relais clair vers la d�cision municipale.
+Mesure propos�e :
+instaurer des assembl�es de quartier permanentes, organis�es � par le bas �, avec un cadre municipal minimal et un lien direct aux processus de d�cision de la ville.
+
 --- File: listes_la-municipaliste-kadija-zbairi_programme_budgets-participatifs.txt ---
 URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/budgets-participatifs/
 
@@ -14010,6 +20800,46 @@ Mesure propos�e :
 instituer un budget participatif sur le temps long, pens� comme un outil d'auto-organisation citoyenne, avec un processus clair d'�laboration collective et une r�ponse publique motiv�e de la municipalit� pour chaque proposition.
 
 --- File: listes_la-municipaliste-kadija-zbairi_programme_budgets-participatifs_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/budgets-participatifs
+
+TITLE: Instaurer des budgets participatifs fond�s sur l'auto-organisation citoyenne � La Municipaliste
+
+DESCRIPTION: Instaurer des budgets participatifs fond�s sur l'auto-organisation citoyenne
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+Instaurer des budgets participatifs fond�s sur l'auto-organisation citoyenne
+Une mesure propos�e par La Municipaliste
+R�server une part visible du budget municipal � des choix propos�s et d�cid�s par les habitant�es : c'est l'objet du budget participatif. Mais ici, l'approche va plus loin qu'une simple mise en concurrence de projets.
+Le processus propos� est celui d'un
+apprentissage collectif
+: partir d'un besoin r�el, en discuter entre habitant�es, en estimer le co�t, en v�rifier la faisabilit� technique, puis pr�senter � la ville une proposition d�j� construite collectivement. La ville a un r�le pr�cis et lisible : r�pondre de mani�re transparente, dire ce qui est possible, ce qui ne l'est pas, et pourquoi.
+Mesure propos�e :
+instituer un budget participatif sur le temps long, pens� comme un outil d'auto-organisation citoyenne, avec un processus clair d'�laboration collective et une r�ponse publique motiv�e de la municipalit� pour chaque proposition.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_budgets-participatifs_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/budgets-participatifs/
+
+TITLE: Instaurer des budgets participatifs fond�s sur l'auto-organisation citoyenne � La Municipaliste
+
+DESCRIPTION: Instaurer des budgets participatifs fond�s sur l'auto-organisation citoyenne
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+Instaurer des budgets participatifs fond�s sur l'auto-organisation citoyenne
+Une mesure propos�e par La Municipaliste
+R�server une part visible du budget municipal � des choix propos�s et d�cid�s par les habitant�es : c'est l'objet du budget participatif. Mais ici, l'approche va plus loin qu'une simple mise en concurrence de projets.
+Le processus propos� est celui d'un
+apprentissage collectif
+: partir d'un besoin r�el, en discuter entre habitant�es, en estimer le co�t, en v�rifier la faisabilit� technique, puis pr�senter � la ville une proposition d�j� construite collectivement. La ville a un r�le pr�cis et lisible : r�pondre de mani�re transparente, dire ce qui est possible, ce qui ne l'est pas, et pourquoi.
+Mesure propos�e :
+instituer un budget participatif sur le temps long, pens� comme un outil d'auto-organisation citoyenne, avec un processus clair d'�laboration collective et une r�ponse publique motiv�e de la municipalit� pour chaque proposition.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_budgets-participatifs_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/budgets-participatifs
 
 TITLE: Instaurer des budgets participatifs fond�s sur l'auto-organisation citoyenne � La Municipaliste
@@ -14113,6 +20943,48 @@ communs
 Orientation propos�e :
 identifier et prot�ger les communs fragiles � Montpellier ? eau, espaces verts, foncier, infrastructures partag�es ? en instaurant une gouvernance associant les habitant�es � leur gestion et � leur pr�servation.
 
+--- File: listes_la-municipaliste-kadija-zbairi_programme_communs-preservation-ressources-partagees_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/communs-preservation-ressources-partagees/
+
+TITLE: Prendre soin des communs pour am�liorer la qualit� de vie � La Municipaliste
+
+DESCRIPTION: Prendre soin des communs pour am�liorer la qualit� de vie
+
+CONTENT:
+
+Retour � la liste
+environnement
+d�mocratie
+Prendre soin des communs pour am�liorer la qualit� de vie
+Une mesure propos�e par La Municipaliste
+L'eau, l'air, les sols, les espaces partag�s, certaines ressources et infrastructures conditionnent la vie collective. Lorsqu'ils se d�gradent, ce sont les usages du quotidien qui deviennent plus difficiles, et ce sont souvent les habitant�es les plus vuln�rables qui en paient le prix.
+Ces �l�ments doivent �tre pens�s comme des
+communs
+: des ressources � pr�server, � entretenir et � partager collectivement, et non comme des variables secondaires ou des actifs cessibles. La gestion des communs implique d'associer les habitant�es � leur gouvernance, de d�finir des r�gles d'usage partag�es et de garantir une transparence sur leur �tat.
+Orientation propos�e :
+identifier et prot�ger les communs fragiles � Montpellier ? eau, espaces verts, foncier, infrastructures partag�es ? en instaurant une gouvernance associant les habitant�es � leur gestion et � leur pr�servation.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_communs-preservation-ressources-partagees_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/communs-preservation-ressources-partagees
+
+TITLE: Prendre soin des communs pour am�liorer la qualit� de vie � La Municipaliste
+
+DESCRIPTION: Prendre soin des communs pour am�liorer la qualit� de vie
+
+CONTENT:
+
+Retour � la liste
+environnement
+d�mocratie
+Prendre soin des communs pour am�liorer la qualit� de vie
+Une mesure propos�e par La Municipaliste
+L'eau, l'air, les sols, les espaces partag�s, certaines ressources et infrastructures conditionnent la vie collective. Lorsqu'ils se d�gradent, ce sont les usages du quotidien qui deviennent plus difficiles, et ce sont souvent les habitant�es les plus vuln�rables qui en paient le prix.
+Ces �l�ments doivent �tre pens�s comme des
+communs
+: des ressources � pr�server, � entretenir et � partager collectivement, et non comme des variables secondaires ou des actifs cessibles. La gestion des communs implique d'associer les habitant�es � leur gouvernance, de d�finir des r�gles d'usage partag�es et de garantir une transparence sur leur �tat.
+Orientation propos�e :
+identifier et prot�ger les communs fragiles � Montpellier ? eau, espaces verts, foncier, infrastructures partag�es ? en instaurant une gouvernance associant les habitant�es � leur gestion et � leur pr�servation.
+
 --- File: listes_la-municipaliste-kadija-zbairi_programme_education-vie-entiere.txt ---
 URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/education-vie-entiere/
 
@@ -14133,6 +21005,25 @@ Orientation proposée :
 tisser des liens entre les différents espaces éducatifs de la ville — école, culture, sport, quartier — pour construire un parcours éducatif accessible et continu pour tous les habitant·es.
 
 --- File: listes_la-municipaliste-kadija-zbairi_programme_education-vie-entiere_1.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/education-vie-entiere/
+
+TITLE: Une ville �ducatrice tout au long de la vie � La Municipaliste
+
+DESCRIPTION: Une ville �ducatrice tout au long de la vie
+
+CONTENT:
+
+Retour � la liste
+enfance et �ducation
+culture
+Une ville �ducatrice tout au long de la vie
+Une mesure propos�e par La Municipaliste
+L'�ducation ne se limite pas � l'�cole. Elle se construit tout au long de la vie, dans les lieux culturels, les pratiques artistiques, le sport, les savoir-faire, et les rencontres qui permettent de comprendre le monde et de se situer dans la cit�.
+� Montpellier, l'enjeu est de penser l'�ducation comme un fil continu entre �coles, quartiers, �quipements culturels et sportifs, universit�s et initiatives locales. Il ne s'agit pas d'ajouter des dispositifs, mais de mieux relier ce qui existe d�j� ? pour donner � chacun�e les moyens d'apprendre, de d�velopper son esprit critique et de se sentir l�gitime pour comprendre et agir dans la cit�.
+Orientation propos�e :
+tisser des liens entre les diff�rents espaces �ducatifs de la ville ? �cole, culture, sport, quartier ? pour construire un parcours �ducatif accessible et continu pour tous les habitant�es.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_education-vie-entiere_2.txt ---
 URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/education-vie-entiere/
 
 TITLE: Une ville �ducatrice tout au long de la vie � La Municipaliste
@@ -14206,6 +21097,42 @@ Mesure propos�e :
 rendre transparentes et tra�ables les demandes et attributions de logement social, avec des crit�res lisibles et un suivi public accessible � toutes et tous.
 
 --- File: listes_la-municipaliste-kadija-zbairi_programme_logement-attributions-transparentes_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/logement-attributions-transparentes
+
+TITLE: Rendre transparentes les demandes et attributions de logement � La Municipaliste
+
+DESCRIPTION: Rendre transparentes les demandes et attributions de logement
+
+CONTENT:
+
+Retour � la liste
+logement
+Rendre transparentes les demandes et attributions de logement
+Une mesure propos�e par La Municipaliste
+� Montpellier, la question du logement traverse toutes les situations sociales. La ville doit garantir � chaque habitant�e un logement digne et accessible, sans exclure ni �loigner ceux qui y vivent d�j�. Face aux personnes sans abri, la collectivit� ne peut se r�signer � l'habitude : on ne peut pas s'habituer � voir des gens dormir dehors.
+La municipalit� doit interroger les choix qui structurent l'offre de logement : o� l'on construit, pour qui, � quels prix, avec quelles formes et quelles contreparties pour la ville.
+Mesure propos�e :
+rendre transparentes et tra�ables les demandes et attributions de logement social, avec des crit�res lisibles et un suivi public accessible � toutes et tous.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_logement-attributions-transparentes_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/logement-attributions-transparentes/
+
+TITLE: Rendre transparentes les demandes et attributions de logement � La Municipaliste
+
+DESCRIPTION: Rendre transparentes les demandes et attributions de logement
+
+CONTENT:
+
+Retour � la liste
+logement
+Rendre transparentes les demandes et attributions de logement
+Une mesure propos�e par La Municipaliste
+� Montpellier, la question du logement traverse toutes les situations sociales. La ville doit garantir � chaque habitant�e un logement digne et accessible, sans exclure ni �loigner ceux qui y vivent d�j�. Face aux personnes sans abri, la collectivit� ne peut se r�signer � l'habitude : on ne peut pas s'habituer � voir des gens dormir dehors.
+La municipalit� doit interroger les choix qui structurent l'offre de logement : o� l'on construit, pour qui, � quels prix, avec quelles formes et quelles contreparties pour la ville.
+Mesure propos�e :
+rendre transparentes et tra�ables les demandes et attributions de logement social, avec des crit�res lisibles et un suivi public accessible � toutes et tous.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_logement-attributions-transparentes_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/logement-attributions-transparentes
 
 TITLE: Rendre transparentes les demandes et attributions de logement � La Municipaliste
@@ -14299,6 +21226,44 @@ L'enjeu n'est pas de construire de nouveaux b�timents, mais de rendre pleineme
 Mesure propos�e :
 ouvrir les Maisons pour Tous 7 jours sur 7, avec une organisation adapt�e et s�curis�e reposant sur des partenariats associatifs et une gestion partag�e avec les habitant�es.
 
+--- File: listes_la-municipaliste-kadija-zbairi_programme_maisons-pour-tous-ouverture-7j7_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/maisons-pour-tous-ouverture-7j7/
+
+TITLE: Ouvrir les Maisons pour Tous 7 jours sur 7 � La Municipaliste
+
+DESCRIPTION: Ouvrir les Maisons pour Tous 7 jours sur 7
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+solidarit�
+Ouvrir les Maisons pour Tous 7 jours sur 7
+Une mesure propos�e par La Municipaliste
+Les Maisons pour Tous existent d�j�. Pourtant, leur fermeture le week-end limite fortement leur usage, alors m�me que les besoins de locaux pour se r�unir, travailler ensemble, organiser des actions ou des projets sont importants ? notamment pour les associations, collectifs et habitant�es qui n'ont pas acc�s � d'autres espaces.
+L'enjeu n'est pas de construire de nouveaux b�timents, mais de rendre pleinement disponibles ceux qui existent, en s'appuyant sur des modes de gestion partag�s, des partenariats associatifs et une pr�sence humaine adapt�e. Dans de nombreuses villes, cette ouverture �largie a permis de renforcer l'auto-organisation des habitant�es sans multiplier les co�ts d'investissement.
+Mesure propos�e :
+ouvrir les Maisons pour Tous 7 jours sur 7, avec une organisation adapt�e et s�curis�e reposant sur des partenariats associatifs et une gestion partag�e avec les habitant�es.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_maisons-pour-tous-ouverture-7j7_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/maisons-pour-tous-ouverture-7j7
+
+TITLE: Ouvrir les Maisons pour Tous 7 jours sur 7 � La Municipaliste
+
+DESCRIPTION: Ouvrir les Maisons pour Tous 7 jours sur 7
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+solidarit�
+Ouvrir les Maisons pour Tous 7 jours sur 7
+Une mesure propos�e par La Municipaliste
+Les Maisons pour Tous existent d�j�. Pourtant, leur fermeture le week-end limite fortement leur usage, alors m�me que les besoins de locaux pour se r�unir, travailler ensemble, organiser des actions ou des projets sont importants ? notamment pour les associations, collectifs et habitant�es qui n'ont pas acc�s � d'autres espaces.
+L'enjeu n'est pas de construire de nouveaux b�timents, mais de rendre pleinement disponibles ceux qui existent, en s'appuyant sur des modes de gestion partag�s, des partenariats associatifs et une pr�sence humaine adapt�e. Dans de nombreuses villes, cette ouverture �largie a permis de renforcer l'auto-organisation des habitant�es sans multiplier les co�ts d'investissement.
+Mesure propos�e :
+ouvrir les Maisons pour Tous 7 jours sur 7, avec une organisation adapt�e et s�curis�e reposant sur des partenariats associatifs et une gestion partag�e avec les habitant�es.
+
 --- File: listes_la-municipaliste-kadija-zbairi_programme_musique-spectacle-vivant-pratique-locale.txt ---
 URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/musique-spectacle-vivant-pratique-locale/
 
@@ -14318,6 +21283,24 @@ Mesure proposée :
 mieux utiliser les équipements existants — en organisant les usages, les horaires et les partenariats — pour faire de la musique et du spectacle vivant une pratique quotidienne, locale et accessible à toutes et tous.
 
 --- File: listes_la-municipaliste-kadija-zbairi_programme_musique-spectacle-vivant-pratique-locale_1.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/musique-spectacle-vivant-pratique-locale/
+
+TITLE: Soutenir la musique et le spectacle vivant comme pratique quotidienne et accessible � La Municipaliste
+
+DESCRIPTION: Soutenir la musique et le spectacle vivant comme pratique quotidienne et accessible
+
+CONTENT:
+
+Retour � la liste
+culture
+Soutenir la musique et le spectacle vivant comme pratique quotidienne et accessible
+Une mesure propos�e par La Municipaliste
+Montpellier est une ville de musique et de spectacle vivant. Les sc�nes, les artistes et les publics sont l�. L'enjeu est de permettre que cette vitalit� ne se limite pas � la diffusion, mais s'ancre davantage dans la pratique, l'apprentissage et l'exp�rimentation ? � tous les �ges.
+Cela passe par des conditions concr�tes : des lieux accessibles pour r�p�ter et cr�er, des espaces ouverts en dehors des horaires scolaires ou administratifs, des passerelles entre �coles de musique, conservatoires, pratiques amateurs et structures professionnelles. Dans plusieurs villes, l'ouverture de lieux de travail artistique partag�s et la mise � disposition de b�timents existants ont permis d'�largir l'acc�s � la pratique sans multiplier les �quipements.
+Mesure propos�e :
+mieux utiliser les �quipements existants ? en organisant les usages, les horaires et les partenariats ? pour faire de la musique et du spectacle vivant une pratique quotidienne, locale et accessible � toutes et tous.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_musique-spectacle-vivant-pratique-locale_2.txt ---
 URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/musique-spectacle-vivant-pratique-locale/
 
 TITLE: Soutenir la musique et le spectacle vivant comme pratique quotidienne et accessible � La Municipaliste
@@ -14411,6 +21394,44 @@ La municipalit� doit partir du r�el des habitant�es pour identifier ce qui
 Orientation propos�e :
 d�velopper des dispositifs d'insertion ancr�s dans les quartiers, articulant formation, acc�s aux droits et �conomie sociale, en s'appuyant sur les initiatives et les r�alit�s locales des habitants.
 
+--- File: listes_la-municipaliste-kadija-zbairi_programme_precarite-chomage-insertion_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/precarite-chomage-insertion/
+
+TITLE: R�duire la pr�carit� et ouvrir des voies concr�tes vers l'emploi � La Municipaliste
+
+DESCRIPTION: R�duire la pr�carit� et ouvrir des voies concr�tes vers l'emploi
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+�mancipation et justice sociale
+R�duire la pr�carit� et ouvrir des voies concr�tes vers l'emploi
+Une mesure propos�e par La Municipaliste
+Dans nos soci�t�s, le travail est devenu une mesure de reconnaissance sociale ? et l'absence d'emploi peut enfermer, m�me lorsque le ch�mage est largement structurel. Avec la transformation num�rique et l'intelligence artificielle, il ne s'agit plus seulement de � retrouver un emploi �, mais de repenser la place du travail, des comp�tences et de l'activit� dans la ville.
+La municipalit� doit partir du r�el des habitant�es pour identifier ce qui fragilise, mais aussi ce qui remet en mouvement : formation, acc�s aux droits, activit� locale, �conomie sociale et solidaire, entraide et nouvelles formes d'insertion. Les questions de travail, d'automatisation et de dignit� doivent guider l'action locale, sans attendre des solutions toutes faites venues d'ailleurs.
+Orientation propos�e :
+d�velopper des dispositifs d'insertion ancr�s dans les quartiers, articulant formation, acc�s aux droits et �conomie sociale, en s'appuyant sur les initiatives et les r�alit�s locales des habitants.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_precarite-chomage-insertion_5.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/precarite-chomage-insertion
+
+TITLE: R�duire la pr�carit� et ouvrir des voies concr�tes vers l'emploi � La Municipaliste
+
+DESCRIPTION: R�duire la pr�carit� et ouvrir des voies concr�tes vers l'emploi
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+�mancipation et justice sociale
+R�duire la pr�carit� et ouvrir des voies concr�tes vers l'emploi
+Une mesure propos�e par La Municipaliste
+Dans nos soci�t�s, le travail est devenu une mesure de reconnaissance sociale ? et l'absence d'emploi peut enfermer, m�me lorsque le ch�mage est largement structurel. Avec la transformation num�rique et l'intelligence artificielle, il ne s'agit plus seulement de � retrouver un emploi �, mais de repenser la place du travail, des comp�tences et de l'activit� dans la ville.
+La municipalit� doit partir du r�el des habitant�es pour identifier ce qui fragilise, mais aussi ce qui remet en mouvement : formation, acc�s aux droits, activit� locale, �conomie sociale et solidaire, entraide et nouvelles formes d'insertion. Les questions de travail, d'automatisation et de dignit� doivent guider l'action locale, sans attendre des solutions toutes faites venues d'ailleurs.
+Orientation propos�e :
+d�velopper des dispositifs d'insertion ancr�s dans les quartiers, articulant formation, acc�s aux droits et �conomie sociale, en s'appuyant sur les initiatives et les r�alit�s locales des habitants.
+
 --- File: listes_la-municipaliste-kadija-zbairi_programme_sport-accessible-pour-tous.txt ---
 URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/sport-accessible-pour-tous/
 
@@ -14431,6 +21452,25 @@ Orientation proposée :
 développer une offre sportive de proximité, accessible financièrement et géographiquement, en soutenant les clubs associatifs et en favorisant les pratiques libres dans l'espace public.
 
 --- File: listes_la-municipaliste-kadija-zbairi_programme_sport-accessible-pour-tous_1.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/sport-accessible-pour-tous/
+
+TITLE: Rendre le sport accessible � tous les habitants, quel que soit l'�ge ou les moyens � La Municipaliste
+
+DESCRIPTION: Rendre le sport accessible � tous les habitants, quel que soit l'�ge ou les moyens
+
+CONTENT:
+
+Retour � la liste
+sport
+sant�
+Rendre le sport accessible � tous les habitants, quel que soit l'�ge ou les moyens
+Une mesure propos�e par La Municipaliste
+Le sport est � la fois une pratique individuelle et un espace de sant�, de rencontre et de discipline collective. � Montpellier, il doit �tre pens� au-del� de la performance et de la comp�tition, comme un �l�ment du quotidien urbain pour tous.
+Acc�s aux �quipements, usages des espaces publics, pratiques libres, clubs associatifs, sport scolaire ou amateur : autant de dimensions � mieux articuler pour que le sport contribue r�ellement � l'�galit�, � la pr�vention et au lien social. Pour cela, l'offre sportive doit �tre accessible, de proximit� et adapt�e aux r�alit�s concr�tes des habitant�es.
+Orientation propos�e :
+d�velopper une offre sportive de proximit�, accessible financi�rement et g�ographiquement, en soutenant les clubs associatifs et en favorisant les pratiques libres dans l'espace public.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_sport-accessible-pour-tous_2.txt ---
 URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/sport-accessible-pour-tous/
 
 TITLE: Rendre le sport accessible � tous les habitants, quel que soit l'�ge ou les moyens � La Municipaliste
@@ -14504,6 +21544,42 @@ Orientation propos�e :
 fonder la politique de tranquillit� publique sur la pr�vention, la pr�sence humaine et la m�diation, plut�t que sur la surveillance et la r�pression.
 
 --- File: listes_la-municipaliste-kadija-zbairi_programme_tranquillite-publique-prevention_3.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/tranquillite-publique-prevention
+
+TITLE: Une tranquillit� publique fond�e sur la pr�vention et la pr�sence humaine � La Municipaliste
+
+DESCRIPTION: Une tranquillit� publique fond�e sur la pr�vention et la pr�sence humaine
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+Une tranquillit� publique fond�e sur la pr�vention et la pr�sence humaine
+Une mesure propos�e par La Municipaliste
+La tranquillit� publique ne se r�sume ni � la peur ni � la sanction. Elle tient � la qualit� des espaces, � la pr�sence humaine, aux relations entre habitant�es et � la capacit� de la ville � pr�venir plut�t qu'� subir les tensions.
+Une approche s�rieuse de la s�curit� passe par l'attention au quotidien : �clairage, usages partag�s de l'espace, m�diation, continuit� des services de proximit� et lisibilit� des r�gles communes. C'est en rendant la ville plus habit�e et plus lisible qu'on cr�e les conditions d'une coexistence apais�e.
+Orientation propos�e :
+fonder la politique de tranquillit� publique sur la pr�vention, la pr�sence humaine et la m�diation, plut�t que sur la surveillance et la r�pression.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_tranquillite-publique-prevention_4.txt ---
+URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/tranquillite-publique-prevention/
+
+TITLE: Une tranquillit� publique fond�e sur la pr�vention et la pr�sence humaine � La Municipaliste
+
+DESCRIPTION: Une tranquillit� publique fond�e sur la pr�vention et la pr�sence humaine
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+Une tranquillit� publique fond�e sur la pr�vention et la pr�sence humaine
+Une mesure propos�e par La Municipaliste
+La tranquillit� publique ne se r�sume ni � la peur ni � la sanction. Elle tient � la qualit� des espaces, � la pr�sence humaine, aux relations entre habitant�es et � la capacit� de la ville � pr�venir plut�t qu'� subir les tensions.
+Une approche s�rieuse de la s�curit� passe par l'attention au quotidien : �clairage, usages partag�s de l'espace, m�diation, continuit� des services de proximit� et lisibilit� des r�gles communes. C'est en rendant la ville plus habit�e et plus lisible qu'on cr�e les conditions d'une coexistence apais�e.
+Orientation propos�e :
+fonder la politique de tranquillit� publique sur la pr�vention, la pr�sence humaine et la m�diation, plut�t que sur la surveillance et la r�pression.
+
+--- File: listes_la-municipaliste-kadija-zbairi_programme_tranquillite-publique-prevention_5.txt ---
 URL: https://montpellier-municipales.fr/listes/la-municipaliste-kadija-zbairi/programme/tranquillite-publique-prevention
 
 TITLE: Une tranquillit� publique fond�e sur la pr�vention et la pr�sence humaine � La Municipaliste
@@ -14959,6 +22035,224 @@ Priorit� aux besoins humains
 Mobilisation collective
 : Encourager les travailleurs � s'organiser et � lutter collectivement pour d�fendre leurs int�r�ts de classe.
 
+--- File: listes_lutte-ouvriere_4.txt ---
+URL: https://montpellier-municipales.fr/listes/lutte-ouvriere
+
+TITLE: Lutte Ouvri�re � Morgane Lachiver
+
+DESCRIPTION: Pr�sentation de la liste Lutte Ouvri�re et de sa t�te de liste Morgane Lachiver qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Lutte Ouvri�re
+T�te de liste�: Morgane Lachiver
+Lutte Ouvri�re
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Lutte Ouvri�re
+(LO) se pr�sente aux �lections municipales de 2026 � Montpellier avec une liste exclusivement compos�e de travailleurs, d'ouvriers, d'employ�s et de ch�meurs. Port�e par la volont� de faire entendre le camp des travailleurs, cette liste refuse la logique de gestion municipale traditionnelle pour en faire une tribune politique contre le capitalisme.
+La liste met en avant :
+Le camp des travailleurs
+: pour d�noncer l'exploitation et la dictature du profit.
+L'opposition � la guerre
+: contre la militarisation de la soci�t� et le recrutement militaire dans les lyc�es.
+La d�fense des services publics
+: pour exiger des moyens pour la population plut�t que pour les profits priv�s.
+La liste est conduite par
+Morgane Lachiver
+.
+Morgane Lachiver et le combat ouvrier
+Morgane Lachiver est une militante engag�e de longue date au sein de
+Lutte Ouvri�re
+. Sa candidature vise � offrir une voix politique � ceux qui n'en ont pas dans les institutions : ceux qui produisent toutes les richesses mais n'ont aucun pouvoir de d�cision.
+Pour Morgane Lachiver, ces �lections sont l'occasion de d�noncer un syst�me qui "offre aux jeunes d'�tre de la chair � patron ou de la chair � canon". Elle s'oppose fermement aux hausses des budgets militaires r�gionaux et � l'emprise croissante de l'arm�e sur la jeunesse. Son combat est celui de la solidarit� internationale des travailleurs contre la barbarie capitaliste et la marche � la guerre.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+d�mocratie
+enfance et �ducation
+solidarit�
+�mancipation et justice sociale
+d�mocratie
+enfance et �ducation
+Refus de la marche � la guerre
+Morgane Lachiver et Lutte Ouvri�re d�noncent l'augmentation des budgets militaires et l'emprise croissante de l'arm�e sur la soci�t�, y compris � l'�chelle locale.
+Contre la militarisation et l'�conomie de guerre
+L'objectif est de s'opposer � l'utilisation des fonds publics pour l'armement et � l'embrigadement de la jeunesse.
+Non � la chair � patron et � canon
+: S'opposer au recrutement militaire massif dans les lyc�es de Montpellier et aux incitations faites aux jeunes de s'engager.
+D�nonciation des budgets d'armement
+: D�noncer les hausses massives des budgets militaires r�gionaux au profit de l'industrie de d�fense, alors que les services publics manquent de moyens.
+Souverainet� des peuples contre la guerre
+: Affirmer la solidarit� internationale des travailleurs contre les logiques d'affrontements entre puissances imp�rialistes.
+�ducation � la paix, pas � la guerre
+: Faire des �tablissements d'enseignement des lieux d'�mancipation et non des antichambres de l'arm�e ou du patronat.
+�mancipation et justice sociale
+D�nonciation du capitalisme et de l'exploitation
+Lutte Ouvri�re s'oppose radicalement � une soci�t� dont le moteur est l'accumulation d'argent et le profit priv�, au d�triment de l'int�r�t g�n�ral.
+Lutter contre la racine des probl�mes
+L'objectif est de montrer que la gestion municipale ne peut �tre coup�e de la lutte contre le capitalisme global.
+Capitalisme et pr�carit�
+: D�noncer comment la recherche du profit maximal fragilise les services publics et pr�carise les travailleurs de la ville.
+Transparence sur les comptes des entreprises
+: Exiger la transparence totale sur les comptes des grands groupes qui re�oivent des subventions publiques ou g�rent des services municipaux.
+Priorit� aux besoins humains
+: R�organiser les priorit�s de la ville pour que l'argent public serve aux besoins fondamentaux (logement, sant�) plut�t qu'aux int�r�ts priv�s.
+Mobilisation collective
+: Encourager les travailleurs � s'organiser et � lutter collectivement pour d�fendre leurs int�r�ts de classe.
+�mancipation et justice sociale
+d�mocratie
+Faire entendre la voix des travailleurs
+Morgane Lachiver et Lutte Ouvri�re se pr�sentent pour porter la voix de ceux qui font tourner la soci�t�, mais qui n'ont jamais leur mot � dire sur son fonctionnement.
+Le monde du travail au c?ur de la campagne
+L'objectif n'est pas simplement de "g�rer" la ville, mais d'utiliser les �lections municipales comme une tribune politique.
+Porte-parole des exploit�s
+: Porter les revendications des ouvriers, employ�s, pr�caires et ch�meurs face aux politiques de la bourgeoisie.
+D�nonciation de la dictature du profit
+: Montrer que les probl�mes locaux (logement, transports, services publics) ont une racine commune : une soci�t� domin�e par l'argent.
+Intelligence collective des travailleurs
+: Faire confiance � ceux qui travaillent pour r�organiser la cit� selon les besoins de la majorit�, et non pour le profit de quelques-uns.
+Un vote de conscience
+: Proposer aux �lecteurs un vote qui affirme leur appartenance au camp des travailleurs et leur opposition au syst�me actuel.
+solidarit�
+�mancipation et justice sociale
+Opposition � l'aust�rit� et d�fense des services publics
+Lutte Ouvri�re s'oppose aux politiques d'aust�rit� qui �tranglent les communes et d�gradent les services publics indispensables � la population.
+Contre les coupes budg�taires et la d�gradation sociale
+L'objectif est de mettre les moyens de la ville au service des besoins sociaux r�els plut�t que de se soumettre aux diktats de la dette et du patronat.
+Non aux coupes budg�taires
+: Refuser les r�ductions de budget qui touchent les services de base (�ducation, sant�, transports).
+Renforcement des effectifs municipaux
+: Garantir des conditions de travail dignes et des effectifs suffisants pour assurer un service public de qualit�, sans recours � la pr�carit�.
+Gratuit� et accessibilit�
+: D�fendre la gratuit� des services publics essentiels et leur accessibilit� universelle pour les familles modestes.
+Soutien aux luttes sociales
+: Faire de la mairie un point d'appui pour les mobilisations des travailleurs contre les attaques gouvernementales et patronales.
+d�mocratie
+�mancipation et justice sociale
+Une liste de travailleurs pour changer la soci�t�
+La liste Lutte Ouvri�re � Montpellier est compos�e exclusivement de travailleurs, ch�meurs et retrait�s du monde du travail, refusant les professionnels de la politique.
+Ceux qui font la ville doivent la diriger
+L'objectif est de pr�senter une alternative politique port�e par ceux qui subissent l'exploitation capitaliste au quotidien.
+Candidats issus du rang
+: Ouvriers, employ�s, soignants, enseignants et pr�caires qui connaissent la r�alit� de la vie et du travail.
+Refus de la politique-carri�re
+: S'opposer aux politiciens professionnels qui se servent au lieu de servir les int�r�ts de la population.
+Contr�le d�mocratique
+: Les �lus de la liste sont comptables devant leurs �lecteurs et s'engagent � d�fendre le programme des travailleurs.
+Engagement internationaliste
+: Une liste qui refuse les divisions nationalistes et affirme la solidarit� entre tous les travailleurs, quelle que soit leur origine.
+
+--- File: listes_lutte-ouvriere_5.txt ---
+URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/
+
+TITLE: Lutte Ouvri�re � Morgane Lachiver
+
+DESCRIPTION: Pr�sentation de la liste Lutte Ouvri�re et de sa t�te de liste Morgane Lachiver qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+Lutte Ouvri�re
+T�te de liste�: Morgane Lachiver
+Lutte Ouvri�re
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+Lutte Ouvri�re
+(LO) se pr�sente aux �lections municipales de 2026 � Montpellier avec une liste exclusivement compos�e de travailleurs, d'ouvriers, d'employ�s et de ch�meurs. Port�e par la volont� de faire entendre le camp des travailleurs, cette liste refuse la logique de gestion municipale traditionnelle pour en faire une tribune politique contre le capitalisme.
+La liste met en avant :
+Le camp des travailleurs
+: pour d�noncer l'exploitation et la dictature du profit.
+L'opposition � la guerre
+: contre la militarisation de la soci�t� et le recrutement militaire dans les lyc�es.
+La d�fense des services publics
+: pour exiger des moyens pour la population plut�t que pour les profits priv�s.
+La liste est conduite par
+Morgane Lachiver
+.
+Morgane Lachiver et le combat ouvrier
+Morgane Lachiver est une militante engag�e de longue date au sein de
+Lutte Ouvri�re
+. Sa candidature vise � offrir une voix politique � ceux qui n'en ont pas dans les institutions : ceux qui produisent toutes les richesses mais n'ont aucun pouvoir de d�cision.
+Pour Morgane Lachiver, ces �lections sont l'occasion de d�noncer un syst�me qui "offre aux jeunes d'�tre de la chair � patron ou de la chair � canon". Elle s'oppose fermement aux hausses des budgets militaires r�gionaux et � l'emprise croissante de l'arm�e sur la jeunesse. Son combat est celui de la solidarit� internationale des travailleurs contre la barbarie capitaliste et la marche � la guerre.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+d�mocratie
+enfance et �ducation
+solidarit�
+�mancipation et justice sociale
+d�mocratie
+enfance et �ducation
+Refus de la marche � la guerre
+Morgane Lachiver et Lutte Ouvri�re d�noncent l'augmentation des budgets militaires et l'emprise croissante de l'arm�e sur la soci�t�, y compris � l'�chelle locale.
+Contre la militarisation et l'�conomie de guerre
+L'objectif est de s'opposer � l'utilisation des fonds publics pour l'armement et � l'embrigadement de la jeunesse.
+Non � la chair � patron et � canon
+: S'opposer au recrutement militaire massif dans les lyc�es de Montpellier et aux incitations faites aux jeunes de s'engager.
+D�nonciation des budgets d'armement
+: D�noncer les hausses massives des budgets militaires r�gionaux au profit de l'industrie de d�fense, alors que les services publics manquent de moyens.
+Souverainet� des peuples contre la guerre
+: Affirmer la solidarit� internationale des travailleurs contre les logiques d'affrontements entre puissances imp�rialistes.
+�ducation � la paix, pas � la guerre
+: Faire des �tablissements d'enseignement des lieux d'�mancipation et non des antichambres de l'arm�e ou du patronat.
+�mancipation et justice sociale
+D�nonciation du capitalisme et de l'exploitation
+Lutte Ouvri�re s'oppose radicalement � une soci�t� dont le moteur est l'accumulation d'argent et le profit priv�, au d�triment de l'int�r�t g�n�ral.
+Lutter contre la racine des probl�mes
+L'objectif est de montrer que la gestion municipale ne peut �tre coup�e de la lutte contre le capitalisme global.
+Capitalisme et pr�carit�
+: D�noncer comment la recherche du profit maximal fragilise les services publics et pr�carise les travailleurs de la ville.
+Transparence sur les comptes des entreprises
+: Exiger la transparence totale sur les comptes des grands groupes qui re�oivent des subventions publiques ou g�rent des services municipaux.
+Priorit� aux besoins humains
+: R�organiser les priorit�s de la ville pour que l'argent public serve aux besoins fondamentaux (logement, sant�) plut�t qu'aux int�r�ts priv�s.
+Mobilisation collective
+: Encourager les travailleurs � s'organiser et � lutter collectivement pour d�fendre leurs int�r�ts de classe.
+�mancipation et justice sociale
+d�mocratie
+Faire entendre la voix des travailleurs
+Morgane Lachiver et Lutte Ouvri�re se pr�sentent pour porter la voix de ceux qui font tourner la soci�t�, mais qui n'ont jamais leur mot � dire sur son fonctionnement.
+Le monde du travail au c?ur de la campagne
+L'objectif n'est pas simplement de "g�rer" la ville, mais d'utiliser les �lections municipales comme une tribune politique.
+Porte-parole des exploit�s
+: Porter les revendications des ouvriers, employ�s, pr�caires et ch�meurs face aux politiques de la bourgeoisie.
+D�nonciation de la dictature du profit
+: Montrer que les probl�mes locaux (logement, transports, services publics) ont une racine commune : une soci�t� domin�e par l'argent.
+Intelligence collective des travailleurs
+: Faire confiance � ceux qui travaillent pour r�organiser la cit� selon les besoins de la majorit�, et non pour le profit de quelques-uns.
+Un vote de conscience
+: Proposer aux �lecteurs un vote qui affirme leur appartenance au camp des travailleurs et leur opposition au syst�me actuel.
+solidarit�
+�mancipation et justice sociale
+Opposition � l'aust�rit� et d�fense des services publics
+Lutte Ouvri�re s'oppose aux politiques d'aust�rit� qui �tranglent les communes et d�gradent les services publics indispensables � la population.
+Contre les coupes budg�taires et la d�gradation sociale
+L'objectif est de mettre les moyens de la ville au service des besoins sociaux r�els plut�t que de se soumettre aux diktats de la dette et du patronat.
+Non aux coupes budg�taires
+: Refuser les r�ductions de budget qui touchent les services de base (�ducation, sant�, transports).
+Renforcement des effectifs municipaux
+: Garantir des conditions de travail dignes et des effectifs suffisants pour assurer un service public de qualit�, sans recours � la pr�carit�.
+Gratuit� et accessibilit�
+: D�fendre la gratuit� des services publics essentiels et leur accessibilit� universelle pour les familles modestes.
+Soutien aux luttes sociales
+: Faire de la mairie un point d'appui pour les mobilisations des travailleurs contre les attaques gouvernementales et patronales.
+d�mocratie
+�mancipation et justice sociale
+Une liste de travailleurs pour changer la soci�t�
+La liste Lutte Ouvri�re � Montpellier est compos�e exclusivement de travailleurs, ch�meurs et retrait�s du monde du travail, refusant les professionnels de la politique.
+Ceux qui font la ville doivent la diriger
+L'objectif est de pr�senter une alternative politique port�e par ceux qui subissent l'exploitation capitaliste au quotidien.
+Candidats issus du rang
+: Ouvriers, employ�s, soignants, enseignants et pr�caires qui connaissent la r�alit� de la vie et du travail.
+Refus de la politique-carri�re
+: S'opposer aux politiciens professionnels qui se servent au lieu de servir les int�r�ts de la population.
+Contr�le d�mocratique
+: Les �lus de la liste sont comptables devant leurs �lecteurs et s'engagent � d�fendre le programme des travailleurs.
+Engagement internationaliste
+: Une liste qui refuse les divisions nationalistes et affirme la solidarit� entre tous les travailleurs, quelle que soit leur origine.
+
 --- File: listes_lutte-ouvriere_programme_denonciation-capitalisme-exploitation.txt ---
 URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/denonciation-capitalisme-exploitation/
 
@@ -15035,6 +22329,56 @@ Mobilisation collective
 : Encourager les travailleurs � s'organiser et � lutter collectivement pour d�fendre leurs int�r�ts de classe.
 
 --- File: listes_lutte-ouvriere_programme_denonciation-capitalisme-exploitation_3.txt ---
+URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/denonciation-capitalisme-exploitation
+
+TITLE: D�nonciation du capitalisme et de l'exploitation � Lutte Ouvri�re
+
+DESCRIPTION: D�nonciation du capitalisme et de l'exploitation
+
+CONTENT:
+
+Retour � la liste
+�mancipation et justice sociale
+D�nonciation du capitalisme et de l'exploitation
+Une mesure propos�e par Lutte Ouvri�re
+Lutte Ouvri�re s'oppose radicalement � une soci�t� dont le moteur est l'accumulation d'argent et le profit priv�, au d�triment de l'int�r�t g�n�ral.
+Lutter contre la racine des probl�mes
+L'objectif est de montrer que la gestion municipale ne peut �tre coup�e de la lutte contre le capitalisme global.
+Capitalisme et pr�carit�
+: D�noncer comment la recherche du profit maximal fragilise les services publics et pr�carise les travailleurs de la ville.
+Transparence sur les comptes des entreprises
+: Exiger la transparence totale sur les comptes des grands groupes qui re�oivent des subventions publiques ou g�rent des services municipaux.
+Priorit� aux besoins humains
+: R�organiser les priorit�s de la ville pour que l'argent public serve aux besoins fondamentaux (logement, sant�) plut�t qu'aux int�r�ts priv�s.
+Mobilisation collective
+: Encourager les travailleurs � s'organiser et � lutter collectivement pour d�fendre leurs int�r�ts de classe.
+
+--- File: listes_lutte-ouvriere_programme_denonciation-capitalisme-exploitation_4.txt ---
+URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/denonciation-capitalisme-exploitation/
+
+TITLE: D�nonciation du capitalisme et de l'exploitation � Lutte Ouvri�re
+
+DESCRIPTION: D�nonciation du capitalisme et de l'exploitation
+
+CONTENT:
+
+Retour � la liste
+�mancipation et justice sociale
+D�nonciation du capitalisme et de l'exploitation
+Une mesure propos�e par Lutte Ouvri�re
+Lutte Ouvri�re s'oppose radicalement � une soci�t� dont le moteur est l'accumulation d'argent et le profit priv�, au d�triment de l'int�r�t g�n�ral.
+Lutter contre la racine des probl�mes
+L'objectif est de montrer que la gestion municipale ne peut �tre coup�e de la lutte contre le capitalisme global.
+Capitalisme et pr�carit�
+: D�noncer comment la recherche du profit maximal fragilise les services publics et pr�carise les travailleurs de la ville.
+Transparence sur les comptes des entreprises
+: Exiger la transparence totale sur les comptes des grands groupes qui re�oivent des subventions publiques ou g�rent des services municipaux.
+Priorit� aux besoins humains
+: R�organiser les priorit�s de la ville pour que l'argent public serve aux besoins fondamentaux (logement, sant�) plut�t qu'aux int�r�ts priv�s.
+Mobilisation collective
+: Encourager les travailleurs � s'organiser et � lutter collectivement pour d�fendre leurs int�r�ts de classe.
+
+--- File: listes_lutte-ouvriere_programme_denonciation-capitalisme-exploitation_5.txt ---
 URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/denonciation-capitalisme-exploitation
 
 TITLE: D�nonciation du capitalisme et de l'exploitation � Lutte Ouvri�re
@@ -15138,6 +22482,58 @@ Un vote de conscience
 : Proposer aux �lecteurs un vote qui affirme leur appartenance au camp des travailleurs et leur opposition au syst�me actuel.
 
 --- File: listes_lutte-ouvriere_programme_faire-entendre-voix-travailleurs_3.txt ---
+URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/faire-entendre-voix-travailleurs
+
+TITLE: Faire entendre la voix des travailleurs � Lutte Ouvri�re
+
+DESCRIPTION: Faire entendre la voix des travailleurs
+
+CONTENT:
+
+Retour � la liste
+�mancipation et justice sociale
+d�mocratie
+Faire entendre la voix des travailleurs
+Une mesure propos�e par Lutte Ouvri�re
+Morgane Lachiver et Lutte Ouvri�re se pr�sentent pour porter la voix de ceux qui font tourner la soci�t�, mais qui n'ont jamais leur mot � dire sur son fonctionnement.
+Le monde du travail au c?ur de la campagne
+L'objectif n'est pas simplement de "g�rer" la ville, mais d'utiliser les �lections municipales comme une tribune politique.
+Porte-parole des exploit�s
+: Porter les revendications des ouvriers, employ�s, pr�caires et ch�meurs face aux politiques de la bourgeoisie.
+D�nonciation de la dictature du profit
+: Montrer que les probl�mes locaux (logement, transports, services publics) ont une racine commune : une soci�t� domin�e par l'argent.
+Intelligence collective des travailleurs
+: Faire confiance � ceux qui travaillent pour r�organiser la cit� selon les besoins de la majorit�, et non pour le profit de quelques-uns.
+Un vote de conscience
+: Proposer aux �lecteurs un vote qui affirme leur appartenance au camp des travailleurs et leur opposition au syst�me actuel.
+
+--- File: listes_lutte-ouvriere_programme_faire-entendre-voix-travailleurs_4.txt ---
+URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/faire-entendre-voix-travailleurs/
+
+TITLE: Faire entendre la voix des travailleurs � Lutte Ouvri�re
+
+DESCRIPTION: Faire entendre la voix des travailleurs
+
+CONTENT:
+
+Retour � la liste
+�mancipation et justice sociale
+d�mocratie
+Faire entendre la voix des travailleurs
+Une mesure propos�e par Lutte Ouvri�re
+Morgane Lachiver et Lutte Ouvri�re se pr�sentent pour porter la voix de ceux qui font tourner la soci�t�, mais qui n'ont jamais leur mot � dire sur son fonctionnement.
+Le monde du travail au c?ur de la campagne
+L'objectif n'est pas simplement de "g�rer" la ville, mais d'utiliser les �lections municipales comme une tribune politique.
+Porte-parole des exploit�s
+: Porter les revendications des ouvriers, employ�s, pr�caires et ch�meurs face aux politiques de la bourgeoisie.
+D�nonciation de la dictature du profit
+: Montrer que les probl�mes locaux (logement, transports, services publics) ont une racine commune : une soci�t� domin�e par l'argent.
+Intelligence collective des travailleurs
+: Faire confiance � ceux qui travaillent pour r�organiser la cit� selon les besoins de la majorit�, et non pour le profit de quelques-uns.
+Un vote de conscience
+: Proposer aux �lecteurs un vote qui affirme leur appartenance au camp des travailleurs et leur opposition au syst�me actuel.
+
+--- File: listes_lutte-ouvriere_programme_faire-entendre-voix-travailleurs_5.txt ---
 URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/faire-entendre-voix-travailleurs
 
 TITLE: Faire entendre la voix des travailleurs � Lutte Ouvri�re
@@ -15267,6 +22663,58 @@ Gratuit� et accessibilit�
 Soutien aux luttes sociales
 : Faire de la mairie un point d'appui pour les mobilisations des travailleurs contre les attaques gouvernementales et patronales.
 
+--- File: listes_lutte-ouvriere_programme_opposition-austerite-services-publics_4.txt ---
+URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/opposition-austerite-services-publics/
+
+TITLE: Opposition � l'aust�rit� et d�fense des services publics � Lutte Ouvri�re
+
+DESCRIPTION: Opposition � l'aust�rit� et d�fense des services publics
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+�mancipation et justice sociale
+Opposition � l'aust�rit� et d�fense des services publics
+Une mesure propos�e par Lutte Ouvri�re
+Lutte Ouvri�re s'oppose aux politiques d'aust�rit� qui �tranglent les communes et d�gradent les services publics indispensables � la population.
+Contre les coupes budg�taires et la d�gradation sociale
+L'objectif est de mettre les moyens de la ville au service des besoins sociaux r�els plut�t que de se soumettre aux diktats de la dette et du patronat.
+Non aux coupes budg�taires
+: Refuser les r�ductions de budget qui touchent les services de base (�ducation, sant�, transports).
+Renforcement des effectifs municipaux
+: Garantir des conditions de travail dignes et des effectifs suffisants pour assurer un service public de qualit�, sans recours � la pr�carit�.
+Gratuit� et accessibilit�
+: D�fendre la gratuit� des services publics essentiels et leur accessibilit� universelle pour les familles modestes.
+Soutien aux luttes sociales
+: Faire de la mairie un point d'appui pour les mobilisations des travailleurs contre les attaques gouvernementales et patronales.
+
+--- File: listes_lutte-ouvriere_programme_opposition-austerite-services-publics_5.txt ---
+URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/opposition-austerite-services-publics
+
+TITLE: Opposition � l'aust�rit� et d�fense des services publics � Lutte Ouvri�re
+
+DESCRIPTION: Opposition � l'aust�rit� et d�fense des services publics
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+�mancipation et justice sociale
+Opposition � l'aust�rit� et d�fense des services publics
+Une mesure propos�e par Lutte Ouvri�re
+Lutte Ouvri�re s'oppose aux politiques d'aust�rit� qui �tranglent les communes et d�gradent les services publics indispensables � la population.
+Contre les coupes budg�taires et la d�gradation sociale
+L'objectif est de mettre les moyens de la ville au service des besoins sociaux r�els plut�t que de se soumettre aux diktats de la dette et du patronat.
+Non aux coupes budg�taires
+: Refuser les r�ductions de budget qui touchent les services de base (�ducation, sant�, transports).
+Renforcement des effectifs municipaux
+: Garantir des conditions de travail dignes et des effectifs suffisants pour assurer un service public de qualit�, sans recours � la pr�carit�.
+Gratuit� et accessibilit�
+: D�fendre la gratuit� des services publics essentiels et leur accessibilit� universelle pour les familles modestes.
+Soutien aux luttes sociales
+: Faire de la mairie un point d'appui pour les mobilisations des travailleurs contre les attaques gouvernementales et patronales.
+
 --- File: listes_lutte-ouvriere_programme_refus-marche-a-la-guerre.txt ---
 URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/refus-marche-a-la-guerre/
 
@@ -15371,6 +22819,58 @@ Souverainet� des peuples contre la guerre
 �ducation � la paix, pas � la guerre
 : Faire des �tablissements d'enseignement des lieux d'�mancipation et non des antichambres de l'arm�e ou du patronat.
 
+--- File: listes_lutte-ouvriere_programme_refus-marche-a-la-guerre_4.txt ---
+URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/refus-marche-a-la-guerre/
+
+TITLE: Refus de la marche � la guerre � Lutte Ouvri�re
+
+DESCRIPTION: Refus de la marche � la guerre
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+enfance et �ducation
+Refus de la marche � la guerre
+Une mesure propos�e par Lutte Ouvri�re
+Morgane Lachiver et Lutte Ouvri�re d�noncent l'augmentation des budgets militaires et l'emprise croissante de l'arm�e sur la soci�t�, y compris � l'�chelle locale.
+Contre la militarisation et l'�conomie de guerre
+L'objectif est de s'opposer � l'utilisation des fonds publics pour l'armement et � l'embrigadement de la jeunesse.
+Non � la chair � patron et � canon
+: S'opposer au recrutement militaire massif dans les lyc�es de Montpellier et aux incitations faites aux jeunes de s'engager.
+D�nonciation des budgets d'armement
+: D�noncer les hausses massives des budgets militaires r�gionaux au profit de l'industrie de d�fense, alors que les services publics manquent de moyens.
+Souverainet� des peuples contre la guerre
+: Affirmer la solidarit� internationale des travailleurs contre les logiques d'affrontements entre puissances imp�rialistes.
+�ducation � la paix, pas � la guerre
+: Faire des �tablissements d'enseignement des lieux d'�mancipation et non des antichambres de l'arm�e ou du patronat.
+
+--- File: listes_lutte-ouvriere_programme_refus-marche-a-la-guerre_5.txt ---
+URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/refus-marche-a-la-guerre
+
+TITLE: Refus de la marche � la guerre � Lutte Ouvri�re
+
+DESCRIPTION: Refus de la marche � la guerre
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+enfance et �ducation
+Refus de la marche � la guerre
+Une mesure propos�e par Lutte Ouvri�re
+Morgane Lachiver et Lutte Ouvri�re d�noncent l'augmentation des budgets militaires et l'emprise croissante de l'arm�e sur la soci�t�, y compris � l'�chelle locale.
+Contre la militarisation et l'�conomie de guerre
+L'objectif est de s'opposer � l'utilisation des fonds publics pour l'armement et � l'embrigadement de la jeunesse.
+Non � la chair � patron et � canon
+: S'opposer au recrutement militaire massif dans les lyc�es de Montpellier et aux incitations faites aux jeunes de s'engager.
+D�nonciation des budgets d'armement
+: D�noncer les hausses massives des budgets militaires r�gionaux au profit de l'industrie de d�fense, alors que les services publics manquent de moyens.
+Souverainet� des peuples contre la guerre
+: Affirmer la solidarit� internationale des travailleurs contre les logiques d'affrontements entre puissances imp�rialistes.
+�ducation � la paix, pas � la guerre
+: Faire des �tablissements d'enseignement des lieux d'�mancipation et non des antichambres de l'arm�e ou du patronat.
+
 --- File: listes_lutte-ouvriere_programme_une-liste-de-travailleurs.txt ---
 URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/une-liste-de-travailleurs/
 
@@ -15450,6 +22950,58 @@ Engagement internationaliste
 : Une liste qui refuse les divisions nationalistes et affirme la solidarit� entre tous les travailleurs, quelle que soit leur origine.
 
 --- File: listes_lutte-ouvriere_programme_une-liste-de-travailleurs_3.txt ---
+URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/une-liste-de-travailleurs
+
+TITLE: Une liste de travailleurs pour changer la soci�t� � Lutte Ouvri�re
+
+DESCRIPTION: Une liste de travailleurs pour changer la soci�t�
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+�mancipation et justice sociale
+Une liste de travailleurs pour changer la soci�t�
+Une mesure propos�e par Lutte Ouvri�re
+La liste Lutte Ouvri�re � Montpellier est compos�e exclusivement de travailleurs, ch�meurs et retrait�s du monde du travail, refusant les professionnels de la politique.
+Ceux qui font la ville doivent la diriger
+L'objectif est de pr�senter une alternative politique port�e par ceux qui subissent l'exploitation capitaliste au quotidien.
+Candidats issus du rang
+: Ouvriers, employ�s, soignants, enseignants et pr�caires qui connaissent la r�alit� de la vie et du travail.
+Refus de la politique-carri�re
+: S'opposer aux politiciens professionnels qui se servent au lieu de servir les int�r�ts de la population.
+Contr�le d�mocratique
+: Les �lus de la liste sont comptables devant leurs �lecteurs et s'engagent � d�fendre le programme des travailleurs.
+Engagement internationaliste
+: Une liste qui refuse les divisions nationalistes et affirme la solidarit� entre tous les travailleurs, quelle que soit leur origine.
+
+--- File: listes_lutte-ouvriere_programme_une-liste-de-travailleurs_4.txt ---
+URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/une-liste-de-travailleurs/
+
+TITLE: Une liste de travailleurs pour changer la soci�t� � Lutte Ouvri�re
+
+DESCRIPTION: Une liste de travailleurs pour changer la soci�t�
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+�mancipation et justice sociale
+Une liste de travailleurs pour changer la soci�t�
+Une mesure propos�e par Lutte Ouvri�re
+La liste Lutte Ouvri�re � Montpellier est compos�e exclusivement de travailleurs, ch�meurs et retrait�s du monde du travail, refusant les professionnels de la politique.
+Ceux qui font la ville doivent la diriger
+L'objectif est de pr�senter une alternative politique port�e par ceux qui subissent l'exploitation capitaliste au quotidien.
+Candidats issus du rang
+: Ouvriers, employ�s, soignants, enseignants et pr�caires qui connaissent la r�alit� de la vie et du travail.
+Refus de la politique-carri�re
+: S'opposer aux politiciens professionnels qui se servent au lieu de servir les int�r�ts de la population.
+Contr�le d�mocratique
+: Les �lus de la liste sont comptables devant leurs �lecteurs et s'engagent � d�fendre le programme des travailleurs.
+Engagement internationaliste
+: Une liste qui refuse les divisions nationalistes et affirme la solidarit� entre tous les travailleurs, quelle que soit leur origine.
+
+--- File: listes_lutte-ouvriere_programme_une-liste-de-travailleurs_5.txt ---
 URL: https://montpellier-municipales.fr/listes/lutte-ouvriere/programme/une-liste-de-travailleurs
 
 TITLE: Une liste de travailleurs pour changer la soci�t� � Lutte Ouvri�re
@@ -15965,6 +23517,254 @@ Plan d'investissement massif
 : financ� par les grandes fortunes, pour la sant�, les �coles, le transport, les seniors et l'accessibilit� de la vill
 [... truncated ...]
 
+--- File: listes_revolution-permanente_4.txt ---
+URL: https://montpellier-municipales.fr/listes/revolution-permanente
+
+TITLE: R�volution Permanente � Max Muller
+
+DESCRIPTION: Pr�sentation de la liste R�volution Permanente et de sa t�te de liste Max Muller qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+R�volution Permanente
+T�te de liste�: Max Muller
+R�volution Permanente
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+R�volution Permanente (RP)
+est une organisation politique se r�clamant du
+trotskysme
+, c?est?�?dire d?un courant marxiste issu des analyses de L�on Trotsky. Le mouvement se d�finit comme
+anticapitaliste, internationaliste et r�volutionnaire
+, avec une strat�gie centr�e sur l?auto?organisation des travailleuses et travailleurs, des jeunes et des classes populaires.
+R�volution Permanente s?est constitu�e en France en
+2022
+, � la suite d?une scission interne au
+Nouveau Parti anticapitaliste (NPA)
+. Depuis, le mouvement agit de mani�re ind�pendante sur le terrain politique, syndical, �tudiant et f�ministe, et d�veloppe ses propres campagnes et candidatures �lectorales.
+Pour les �lections municipales de 2026 � Montpellier, R�volution Permanente pr�sente une liste conduite par
+Max Muller
+. Il s?agit de la
+premi�re participation du mouvement � une �lection municipale dans la ville
+.
+Positionnement pour les municipales de Montpellier
+Pour les �lections municipales de 2026 � Montpellier, R�volution Permanente pr�sente sa liste comme une
+intervention politique locale inscrite dans une strat�gie plus large
+, reliant l?�chelle municipale aux luttes sociales nationales et internationales.
+Une candidature issue des luttes locales
+R�volution Permanente met en avant un ancrage dans les
+mobilisations sociales locales
+: mouvements sociaux, luttes syndicales, mobilisations �tudiantes, f�ministes et antiracistes. La candidature municipale est pr�sent�e comme le prolongement institutionnel de ces engagements, et non comme une rupture avec eux.
+Le mouvement affirme vouloir faire de la campagne municipale un espace pour :
+rendre visibles des conflits sociaux existants dans la ville (logement, pr�carit�, conditions de travail, acc�s aux services publics) ;
+donner une expression politique � des revendications port�es par des collectifs, des salari�es, des habitant�es et des �tudiant�es ;
+contester les politiques municipales jug�es favorables aux int�r�ts �conomiques priv�s au d�triment des besoins sociaux.
+Ind�pendance politique et refus des alliances de gestion
+R�volution Permanente revendique une
+liste ind�pendante
+, sans alliance �lectorale avec des partis ayant exerc� ou exer�ant des responsabilit�s de gestion municipale ou gouvernementale.
+Cette orientation s?appuie sur l?id�e que la municipalit� est un
+lieu de conflit politique
+, et non uniquement un espace de gestion technique. RP d�fend ainsi une utilisation des institutions municipales comme un levier pour soutenir les luttes sociales, plut�t que comme un objectif de pouvoir en soi.
+Axes programmatiques g�n�ralement mis en avant
+Sans programme municipal d�finitivement arr�t� � ce stade, R�volution Permanente met r�guli�rement en avant plusieurs axes structurants dans ses interventions publiques :
+Logement
+: critique de la sp�culation immobili�re, d�fense du droit au logement, r�quisition des logements vacants et opposition aux expulsions ;
+Travail et services publics
+: soutien aux luttes des agent�es municipaux, d�fense des services publics locaux et am�lioration des conditions de travail ;
+D�mocratie locale
+: mise en avant de formes d?auto?organisation, d?assembl�es locales et de contr�le citoyen sur les d�cisions municipales ;
+Antiracisme et �galit�
+: lutte contre les discriminations, soutien aux personnes sans?papiers et d�fense de l?�galit� des droits ;
+�cologie sociale
+: approche liant enjeux �cologiques et justice sociale, avec une critique des politiques environnementales jug�es incompatibles avec les besoins populaires.
+Ces axes sont pr�sent�s comme indissociables d?un rapport de force social, et non comme de simples mesures techniques.
+Une vision critique du r�le de la municipalit�
+R�volution Permanente consid�re que la mairie ne peut, � elle seule, transformer en profondeur les rapports sociaux. La candidature est donc pens�e comme :
+un outil pour
+soutenir et amplifier les mobilisations
+existantes ;
+un moyen de porter des revendications radicales dans l?espace public local ;
+un point d?appui pour renforcer l?auto?organisation populaire � l?�chelle de la ville.
+Le mouvement insiste ainsi sur le fait que le changement social passe d?abord par l?action collective, la mobilisation et l?organisation des classes populaires, la municipalit� n?�tant qu?un des terrains possibles de cette confrontation politique.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+d�mocratie
+logement
+sant�
+solidarit�
+s�curit�
+�mancipation et justice sociale
+s�curit�
+�mancipation et justice sociale
+Pour une ville f�ministe, antiraciste et internationaliste
+R�volution Permanente d�fend une ville qui rompt avec les violences polici�res, garantit les droits des femmes et exprime sa solidarit� avec les peuples opprim�s � travers le monde.
+Les axes forts :
+Non aux violences polici�res
+: d�sarmement de la police municipale, expulsion de la BAC, des CRS et de la police des transports des quartiers populaires.
+Le droit des femmes � disposer de leur corps
+: � trop couverts ou pas assez, c'est aux femmes de d�cider � ? d�fense du droit � l'avortement et lutte contre toutes les formes de contr�le des corps.
+Solidarit� internationale
+: soutien au peuple palestinien, au peuple kurde et � tous les peuples opprim�s ; fin du jumelage entre Montpellier et les villes isra�liennes ; fin de la r�pression contre les militant�es pro-palestinien�nes.
+d�mocratie
+�mancipation et justice sociale
+Mettons fin aux privil�ges des politiciens professionnels
+La professionnalisation de la politique cr�e une classe d'�lus d�connect�e des r�alit�s des travailleuses et travailleurs. R�volution Permanente propose de remettre le pouvoir entre les mains du peuple.
+Les axes forts :
+�lus r�vocables
+: tout �lu doit pouvoir �tre rappel� par ses �lecteurs � tout moment, et doit �tre pay� au salaire d'une infirmi�re, sans cumul des mandats.
+Droit de vote d�s 16 ans
+: pour tous les r�sidents et r�sidentes, sans conditions de nationalit�.
+D�mission de Macron et fin de la Ve R�publique
+: mettre fin aux institutions qui concentrent le pouvoir dans les mains d'une �lite politique et construire une nouvelle R�publique au service du peuple.
+solidarit�
+sant�
+�mancipation et justice sociale
+Stop aux millions vers�s au patronat : des services publics sous contr�le des travailleurs
+R�volution Permanente s'oppose aux cadeaux accord�s au patronat et aux promoteurs immobiliers au d�triment des services publics. Max Muller propose de r�orienter l'argent public vers les besoins des travailleuses et travailleurs.
+Les axes forts :
+Arr�t total des aides au patronat
+: fin des subventions aux grandes entreprises et des projets anti-�cologiques comme la CGM et l'incin�rateur � plastique CSR ; l'argent public doit aller aux services publics, pas aux actionnaires.
+Plan d'investissement massif
+: financ� par les grandes fortunes, pour la sant�, les �coles, le transport, les seniors et l'accessibilit� de la ville aux personnes en situation de handicap.
+Cr�ches, laveries et cantines populaires
+: ouverture de services de proximit� pour r�pondre � la chert� de la vie, au surendettement et � l'inflation.
+Titularisation de tous les travailleurs municipaux
+: garantir la stabilit� de l'emploi � tous les agents pr�caires, indispensables au fonctionnement des services publics.
+logement
+Un logement pour toutes et tous
+� Montpellier, 13 000 logements sont vides pendant que des milliers de personnes sont sans-abri ou vivent dans des conditions indignes. R�volution Permanente propose des mesures radicales pour que le logement redevienne un droit.
+Les axes forts :
+R�quisition des logements vides
+: r�quisitionne
+[... truncated ...]
+
+--- File: listes_revolution-permanente_5.txt ---
+URL: https://montpellier-municipales.fr/listes/revolution-permanente/
+
+TITLE: R�volution Permanente � Max Muller
+
+DESCRIPTION: Pr�sentation de la liste R�volution Permanente et de sa t�te de liste Max Muller qui se pr�sente aux �lections municipales 2026 � Montpellier
+
+CONTENT:
+
+R�volution Permanente
+T�te de liste�: Max Muller
+R�volution Permanente
+Comparer avec d'autres programmes
+Pr�sentation
+Le programme
+R�volution Permanente (RP)
+est une organisation politique se r�clamant du
+trotskysme
+, c?est?�?dire d?un courant marxiste issu des analyses de L�on Trotsky. Le mouvement se d�finit comme
+anticapitaliste, internationaliste et r�volutionnaire
+, avec une strat�gie centr�e sur l?auto?organisation des travailleuses et travailleurs, des jeunes et des classes populaires.
+R�volution Permanente s?est constitu�e en France en
+2022
+, � la suite d?une scission interne au
+Nouveau Parti anticapitaliste (NPA)
+. Depuis, le mouvement agit de mani�re ind�pendante sur le terrain politique, syndical, �tudiant et f�ministe, et d�veloppe ses propres campagnes et candidatures �lectorales.
+Pour les �lections municipales de 2026 � Montpellier, R�volution Permanente pr�sente une liste conduite par
+Max Muller
+. Il s?agit de la
+premi�re participation du mouvement � une �lection municipale dans la ville
+.
+Positionnement pour les municipales de Montpellier
+Pour les �lections municipales de 2026 � Montpellier, R�volution Permanente pr�sente sa liste comme une
+intervention politique locale inscrite dans une strat�gie plus large
+, reliant l?�chelle municipale aux luttes sociales nationales et internationales.
+Une candidature issue des luttes locales
+R�volution Permanente met en avant un ancrage dans les
+mobilisations sociales locales
+: mouvements sociaux, luttes syndicales, mobilisations �tudiantes, f�ministes et antiracistes. La candidature municipale est pr�sent�e comme le prolongement institutionnel de ces engagements, et non comme une rupture avec eux.
+Le mouvement affirme vouloir faire de la campagne municipale un espace pour :
+rendre visibles des conflits sociaux existants dans la ville (logement, pr�carit�, conditions de travail, acc�s aux services publics) ;
+donner une expression politique � des revendications port�es par des collectifs, des salari�es, des habitant�es et des �tudiant�es ;
+contester les politiques municipales jug�es favorables aux int�r�ts �conomiques priv�s au d�triment des besoins sociaux.
+Ind�pendance politique et refus des alliances de gestion
+R�volution Permanente revendique une
+liste ind�pendante
+, sans alliance �lectorale avec des partis ayant exerc� ou exer�ant des responsabilit�s de gestion municipale ou gouvernementale.
+Cette orientation s?appuie sur l?id�e que la municipalit� est un
+lieu de conflit politique
+, et non uniquement un espace de gestion technique. RP d�fend ainsi une utilisation des institutions municipales comme un levier pour soutenir les luttes sociales, plut�t que comme un objectif de pouvoir en soi.
+Axes programmatiques g�n�ralement mis en avant
+Sans programme municipal d�finitivement arr�t� � ce stade, R�volution Permanente met r�guli�rement en avant plusieurs axes structurants dans ses interventions publiques :
+Logement
+: critique de la sp�culation immobili�re, d�fense du droit au logement, r�quisition des logements vacants et opposition aux expulsions ;
+Travail et services publics
+: soutien aux luttes des agent�es municipaux, d�fense des services publics locaux et am�lioration des conditions de travail ;
+D�mocratie locale
+: mise en avant de formes d?auto?organisation, d?assembl�es locales et de contr�le citoyen sur les d�cisions municipales ;
+Antiracisme et �galit�
+: lutte contre les discriminations, soutien aux personnes sans?papiers et d�fense de l?�galit� des droits ;
+�cologie sociale
+: approche liant enjeux �cologiques et justice sociale, avec une critique des politiques environnementales jug�es incompatibles avec les besoins populaires.
+Ces axes sont pr�sent�s comme indissociables d?un rapport de force social, et non comme de simples mesures techniques.
+Une vision critique du r�le de la municipalit�
+R�volution Permanente consid�re que la mairie ne peut, � elle seule, transformer en profondeur les rapports sociaux. La candidature est donc pens�e comme :
+un outil pour
+soutenir et amplifier les mobilisations
+existantes ;
+un moyen de porter des revendications radicales dans l?espace public local ;
+un point d?appui pour renforcer l?auto?organisation populaire � l?�chelle de la ville.
+Le mouvement insiste ainsi sur le fait que le changement social passe d?abord par l?action collective, la mobilisation et l?organisation des classes populaires, la municipalit� n?�tant qu?un des terrains possibles de cette confrontation politique.
+Le programme
+Filtrer les mesures...
+Toutes les mesures
+d�mocratie
+logement
+sant�
+solidarit�
+s�curit�
+�mancipation et justice sociale
+s�curit�
+�mancipation et justice sociale
+Pour une ville f�ministe, antiraciste et internationaliste
+R�volution Permanente d�fend une ville qui rompt avec les violences polici�res, garantit les droits des femmes et exprime sa solidarit� avec les peuples opprim�s � travers le monde.
+Les axes forts :
+Non aux violences polici�res
+: d�sarmement de la police municipale, expulsion de la BAC, des CRS et de la police des transports des quartiers populaires.
+Le droit des femmes � disposer de leur corps
+: � trop couverts ou pas assez, c'est aux femmes de d�cider � ? d�fense du droit � l'avortement et lutte contre toutes les formes de contr�le des corps.
+Solidarit� internationale
+: soutien au peuple palestinien, au peuple kurde et � tous les peuples opprim�s ; fin du jumelage entre Montpellier et les villes isra�liennes ; fin de la r�pression contre les militant�es pro-palestinien�nes.
+d�mocratie
+�mancipation et justice sociale
+Mettons fin aux privil�ges des politiciens professionnels
+La professionnalisation de la politique cr�e une classe d'�lus d�connect�e des r�alit�s des travailleuses et travailleurs. R�volution Permanente propose de remettre le pouvoir entre les mains du peuple.
+Les axes forts :
+�lus r�vocables
+: tout �lu doit pouvoir �tre rappel� par ses �lecteurs � tout moment, et doit �tre pay� au salaire d'une infirmi�re, sans cumul des mandats.
+Droit de vote d�s 16 ans
+: pour tous les r�sidents et r�sidentes, sans conditions de nationalit�.
+D�mission de Macron et fin de la Ve R�publique
+: mettre fin aux institutions qui concentrent le pouvoir dans les mains d'une �lite politique et construire une nouvelle R�publique au service du peuple.
+solidarit�
+sant�
+�mancipation et justice sociale
+Stop aux millions vers�s au patronat : des services publics sous contr�le des travailleurs
+R�volution Permanente s'oppose aux cadeaux accord�s au patronat et aux promoteurs immobiliers au d�triment des services publics. Max Muller propose de r�orienter l'argent public vers les besoins des travailleuses et travailleurs.
+Les axes forts :
+Arr�t total des aides au patronat
+: fin des subventions aux grandes entreprises et des projets anti-�cologiques comme la CGM et l'incin�rateur � plastique CSR ; l'argent public doit aller aux services publics, pas aux actionnaires.
+Plan d'investissement massif
+: financ� par les grandes fortunes, pour la sant�, les �coles, le transport, les seniors et l'accessibilit� de la ville aux personnes en situation de handicap.
+Cr�ches, laveries et cantines populaires
+: ouverture de services de proximit� pour r�pondre � la chert� de la vie, au surendettement et � l'inflation.
+Titularisation de tous les travailleurs municipaux
+: garantir la stabilit� de l'emploi � tous les agents pr�caires, indispensables au fonctionnement des services publics.
+logement
+Un logement pour toutes et tous
+� Montpellier, 13 000 logements sont vides pendant que des milliers de personnes sont sans-abri ou vivent dans des conditions indignes. R�volution Permanente propose des mesures radicales pour que le logement redevienne un droit.
+Les axes forts :
+R�quisition des logements vides
+: r�quisitionn
+[... truncated ...]
+
 --- File: listes_revolution-permanente_programme_democratie-travailleurs.txt ---
 URL: https://montpellier-municipales.fr/listes/revolution-permanente/programme/democratie-travailleurs/
 
@@ -16035,6 +23835,52 @@ D�mission de Macron et fin de la Ve R�publique
 : mettre fin aux institutions qui concentrent le pouvoir dans les mains d'une �lite politique et construire une nouvelle R�publique au service du peuple.
 
 --- File: listes_revolution-permanente_programme_democratie-travailleurs_3.txt ---
+URL: https://montpellier-municipales.fr/listes/revolution-permanente/programme/democratie-travailleurs
+
+TITLE: Mettons fin aux privil�ges des politiciens professionnels � R�volution Permanente
+
+DESCRIPTION: Mettons fin aux privil�ges des politiciens professionnels
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+�mancipation et justice sociale
+Mettons fin aux privil�ges des politiciens professionnels
+Une mesure propos�e par R�volution Permanente
+La professionnalisation de la politique cr�e une classe d'�lus d�connect�e des r�alit�s des travailleuses et travailleurs. R�volution Permanente propose de remettre le pouvoir entre les mains du peuple.
+Les axes forts :
+�lus r�vocables
+: tout �lu doit pouvoir �tre rappel� par ses �lecteurs � tout moment, et doit �tre pay� au salaire d'une infirmi�re, sans cumul des mandats.
+Droit de vote d�s 16 ans
+: pour tous les r�sidents et r�sidentes, sans conditions de nationalit�.
+D�mission de Macron et fin de la Ve R�publique
+: mettre fin aux institutions qui concentrent le pouvoir dans les mains d'une �lite politique et construire une nouvelle R�publique au service du peuple.
+
+--- File: listes_revolution-permanente_programme_democratie-travailleurs_4.txt ---
+URL: https://montpellier-municipales.fr/listes/revolution-permanente/programme/democratie-travailleurs/
+
+TITLE: Mettons fin aux privil�ges des politiciens professionnels � R�volution Permanente
+
+DESCRIPTION: Mettons fin aux privil�ges des politiciens professionnels
+
+CONTENT:
+
+Retour � la liste
+d�mocratie
+�mancipation et justice sociale
+Mettons fin aux privil�ges des politiciens professionnels
+Une mesure propos�e par R�volution Permanente
+La professionnalisation de la politique cr�e une classe d'�lus d�connect�e des r�alit�s des travailleuses et travailleurs. R�volution Permanente propose de remettre le pouvoir entre les mains du peuple.
+Les axes forts :
+�lus r�vocables
+: tout �lu doit pouvoir �tre rappel� par ses �lecteurs � tout moment, et doit �tre pay� au salaire d'une infirmi�re, sans cumul des mandats.
+Droit de vote d�s 16 ans
+: pour tous les r�sidents et r�sidentes, sans conditions de nationalit�.
+D�mission de Macron et fin de la Ve R�publique
+: mettre fin aux institutions qui concentrent le pouvoir dans les mains d'une �lite politique et construire une nouvelle R�publique au service du peuple.
+
+--- File: listes_revolution-permanente_programme_democratie-travailleurs_5.txt ---
 URL: https://montpellier-municipales.fr/listes/revolution-permanente/programme/democratie-travailleurs
 
 TITLE: Mettons fin aux privil�ges des politiciens professionnels � R�volution Permanente
@@ -16149,6 +23995,52 @@ Le droit des femmes � disposer de leur corps
 Solidarit� internationale
 : soutien au peuple palestinien, au peuple kurde et � tous les peuples opprim�s ; fin du jumelage entre Montpellier et les villes isra�liennes ; fin de la r�pression contre les militant�es pro-palestinien�nes.
 
+--- File: listes_revolution-permanente_programme_feminisme-antiracisme-internationalisme_4.txt ---
+URL: https://montpellier-municipales.fr/listes/revolution-permanente/programme/feminisme-antiracisme-internationalisme/
+
+TITLE: Pour une ville f�ministe, antiraciste et internationaliste � R�volution Permanente
+
+DESCRIPTION: Pour une ville f�ministe, antiraciste et internationaliste
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+�mancipation et justice sociale
+Pour une ville f�ministe, antiraciste et internationaliste
+Une mesure propos�e par R�volution Permanente
+R�volution Permanente d�fend une ville qui rompt avec les violences polici�res, garantit les droits des femmes et exprime sa solidarit� avec les peuples opprim�s � travers le monde.
+Les axes forts :
+Non aux violences polici�res
+: d�sarmement de la police municipale, expulsion de la BAC, des CRS et de la police des transports des quartiers populaires.
+Le droit des femmes � disposer de leur corps
+: � trop couverts ou pas assez, c'est aux femmes de d�cider � ? d�fense du droit � l'avortement et lutte contre toutes les formes de contr�le des corps.
+Solidarit� internationale
+: soutien au peuple palestinien, au peuple kurde et � tous les peuples opprim�s ; fin du jumelage entre Montpellier et les villes isra�liennes ; fin de la r�pression contre les militant�es pro-palestinien�nes.
+
+--- File: listes_revolution-permanente_programme_feminisme-antiracisme-internationalisme_5.txt ---
+URL: https://montpellier-municipales.fr/listes/revolution-permanente/programme/feminisme-antiracisme-internationalisme
+
+TITLE: Pour une ville f�ministe, antiraciste et internationaliste � R�volution Permanente
+
+DESCRIPTION: Pour une ville f�ministe, antiraciste et internationaliste
+
+CONTENT:
+
+Retour � la liste
+s�curit�
+�mancipation et justice sociale
+Pour une ville f�ministe, antiraciste et internationaliste
+Une mesure propos�e par R�volution Permanente
+R�volution Permanente d�fend une ville qui rompt avec les violences polici�res, garantit les droits des femmes et exprime sa solidarit� avec les peuples opprim�s � travers le monde.
+Les axes forts :
+Non aux violences polici�res
+: d�sarmement de la police municipale, expulsion de la BAC, des CRS et de la police des transports des quartiers populaires.
+Le droit des femmes � disposer de leur corps
+: � trop couverts ou pas assez, c'est aux femmes de d�cider � ? d�fense du droit � l'avortement et lutte contre toutes les formes de contr�le des corps.
+Solidarit� internationale
+: soutien au peuple palestinien, au peuple kurde et � tous les peuples opprim�s ; fin du jumelage entre Montpellier et les villes isra�liennes ; fin de la r�pression contre les militant�es pro-palestinien�nes.
+
 --- File: listes_revolution-permanente_programme_logement-pour-tous.txt ---
 URL: https://montpellier-municipales.fr/listes/revolution-permanente/programme/logement-pour-tous/
 
@@ -16210,6 +24102,46 @@ Blocage et plafonnement des loyers
 : imposer aux propri�taires un encadrement strict des loyers pour mettre fin � la sp�culation et rendre la ville accessible aux m�nages modestes.
 
 --- File: listes_revolution-permanente_programme_logement-pour-tous_3.txt ---
+URL: https://montpellier-municipales.fr/listes/revolution-permanente/programme/logement-pour-tous
+
+TITLE: Un logement pour toutes et tous � R�volution Permanente
+
+DESCRIPTION: Un logement pour toutes et tous
+
+CONTENT:
+
+Retour � la liste
+logement
+Un logement pour toutes et tous
+Une mesure propos�e par R�volution Permanente
+� Montpellier, 13 000 logements sont vides pendant que des milliers de personnes sont sans-abri ou vivent dans des conditions indignes. R�volution Permanente propose des mesures radicales pour que le logement redevienne un droit.
+Les axes forts :
+R�quisition des logements vides
+: r�quisitionner les 13 000 logements vacants de Montpellier pour les mettre � disposition des personnes sans-abri, victimes de violences, personnes LGBTI+ victimes d'homophobie et de transphobie.
+Blocage et plafonnement des loyers
+: imposer aux propri�taires un encadrement strict des loyers pour mettre fin � la sp�culation et rendre la ville accessible aux m�nages modestes.
+
+--- File: listes_revolution-permanente_programme_logement-pour-tous_4.txt ---
+URL: https://montpellier-municipales.fr/listes/revolution-permanente/programme/logement-pour-tous/
+
+TITLE: Un logement pour toutes et tous � R�volution Permanente
+
+DESCRIPTION: Un logement pour toutes et tous
+
+CONTENT:
+
+Retour � la liste
+logement
+Un logement pour toutes et tous
+Une mesure propos�e par R�volution Permanente
+� Montpellier, 13 000 logements sont vides pendant que des milliers de personnes sont sans-abri ou vivent dans des conditions indignes. R�volution Permanente propose des mesures radicales pour que le logement redevienne un droit.
+Les axes forts :
+R�quisition des logements vides
+: r�quisitionner les 13 000 logements vacants de Montpellier pour les mettre � disposition des personnes sans-abri, victimes de violences, personnes LGBTI+ victimes d'homophobie et de transphobie.
+Blocage et plafonnement des loyers
+: imposer aux propri�taires un encadrement strict des loyers pour mettre fin � la sp�culation et rendre la ville accessible aux m�nages modestes.
+
+--- File: listes_revolution-permanente_programme_logement-pour-tous_5.txt ---
 URL: https://montpellier-municipales.fr/listes/revolution-permanente/programme/logement-pour-tous
 
 TITLE: Un logement pour toutes et tous � R�volution Permanente
@@ -16308,6 +24240,58 @@ Titularisation de tous les travailleurs municipaux
 : garantir la stabilit� de l'emploi � tous les agents pr�caires, indispensables au fonctionnement des services publics.
 
 --- File: listes_revolution-permanente_programme_services-publics-travail_3.txt ---
+URL: https://montpellier-municipales.fr/listes/revolution-permanente/programme/services-publics-travail
+
+TITLE: Stop aux millions vers�s au patronat : des services publics sous contr�le des travailleurs � R�volution Permanente
+
+DESCRIPTION: Stop aux millions vers�s au patronat : des services publics sous contr�le des travailleurs
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+sant�
+�mancipation et justice sociale
+Stop aux millions vers�s au patronat : des services publics sous contr�le des travailleurs
+Une mesure propos�e par R�volution Permanente
+R�volution Permanente s'oppose aux cadeaux accord�s au patronat et aux promoteurs immobiliers au d�triment des services publics. Max Muller propose de r�orienter l'argent public vers les besoins des travailleuses et travailleurs.
+Les axes forts :
+Arr�t total des aides au patronat
+: fin des subventions aux grandes entreprises et des projets anti-�cologiques comme la CGM et l'incin�rateur � plastique CSR ; l'argent public doit aller aux services publics, pas aux actionnaires.
+Plan d'investissement massif
+: financ� par les grandes fortunes, pour la sant�, les �coles, le transport, les seniors et l'accessibilit� de la ville aux personnes en situation de handicap.
+Cr�ches, laveries et cantines populaires
+: ouverture de services de proximit� pour r�pondre � la chert� de la vie, au surendettement et � l'inflation.
+Titularisation de tous les travailleurs municipaux
+: garantir la stabilit� de l'emploi � tous les agents pr�caires, indispensables au fonctionnement des services publics.
+
+--- File: listes_revolution-permanente_programme_services-publics-travail_4.txt ---
+URL: https://montpellier-municipales.fr/listes/revolution-permanente/programme/services-publics-travail/
+
+TITLE: Stop aux millions vers�s au patronat : des services publics sous contr�le des travailleurs � R�volution Permanente
+
+DESCRIPTION: Stop aux millions vers�s au patronat : des services publics sous contr�le des travailleurs
+
+CONTENT:
+
+Retour � la liste
+solidarit�
+sant�
+�mancipation et justice sociale
+Stop aux millions vers�s au patronat : des services publics sous contr�le des travailleurs
+Une mesure propos�e par R�volution Permanente
+R�volution Permanente s'oppose aux cadeaux accord�s au patronat et aux promoteurs immobiliers au d�triment des services publics. Max Muller propose de r�orienter l'argent public vers les besoins des travailleuses et travailleurs.
+Les axes forts :
+Arr�t total des aides au patronat
+: fin des subventions aux grandes entreprises et des projets anti-�cologiques comme la CGM et l'incin�rateur � plastique CSR ; l'argent public doit aller aux services publics, pas aux actionnaires.
+Plan d'investissement massif
+: financ� par les grandes fortunes, pour la sant�, les �coles, le transport, les seniors et l'accessibilit� de la ville aux personnes en situation de handicap.
+Cr�ches, laveries et cantines populaires
+: ouverture de services de proximit� pour r�pondre � la chert� de la vie, au surendettement et � l'inflation.
+Titularisation de tous les travailleurs municipaux
+: garantir la stabilit� de l'emploi � tous les agents pr�caires, indispensables au fonctionnement des services publics.
+
+--- File: listes_revolution-permanente_programme_services-publics-travail_5.txt ---
 URL: https://montpellier-municipales.fr/listes/revolution-permanente/programme/services-publics-travail
 
 TITLE: Stop aux millions vers�s au patronat : des services publics sous contr�le des travailleurs � R�volution Permanente
