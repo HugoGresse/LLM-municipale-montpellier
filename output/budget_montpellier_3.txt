@@ -1,0 +1,34 @@
+URL: https://montpellier-municipales.fr/budget/montpellier/
+
+TITLE: Analyses RH, Patrimoine et Dette - Budget Ville Montpellier
+
+DESCRIPTION: Tableaux de bord d'évolution des effectifs, du patrimoine et de la dette de la Ville de Montpellier.
+
+CONTENT:
+
+Analyses Transversales (Ville de Montpellier)
+Accéder au détail par année :
+2018
+2019
+2020
+2021
+2022
+2023
+2024
+2025
+Évolution des Effectifs
+Visualisation de l'évolution des effectifs (postes pourvus) par secteur et par catégorie.
+Voir le détail 2024
+Évolution du Patrimoine
+Suivi des flux d'acquisitions (investissements) et de cessions (ventes/rebuts) de biens.
+Cliquez sur une barre
+pour voir les détails des mouvements de l'année.
+Voir le détail 2024
+Investissements Pluriannuels (AP/CP)
+Suivi des Autorisations de Programme (AP) et Crédits de Paiement (CP) pour les grands projets d'investissement.
+Évolution de la Dette
+Suivi de l'encours de la dette et de l'annuité (remboursement capital + intérêts).
+Voir le détail 2024
+Gestion de la Trésorerie
+Suivi du recours aux lignes de trésorerie (financement court terme). Le volume de tirages indique les besoins de liquidités infra-annuels.
+Voir le détail 2024
